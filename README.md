@@ -13,3 +13,5 @@
 |11. | [Zikr (or Dhikr) Remembrance of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/zikr_benefits.md) | Jun 25, 2025 | 
 |12. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
 |13. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 |
+|14. | [Success](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/success.md)  | Jun 25, 2025 |
+|15. | [](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tawaqqal.md) | Jun 25, 2025 |

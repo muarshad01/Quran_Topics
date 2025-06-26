@@ -14,4 +14,4 @@
 |12. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
 |13. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 |
 |14. | [Success](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/success.md)  | Jun 25, 2025 |
-|15. | [](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tawaqqal.md) | Jun 25, 2025 |
+|15. | [Tawaqqal (Placing one's trust and reliance on Allah (SWT) in all matters)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tawaqqal.md) | Jun 25, 2025 |

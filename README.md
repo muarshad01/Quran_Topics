@@ -17,3 +17,4 @@
 |15. | [Tawaqqal (Placing one's trust and reliance on Allah (SWT) in all matters)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tawaqqal.md) | Jun 25, 2025 |
 |15. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
 |16. | [Thankfulness](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/thank_in_quran.md) | Jun 25, 2025 |
+|17. | [Satan makes you forget](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Nasiya_forgot.md) | Jun 26, 2025 |

@@ -18,4 +18,4 @@
 |15. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
 |16. | [Thankfulness](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/thank_in_quran.md) | Jun 25, 2025 |
 |17. | [Satan makes you forget](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Nasiya_forgot.md) | Jun 26, 2025 |
-|18. [ Sabr (Patience)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md)| Jun 27, 2025 |
+|18. | [ Sabr (Patience)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md)| Jun 27, 2025 |

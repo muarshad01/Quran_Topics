@@ -23,4 +23,5 @@
 |20. | [Fazal](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/fazal.md)| July 3, 2025 |
 |20. | [Promise](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/promise.md)| July 3, 2025 |
 |21. | [Love of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/allah_ki_mohabbat.md) | July 3, 2025|
+|22. | [Tauheed](...) | xxx, 2025|
 

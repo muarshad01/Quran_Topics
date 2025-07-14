@@ -21,7 +21,7 @@
 
 ***
 
-* Idol Worshippers
+* Idol Worshippers (Gods and Goddesses)
 * Super Powers (Masters and Servants)
 
 *** 

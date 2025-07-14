@@ -25,6 +25,5 @@
 |21. | [Love of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/allah_ki_mohabbat.md) | July 3, 2025|
 |22. | [Tauheed](...) | xxx, 2025|
 |23. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|
-|24. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Ilm.md)| xxx, 2026|
-
-* [Ilm](https://www.youtube.com/watch?v=GzXKf28EShE)
+|24. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Ilm.md)| xxx, 2025|
+|25. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|

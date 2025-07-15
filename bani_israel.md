@@ -185,9 +185,13 @@
 ## [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
 
 ## [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
-
+* When Prophet PBUH comes, accept Him. I'll give you double reward!
+  
 ## [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
 
 ## [Bani Israel ki tean khabasaat - Mufti Muneer Ahmed Akhoon - Raham TV](https://www.youtube.com/watch?v=vn_xHp2BoRM)
+1. When Moutain was lifted and then Allah brought it down, but they refused again. 
+2. Sabaath (Catching Fisth by Net)
+3. Murder at the time of Prophet Musa
 
 ***

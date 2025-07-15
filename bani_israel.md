@@ -194,6 +194,8 @@
 2. Sabaath (Catching Fisth by Net)
 3. Murder at the time of Prophet Musa
 
+## [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+
 ***
 
 ## [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)

@@ -186,4 +186,6 @@
 
 ## [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
 
+## [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
+
 ***

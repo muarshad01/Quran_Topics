@@ -74,9 +74,10 @@
 
 ***
 
-[3:93] All food was lawful to the children of Israel except that which Israel had forbidden to himself, before the Taurat was revealed. Say: Bring then the Taurat and read it, if you are truthful.
+## Surah Aal-i-Imran
+* __Surah 3/93__: [All food was lawful for the children of Israel, except what Israel1 made unlawful for himself before the Torah was revealed.2 Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
 
-[3:94] Then whoever fabricates a lie against Allah after this, these it is that are the unjust.
+* __Surah 3/94__: [Then whoever still fabricates lies about Allah, they will be the ˹true˺ wrongdoers.](https://quranwbw.com/3/94)
 
 ***
 

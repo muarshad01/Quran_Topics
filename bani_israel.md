@@ -184,4 +184,6 @@
 
 ## [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
 
+## [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
+
 ***

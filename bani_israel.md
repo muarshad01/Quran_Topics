@@ -201,3 +201,7 @@
 * 6 tribes fought against 6 other tribes
 * Killed Prophets morning / evening
 * Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
+
+***
+
+* https://www.youtube.com/shorts/XKrGOQ0tO9Y

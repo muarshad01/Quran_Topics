@@ -188,4 +188,6 @@
 
 ## [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
 
+## [Bani Israel ki tean khabasaat - Mufti Muneer Ahmed Akhoon - Raham TV](https://www.youtube.com/watch?v=vn_xHp2BoRM)
+
 ***

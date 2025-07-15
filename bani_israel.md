@@ -93,22 +93,23 @@
 * __Surah 4/156__: [and for their denial and outrageous accusation against Mary,](https://quranwbw.com/4/155)
 
 ***
+## Surah Al-Maaida
 
-[5:12] And certainly Allah made a covenant with the children of Israel, and We raised up among them twelve chieftains; and Allah said: Surely I am with you; if you keep up prayer and pay the poor-rate and believe in My messengers and assist them and offer to Allah a goodly gift, I will most certainly cover your evil deeds, and I will most certainly cause you to enter into gardens beneath which rivers flow, but whoever disbelieves from among you after that, he indeed shall lose the right way.
+* __Surah 5/12__: [Allah made a covenant with the Children of Israel and appointed twelve leaders from among them and ˹then˺ said, “I am truly with you. If you establish prayer, pay alms-tax, believe in My messengers, support them, and lend to Allah a good loan, I will certainly forgive your sins and admit you into Gardens under which rivers flow. And whoever among you disbelieves afterwards has truly strayed from the Right Way.”](https://quranwbw.com/5/12)
 
-[5:13] But on account of their breaking their covenant We cursed them and made their hearts hard; they altered the words from their places and they neglected a portion of what they were reminded of; and you shall always discover treachery in them excepting a few of them; so pardon them and turn away; surely Allah loves those who do good (to others).
+* __Surah 5/13__: [But for breaking their covenant We condemned them and hardened their hearts. They distorted the words of the Scripture and neglected a portion of what they had been commanded to uphold. You ˹O Prophet˺ will always find deceit on their part, except for a few. But pardon them and bear with them. Indeed, Allah loves the good-doers.](https://quranwbw.com/5/13)
 
-[5:70] Certainly We made a covenant with the children of Israel and We sent to them messengers; whenever there came to them an messenger with what that their souls did not desire, some (of them) did they call liars and some they slew.
+* __Surah 5/70__: [Indeed, We took a covenant from the Children of Israel and sent them messengers. Whenever a messenger came to them with what they did not desire, they denied some and killed others.](https://quranwbw.com/5/70)
 
-[5:71] And they thought that there would be no affliction, so they became blind and deaf; then Allah turned to them mercifully, but many of them became blind and deaf; and Allah is well seeing what they do.
+* __Surah 5/71__: [They thought there would be no consequences, so they turned a blind eye and a deaf ear. Yet Allah turned to them in forgiveness ˹after their repentance˺, but again many became blind and deaf. And Allah is All-Seeing of what they do.](https://quranwbw.com/5/71)
 
-[5:78] Those who disbelieved from among the children of Israel were cursed by the tongue of Dawood and Isa, son of Maryam; this was because they disobeyed and used to exceed the limit.
+* __Surah 5/78__: [The disbelievers among the Children of Israel were condemned in the revelations of David and Jesus, son of Mary. That was for their disobedience and violations.](https://quranwbw.com/5/78)
 
-[5:79] They used not to forbid each other the hateful things (which) they did; certainly evil was that which they did.
+* __Surah 5/79__: [They did not forbid one another from doing evil. Evil indeed was what they did!](https://quranwbw.com/5/79)
 
-[5:80] You will see many of them befriending those who disbelieve; certainly evil is that which their souls have sent before for them, that Allah became displeased with them and in chastisement shall they abide.
+* __Surah 5/80__: [You see many of them taking the disbelievers1 as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
 
-[5:81] And had they believed in Allah and the prophet and what was revealed to him, they would not have taken them for friends but! Most of them are transgressors.
+* __Surah 5/81__: [Had they believed in Allah, the Prophet, and what has been revealed to him, they would have never taken those ˹pagans˺ as allies. But most of them are rebellious.](https://quranwbw.com/5/81)
 
 ***
 

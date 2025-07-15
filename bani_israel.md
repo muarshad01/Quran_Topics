@@ -160,6 +160,8 @@
 
 ***
 
+## Ad-Dukhaan
+
 [44:32] And certainly We chose them (Bani Israel), having knowledge, above the nations.
 
 [44:33] And We gave them of the communications wherein was clear blessing.

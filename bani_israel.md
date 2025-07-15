@@ -75,19 +75,22 @@
 ***
 
 ## Surah Aal-i-Imran
+
 * __Surah 3/93__: [All food was lawful for the children of Israel, except what Israel made unlawful for himself before the Torah was revealed. Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
 
 * __Surah 3/94__: [Then whoever still fabricates lies about Allah, they will be the ˹true˺ wrongdoers.](https://quranwbw.com/3/94)
 
 ***
 
-[4:153] The followers of the Book ask you to bring down to them a book from heaven; so indeed they demanded of Musa a greater thing than that, for they said: Show us Allah manifestly; so the lightning overtook them on account of their injustice. Then they took the calf (for a god), after clear signs had come to them, but We pardoned this; and We gave to Musa clear authority.
+## Surah An Nisaa
 
-[4:154] And We lifted the mountain (Sainai) over them at (the li taking of the covenant) and We said to them: Enter the door making obeisance; and We said to them: Do not exceed the limits of the Sabbath, and We made with them a firm covenant.
+* __Surah 4/153__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven.1 They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
 
-[4:155] Therefore, for their breaking their covenant and their disbelief in the communications of Allah and their killing the prophets wrongfully and their saying: Our hearts are covered; nay! Allah set a seal upon them owing to their unbelief, so they shall not believe except a few.
+* __Surah 4/154__: [We raised the Mount over them ˹as a warning˺ for ˹breaking˺ their covenant and said, “Enter the gate ˹of Jerusalem˺ with humility.” We also warned them, “Do not break the Sabbath,” and took from them a firm covenant.](https://quranwbw.com/4/153)
 
-[4:156] And for their unbelief and for their having uttered against Maryam a grievous calumny.
+* __Surah 4/155__: [˹They were condemned˺ for breaking their covenant, rejecting Allah’s signs, killing the prophets unjustly, and for saying, “Our hearts are unreceptive!”1—it is Allah Who has sealed their hearts for their disbelief, so they do not believe except for a few—](https://quranwbw.com/4/154)
+
+* __Surah 4/156__: [and for their denial and outrageous accusation against Mary,](https://quranwbw.com/4/155)
 
 ***
 

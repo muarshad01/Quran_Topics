@@ -182,4 +182,6 @@
 
 ## [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 
+## [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
+
 ***

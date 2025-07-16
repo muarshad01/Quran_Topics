@@ -2,6 +2,7 @@
 
 #### Question: Why Azazeel become Mayoos (disappointed)?
 * Self-liking is the first-disease after being disappointed, which makes you do ALL the sins.
+* Ijz-ki-Nafi Kibr hai
 
 #### The most critical disease of Nafas
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.

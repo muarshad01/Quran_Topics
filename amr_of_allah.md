@@ -23,4 +23,5 @@
 7. Angel Jibreel is under the `Amr-e-Rabbi`
 8. Order of Allah SWT (`Kun Fa-Yakoon`)
 9. `Raab Talah has gifted us that Amr` and we run this world through that. Subhan Allah!!
+
 ***

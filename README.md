@@ -27,3 +27,4 @@
 |23. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|
 |24. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Ilm.md)| xxx, 2025|
 |25. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|
+|26. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| xxx, 2025|

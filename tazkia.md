@@ -33,7 +33,7 @@
 ***
 
 #### Advice
-* May GOD make you Blind of your GOOD-DEEDS (so that you don't do pride / kibr.) and others BAD-DEEDS (so that you don't hate them and consider them Haqeer).
+* May GOD make you Blind of `your GOOD-DEEDS` (so that you don't do pride / kibr.) and `others BAD-DEEDS` (so that you don't hate them and consider them Haqeer).
 
 ***
 

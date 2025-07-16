@@ -1,14 +1,14 @@
 ## [Har Gunnah Ki Root | Silent Killer of Souls | Irfan ul Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
 
-#### Question: Why Azazeel become Mayoos (disappointed)?
-* Self-liking is the first-disease after being disappointed, which makes you do ALL the sins.
-* Ijz-ki-Nafi Kibr hai
+#### Why Azazeel become Mayoos (disappointed)?
+* `Self-liking` is the first-disease after being disappointed, which makes you do ALL the sins.
+* `Ijz-ki-Nafi` Kibr hai
 
 #### The most critical disease of Nafas
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
 * It describes someone who is overly pleased with themselves and their abilities. 
-* `Comparision` is the biggest `mental-disorder, psychological-disorder.`
-* Treatment: Accept your mistakes, respect common-people
+* __Comparision__ is the biggest `mental-disorder, psychological-disorder.`
+* __Treatment__: Accept your mistakes, respect common-people
 
 #### Knowledge-over-Knowledge
 * __Surah Yusuf 12/76__: [But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)

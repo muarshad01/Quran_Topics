@@ -1,6 +1,7 @@
 ## [HAR GUNNAH KI ROOT | SILENT KILLER OF SOULS | Irfan ul Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
 
-* Question: Why Azazeel become Mayoos (disappointed)
+#### Question: Why Azazeel become Mayoos (disappointed)?
+*
 
 #### The most critical disease of Nafas
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.

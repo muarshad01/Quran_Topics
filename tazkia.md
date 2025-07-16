@@ -22,6 +22,9 @@
 #### Kibr: Sunan Ibn Majah 4173
 * [Chapter 16: Freedom from arrogance, and having humility](https://sunnah.com/ibnmajah:4173)
 
+#### The Poor Among The Muhajirin Will Enter Paradise Before The Rich Among Them'
+* [Chapter 37: What Has Been Related About 'The Poor Among The Muhajirin Will Enter Paradise Before The Rich Among Them'](https://sunnah.com/tirmidhi:2352)
+
 ***
 
 #### Ashab us-Suffah

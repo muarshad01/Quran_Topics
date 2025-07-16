@@ -1,4 +1,4 @@
-## [HAR GUNNAH KI ROOT | SILENT KILLER OF SOULS | Irfan ul Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
+## [Har AR GUNNAH KI ROOT | SILENT KILLER OF SOULS | Irfan ul Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
 
 #### Question: Why Azazeel become Mayoos (disappointed)?
 * Self-liking is the first-disease after being disappointed, which makes you do ALL the sins.

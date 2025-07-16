@@ -8,16 +8,25 @@
 * It describes someone who is overly pleased with themselves and their abilities. 
 * `Comparision` is the biggest `mental-disorder, psychological-disorder.`
 
-#### Knowledge over Knowledge
+#### Knowledge-over-Knowledge
 * __Surah Yusuf 12/76__: [But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
-
-#### Sunan Ibn Majah 4125
-[Chapter 7: Keeping company with the poor](https://sunnah.com/ibnmajah:4125)
 
 ***
 
+## Hadith
+#### Sunan Ibn Majah 4125
+* [Chapter 7: Keeping company with the poor](https://sunnah.com/ibnmajah:4125)
+
+#### Kibr: Sunan Ibn Majah 4173
+* [Chapter 16: Freedom from arrogance, and having humility](https://sunnah.com/ibnmajah:4173)
+
+***
 
 ## Faqeer, Haqeer, Jahil
+
+
+#### Jahil
+* __Surah 33/72 (Jahil)__: [Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quranwbw.com/33/72)
 
 #### Faqeer
 * __Surah 35/15 (Faqeer)__: [O humanity! It is you who stand in need of Allah, but Allah ˹alone˺ is the Self-Sufficient, Praiseworthy.](https://quranwbw.com/35/15)
@@ -25,12 +34,12 @@
 #### Haqeer
 * __Surah 36/77 (Haqeer)__: [Do people not see that We have created them from a sperm-drop, then—behold!—they openly challenge ˹Us˺?](https://quranwbw.com/36/77)
 
-#### Jahil
-* __Surah 33/72 (Jahil)__: [Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quranwbw.com/33/72)
-
 ***
 
 #### Ashab us-Suffah
+
+#### Advice
+* May GOD make you Blind of your GOOD-DEEDS (so that you don't do pride / kibr.) and others BAD-DEEDS (so that you don't hate them and consider them Haqeer).
 
 ***
 

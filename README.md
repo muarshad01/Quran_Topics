@@ -29,3 +29,4 @@
 |25. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|
 |26. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| 
 |27. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
+|28. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|

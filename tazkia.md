@@ -28,7 +28,7 @@
 ***
 
 #### Ashab us-Suffah
-* __Surah Anaam 6/52__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure.1 You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quranwbw.com/6/52)
+* __Surah Anaam 6/52__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure. You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quranwbw.com/6/52)
 
 ***
 

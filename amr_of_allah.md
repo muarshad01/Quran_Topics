@@ -12,7 +12,7 @@
 
 ***
 
-### [Sahib e Amar - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=0VvlyDXYcek)
+### [Sahib-e-Amar - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=0VvlyDXYcek)
 * Hazrat Hassa RA says:
 1. Iron
 2. Fire

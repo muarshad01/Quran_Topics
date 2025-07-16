@@ -2,6 +2,11 @@
 
 * Question: Why Azazeel become Mayoos (disappointed)
 
+#### The most critical disease of Nafas
+* `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
+* * It describes someone who is overly pleased with themselves and their abilities. 
+* Comparision is the biggest `mental disorder, psychological disorder.`
+
 * __Surah 12/76__: [Joseph began searching their bags before that of his brother ˹Benjamin˺, then brought it out of Benjamin’s bag. This is how We inspired Joseph to plan. He could not have taken his brother under the King’s law, but Allah had so willed. We elevate in rank whoever We will. But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
 
 * __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
@@ -11,11 +16,6 @@
 
 ***
 
-
-#### `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`. It describes someone who is overly pleased with themselves and their abilities. 
-* Comparision is the biggest `mental disorder, psychological disorder.`
-
-***
 
 ## Faqeer, Haqeer, Jahil
 

@@ -7,6 +7,6 @@
 * __Surah 35/15 (Faqeer)__: [O humanity! It is you who stand in need of Allah, but Allah ˹alone˺ is the Self-Sufficient, Praiseworthy.](https://quranwbw.com/35/15)
 
 #### Haqeer
-* __Surah 36/77 (Haqeer)__: [Do people not see that We have created them from a sperm-drop, then—behold!—they openly challenge ˹Us˺?](https://quranwbw.com/36/77)
+* __Surah Yaseen 36/77 (Haqeer)__: [Do people not see that We have created them from a sperm-drop, then—behold!—they openly challenge ˹Us˺?](https://quranwbw.com/36/77)
 
 ***

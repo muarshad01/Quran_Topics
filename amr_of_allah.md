@@ -1,1 +1,1 @@
-
+## [AMAR ALLAH SE KYA MURAAD HAI? KYA INSAN ALLAH KI MARZI SE GUNNAH KRTA HAI?](https://www.youtube.com/watch?v=x_hr8kXnO5A)

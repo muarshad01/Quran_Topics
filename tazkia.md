@@ -8,6 +8,7 @@
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
 * It describes someone who is overly pleased with themselves and their abilities. 
 * `Comparision` is the biggest `mental-disorder, psychological-disorder.`
+* Treatment: Accept your mistakes, respect common-people
 
 #### Knowledge-over-Knowledge
 * __Surah Yusuf 12/76__: [But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)

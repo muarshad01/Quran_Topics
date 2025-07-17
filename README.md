@@ -1,5 +1,5 @@
 |   | Topic                      | Last Updated               |
-|---|----------------------------|----------------------------|
+|---|---|---|
 |1. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](...)|...|
 |2. | [As-Salat (Namaz)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/namaaz_in_quran.md)       | Jun 25, 2025 |
 |3. | [Zikr (or Dhikr) Remembrance of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/zikr_benefits.md) | Jun 26, 2025 | 
@@ -30,3 +30,4 @@
 |26. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| 
 |27. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
 |28. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|
+|29. | [Musibbet (Trouble)]()| July, 2025|

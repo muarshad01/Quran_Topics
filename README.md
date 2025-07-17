@@ -31,4 +31,4 @@
 |27. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
 |28. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|
 |29. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Trouble.md)| July, 2025|
-|30. | [Prophets]()| July, 2025|
+|30. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/prophets.md)| July, 2025|

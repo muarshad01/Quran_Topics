@@ -2,17 +2,21 @@
 
 ## Al Baqarah
 
-* __2/40__: []() O children of Israel! call to mind My favor which I bestowed on you and be faithful to (your) covenant with Me, I will fulfill (My) covenant with you; and of Me, Me alone, should you be afraid.
+* __2/40 (Fulfill MY promise)__: [O children of Israel!1 Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
 
-* __2/47__: []() O children of Israel! Call to mind My favor which I bestowed on you and that I made you excel the nations.
+* __2/47 (Remember my favours)__: [O Children of Israel! Remember ˹all˺ the favours I granted you and how I honoured you above the others.](https://quranwbw.com/2/47) 
 
-* __2/49__: []() And when We delivered you from Firon's people, who subjected you to severe torment, killing your sons and sparing your women, and in this there was a great trial from your Lord.
+***
 
-* __2/50__: []() And when We par- ted the sea for you, so We saved you and drowned the followers of Firon and you watched by.
+* __2/49 (We delivered you from the people of Pharaoh)__: [˹Remember˺ how We delivered you from the people of Pharaoh, who afflicted you with dreadful torment, slaughtering your sons and keeping your women. That was a severe test from your Lord.](https://quranwbw.com/2/49) 
 
-* __2/51__: []() And when We appointed a time of forty nights with Musa, then you took the calf (for a god) after him and you were unjust.
+* __2/50 (We parted the sea, rescued you)__: [And ˹remember˺ when We parted the sea, rescued you, and drowned Pharaoh’s people before your very eyes.](https://quranwbw.com/2/50) 
 
-* __2/52__: []() Then We pardoned you after that so that you might give thanks.
+* __2/51 (We appointed forty nights for Moses)__: [And ˹remember˺ when We appointed forty nights for Moses, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/51) 
+
+* __2/52__: [Even then We ˹still˺ forgave you so perhaps you would be grateful.](https://quranwbw.com/2/52) 
+
+***
 
 * __2/56__: []() Then We raised you up after your death that you may give thanks.
 

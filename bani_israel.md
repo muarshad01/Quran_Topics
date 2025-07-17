@@ -156,17 +156,17 @@
 
 ## Al-Israa (The Night Journey)
 
-* [17:3] The offspring of those whom We bore with Nuh; surely he was a grateful servant.
+* __17/3__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3) 
 
-* [17:4] And We had made known to the children of Israel in the Book: Most certainly you will make mischief in the land twice, and most certainly you will behave insolently with great insolence.
+* __17/4__: [And We warned the Children of Israel in the Scripture, “You will certainly cause corruption in the land twice, and you will become extremely arrogant.](https://quranwbw.com/17/4) 
 
-* [17:5] So when the promise for the first of the two came, We sent over you Our servants, of mighty prowess, so they went to and fro among the houses, and it was a promise to be accomplished.
+* __17/5__: [When the first of the two warnings would come to pass, We would send against you some of Our servants of great might, who would ravage your homes. This would be a warning fulfilled.](https://quranwbw.com/17/5) 
 
-* [17:6] Then We gave you back the turn to prevail against them, and aided you with wealth and children and made you a numerous band.
+* __17/6__: [Then ˹after your repentance˺ We would give you the upper hand over them and aid you with wealth and offspring, causing you to outnumber them.](https://quranwbw.com/17/6) 
 
-* [17:7] If you do good, you will do good for your own souls, and if you do evil, it shall be for them. So when the second promise came (We raised another people) that they may bring you to grief and that they may enter the mosque as they entered it the first time, and that they might destroy whatever they gained ascendancy over with utter destruction.
+* __17/7__: [If you act rightly, it is for your own good, but if you do wrong, it is to your own loss. “And when the second warning would come to pass, your enemies would ˹be left to˺ totally disgrace you and enter that place of worship as they entered it the first time, and utterly destroy whatever would fall into their hands.](https://quranwbw.com/17/7) 
 
-* [17:8] It may be that your Lord will have mercy on you, and if you again return (to disobedience) We too will return (to punishment), and We have made hell a prison for the unbelievers.
+* __17/8__: [Perhaps your Lord will have mercy on you ˹if you repent˺, but if you return ˹to sin˺, We will return ˹to punishment˺. And We have made Hell a ˹permanent˺ confinement for the disbelievers.”](https://quranwbw.com/17/8) 
 
 ***
 

@@ -35,20 +35,21 @@
 ***
 
 #### Cow
-* __2/67__: [](https://quranwbw.com/2/67) And when Musa said to his people: Surely Allah commands you that you should sacrifice a cow; they said: Do you ridicule us? He said: I seek the protection of Allah from being one of the ignorant.
+* __2/67 (a'oozu billaahi an akoona minal jaahileen)__: [And ˹remember˺ when Moses said to his people, “Allah commands you to sacrifice a cow.”1 They replied, “Are you mocking us?” Moses responded, “I seek refuge in Allah from acting foolishly!”](https://quranwbw.com/2/67)
 
-* __2/68__: [](https://quranwbw.com/2/68) They said: Call on your Lord for our sake to make it plain to us what she is. Musa said: He says, surely she is a cow neither advanced in age nor too young, of middle age between that (and this); do therefore what you are commanded.
+* __2/68__: [They said, “Call upon your Lord to clarify for us what type ˹of cow˺ it should be!” He replied, “Allah says, ‘The cow should neither be old nor young but in between. So do as you are commanded!’”](https://quranwbw.com/2/68) 
 
-* __2/69__: [](https://quranwbw.com/2/69) They said: Call on your Lord for our sake to make it plain to us what her color is. Musa said: He says, surely she is a yellow cow; her color is intensely yellow, giving delight to the beholders.
+* __2/69__: [They said, “Call upon your Lord to specify for us its colour.” He replied, “Allah says, ‘It should be a bright yellow cow—pleasant to see.’”](https://quranwbw.com/2/69) 
 
-* __2/70__: [](https://quranwbw.com/2/70) They said: Call on your Lord for our sake to make it plain to us what she is, for surely to us the cows are all alike, and if Allah please we shall surely be guided aright.
+* __2/70__: [Again they said, “Call upon your Lord so that He may make clear to us which cow, for all cows look the same to us. Then, Allah willing, we will be guided ˹to the right one˺.”](https://quranwbw.com/2/70) 
 
-* __2/71__: [](https://quranwbw.com/2/71) Musa said: He says, surely she is a cow not made submissive that she should plough the land, nor does she irrigate the tilth; sound, without a blemish in her. They said: Now you have brought the truth; so they sacrificed her, though they had not the mind to do (it).
+* __2/71__: [He replied, “Allah says, ‘It should have been used neither to till the soil nor water the fields; wholesome and without blemish.’” They said, “Now you have come with the truth.” Yet they still slaughtered it hesitantly!](https://quranwbw.com/2/71) 
 
-* __2/72__: [](https://quranwbw.com/2/72) And when you killed a man, then you disagreed with respect to that, and Allah was to bring forth that which you were going to hide.
+* __2/72__: [˹This is˺ when a man was killed and you disputed who the killer was, but Allah revealed what you concealed.
+](https://quranwbw.com/2/72)
 
-* __2/73__: [](https://quranwbw.com/2/73) So We said: Strike the (dead body) with part of the (Sacrificed cow), thus Allah brings the dead to life, and He shows you His signs so that you may understand.
-
+* __2/73__: [So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.
+](https://quranwbw.com/2/73)
 ***
 
 * __2/74__: []() Then your hearts hardened after that, so that they were like rocks, rather worse in hardness; and surely there are some rocks from which streams burst forth, and surely there are some of them which split asunder so water issues out of them, and surely there are some of them which fall down for fear of Allah, and Allah is not at all heedless of what you do.

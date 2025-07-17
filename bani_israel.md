@@ -113,9 +113,9 @@
 
 * __Surah 5/79__: [They did not forbid one another from doing evil. Evil indeed was what they did!](https://quranwbw.com/5/79)
 
-* __Surah 5/80 (They've earned Allah’s wrath!)__: [You see many of them taking the disbelievers as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
+* __Surah 5/80 (They've earned Allah’s Wrath!)__: [You see many of them taking the disbelievers as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
 
-* __Surah 5/81__: [Had they believed in Allah, the Prophet, and what has been revealed to him, they would have never taken those ˹pagans˺ as allies. But most of them are rebellious.](https://quranwbw.com/5/81)
+* __Surah 5/81 (They take Pagans as Allies)__: [Had they believed in Allah, the Prophet, and what has been revealed to him, they would have never taken those ˹pagans˺ as allies. But most of them are rebellious.](https://quranwbw.com/5/81)
 
 ***
 

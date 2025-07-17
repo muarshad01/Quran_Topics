@@ -66,13 +66,13 @@
 
 * __2/96__: []() And you will most certainly find them the greediest of men for life (greedier) than even those who are polytheists; every one of them loves that he should be granted a life of a thousand years, and his being granted a long life will in no way remove him further off from the chastisement, and Allah sees what they do.
 
-* __2/111__: []() And they say: None shall enter the garden (or paradise) except he who is a Jew or a Christian. These are their vain desires. Say: Bring your proof if you are truthful.
+* __2/111__: [](https://quranwbw.com/2/111) And they say: None shall enter the garden (or paradise) except he who is a Jew or a Christian. These are their vain desires. Say: Bring your proof if you are truthful.
 
-* __2/122__: []() O children of Israel, call to mind My favor which I bestowed on you and that I made you excel the nations.
+* __2/122__: [](https://quranwbw.com/2/122) O children of Israel, call to mind My favor which I bestowed on you and that I made you excel the nations.
 
-* __2/211__: []() Ask the Israelites how many a clear sign have We given them; and whoever changes the favor of Allah after it has come to him, then surely Allah is severe in requiting (evil).
+* __2/211__: [](https://quranwbw.com/2/211) Ask the Israelites how many a clear sign have We given them; and whoever changes the favor of Allah after it has come to him, then surely Allah is severe in requiting (evil).
 
-* __2:243__: []() Have you not considered those who went forth from their homes, for fear of death, and they were thousands, then Allah said to them, Die; again He gave them life; most surely Allah is Gracious to people, but most people are not grateful.
+* __2/243__: [](https://quranwbw.com/2/243) Have you not considered those who went forth from their homes, for fear of death, and they were thousands, then Allah said to them, Die; again He gave them life; most surely Allah is Gracious to people, but most people are not grateful.
 
 ***
 

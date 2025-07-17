@@ -129,8 +129,7 @@
 * __7/165__: [When they ignored the warning they were given, We rescued those who used to warn against evil and overtook the wrongdoers with a dreadful punishment for their rebelliousness.
 ](https://quranwbw.com/7/165)
 
-* __7/166 (Apes)__: [But when they stubbornly persisted in violation, We said to them, “Be disgraced apes!”1 
-](https://quranwbw.com/7/166)
+* __7/166 (Apes Despised)__: [But when they stubbornly persisted in violation, We said to them, “Be disgraced apes!”](https://quranwbw.com/7/166)
 
 * __7/167__: [And ˹remember, O  Prophet,˺ when your Lord declared that He would send against them others who would make them suffer terribly until the Day of Judgment. Indeed, your Lord is swift in punishment, but He is certainly All-Forgiving, Most Merciful.](https://quranwbw.com/7/167)
 

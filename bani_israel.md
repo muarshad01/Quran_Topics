@@ -109,11 +109,11 @@
 
 * __Surah 5/71__: [They thought there would be no consequences, so they turned a blind eye and a deaf ear. Yet Allah turned to them in forgiveness ˹after their repentance˺, but again many became blind and deaf. And Allah is All-Seeing of what they do.](https://quranwbw.com/5/71)
 
-* __Surah 5/78__: [The disbelievers among the Children of Israel were condemned in the revelations of David and Jesus, son of Mary. That was for their disobedience and violations.](https://quranwbw.com/5/78)
+* __Surah 5/78 (The are Cursed)__: [The disbelievers among the Children of Israel were condemned in the revelations of David and Jesus, son of Mary. That was for their disobedience and violations.](https://quranwbw.com/5/78)
 
 * __Surah 5/79__: [They did not forbid one another from doing evil. Evil indeed was what they did!](https://quranwbw.com/5/79)
 
-* __Surah 5/80__: [You see many of them taking the disbelievers as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
+* __Surah 5/80 (They've earned Allah’s wrath!)__: [You see many of them taking the disbelievers as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
 
 * __Surah 5/81__: [Had they believed in Allah, the Prophet, and what has been revealed to him, they would have never taken those ˹pagans˺ as allies. But most of them are rebellious.](https://quranwbw.com/5/81)
 

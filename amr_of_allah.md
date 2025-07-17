@@ -8,6 +8,8 @@
 
 * __Surah Al-A'raf 7/54__: [Indeed your Lord is Allah Who created the heavens and the earth in six Days,1 then established Himself on the Throne. He makes the day and night overlap in rapid succession. He created the sun, the moon, and the stars—all subjected by His command. The creation and the command belong to Him ˹alone˺. Blessed is Allah—Lord of all worlds!](https://quran.com/7/54)
 
+* __Surah Taubah 9/24__: [Say, ˹O Prophet,˺ “If your parents and children and siblings and spouses and extended family and the wealth you have acquired and the trade you fear will decline and the homes you cherish—˹if all these˺ are more beloved to you than Allah and His Messenger and struggling in His Way, then wait until Allah brings about His Will. Allah does not guide the rebellious people.”](https://quran.com/9/24)
+
 * __Surah An-Nahl 16/1__: [The command of Allah is at hand, so do not hasten it. Glorified and Exalted is He above what they associate ˹with Him in worship˺!](https://quran.com/16/1)
 
 ***

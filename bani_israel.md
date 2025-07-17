@@ -122,23 +122,28 @@
 
 ## Al Araaf (The Heights)
 
-* __7/163__: [](https://quranwbw.com/7/163) And ask them about the town which stood by the sea; when they exceeded the limits of the Sabbath, when their fish came to them on the day of their Sabbath, appearing on the surface of the water, and on the day on which they did not keep the Sabbath they did not come to them; thus did We try them because they transgressed.
+* __7/163 (Sabbath)__: [Ask them ˹O Prophet˺ about ˹the people of˺ the town which was by the sea, who broke the Sabbath.1 During the Sabbath, ˹abundant˺ fish would come to them clearly visible, but on other days the fish were never seen. In this way We tested them for their rebelliousness.](https://quranwbw.com/7/163)
 
-* __7/164__: [](https://quranwbw.com/7/164) And when a party of them said: Why do you admonish a with a severe chastisement? They said: To be free from blame before your Lord, and that haply they may guard (against evil).
+* __7/164__: [When some of ˹the righteous among˺ them questioned ˹their fellow Sabbath-keepers˺, “Why do you ˹bother to˺ warn those ˹Sabbath-breakers˺ who will either be destroyed or severely punished by Allah?” They replied, “Just to be free from your Lord’s blame, and so perhaps they may abstain.”](https://quranwbw.com/7/164)
 
-* __7/165__: [](https://quranwbw.com/7/165) So when they neglected what they had been reminded of, We delivered those who forbade evil and We overtook those who were unjust with an evil chastisement because they transgressed.
+* __7/165__: [When they ignored the warning they were given, We rescued those who used to warn against evil and overtook the wrongdoers with a dreadful punishment for their rebelliousness.
+](https://quranwbw.com/7/165)
 
-* __7/166__: [](https://quranwbw.com/7/166) Therefore when they revoltingly persisted in what they had been forbidden, We said to them: Be (as) apes, despised and hated.
+* __7/166 (Apes)__: [But when they stubbornly persisted in violation, We said to them, “Be disgraced apes!”1 
+](https://quranwbw.com/7/166)
 
-* __7/167__: [](https://quranwbw.com/7/167) And when your Lord announced that He would certainly send against them to the day of resurrection those who would subject them to severe torment; most surely your Lord is quick to requite (evil) and most surely He is Forgiving, Merciful.
+* __7/167__: [And ˹remember, O  Prophet,˺ when your Lord declared that He would send against them others who would make them suffer terribly until the Day of Judgment. Indeed, your Lord is swift in punishment, but He is certainly All-Forgiving, Most Merciful.](https://quranwbw.com/7/167)
 
-* __7/168__: [](https://quranwbw.com/7/168) And We cut them up on the earth into parties, (some) of them being righteous and (others) of them falling short of that, and We tried them with blessings and misfortunes that they might turn.
+* __7/168__: [We dispersed them through the land in groups—some were righteous, others were less so. We tested them with prosperity and adversity, so perhaps they would return ˹to the Right Path˺.
+](https://quranwbw.com/7/168)
 
-* __7/169__: [](https://quranwbw.com/7/169) Then there came after them an evil posterity who inherited the Book, taking only the frail good of this low life and saying: It will be for- given us. And if the like good came to them, they would take it (too). Was not a promise taken from them in the Book that they would not speak anything about Allah but the truth, and they have read what is in it; and the abode of the hereafter is better for those who guard (against evil). Do you not then understand?
+* __7/169__: [Then they were succeeded by other generations who inherited the Scripture. They indulged in unlawful gains, claiming, “We will be forgiven ˹after all˺.” And if similar gain came their way, they would seize it. Was a covenant not taken from them in the Scripture that they would not say anything about Allah except the truth? And they were already well-versed in its teachings. But the ˹eternal˺ Home of the Hereafter is far better for those mindful ˹of Allah˺. Will you not then understand?
+](https://quranwbw.com/7/169)
 
-* __7/170__: [](https://quranwbw.com/7/170) And (as for) those who hold fast by the Book and keep up prayer, surely We do not waste the reward of the right doers.
+* __7/170__: [As for those who firmly abide by the Scripture and establish prayer—surely We never discount the reward of those acting righteously.](https://quranwbw.com/7/170)
 
-* __7/171__: [](https://quranwbw.com/7/171) And when We shook the mountain over them as if it were a covering overhead, and they thought that it was going to fall down upon them: Take hold of what We have given you with firmness, and be mindful of what is in it, so that you may guard (against evil).
+* __7/171 (Raised the Mountain)__: [And ˹remember˺ when We raised the mountain over them as if it were a cloud and they thought it would fall on them.1 ˹We said,˺ “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”
+](https://quranwbw.com/7/171)
 
 ***
 

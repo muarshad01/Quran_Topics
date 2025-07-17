@@ -1,5 +1,7 @@
 ## [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
+## Al Baqarah
+
 [2:40] O children of Israel! call to mind My favor which I bestowed on you and be faithful to (your) covenant with Me, I will fulfill (My) covenant with you; and of Me, Me alone, should you be afraid.
 
 [2:47] O children of Israel! Call to mind My favor which I bestowed on you and that I made you excel the nations.
@@ -118,7 +120,8 @@
 
 ***
 
-[7:163] And ask them about the town which stood by the sea; when they exceeded the limits of the Sabbath, when their fish came to them on the day of their Sabbath, appearing on the surface of the water, and on the day on which they did not keep the Sabbath they did not come to them; thus did We try them because they transgressed.
+## Al Araaf
+* [7:163] And ask them about the town which stood by the sea; when they exceeded the limits of the Sabbath, when their fish came to them on the day of their Sabbath, appearing on the surface of the water, and on the day on which they did not keep the Sabbath they did not come to them; thus did We try them because they transgressed.
 
 [7:164] And when a party of them said: Why do you admonish a with a severe chastisement? They said: To be free from blame before your Lord, and that haply they may guard (against evil).
 
@@ -138,13 +141,19 @@
 
 ***
 
-[10:93] And certainly We lodged the children of Israel in a goodly abode and We provided them with good things; but they did not disagree until the knowledge had come to them; surely your Lord will judge between them on the resurrection day concerning that in which they disagreed.
+## Yunus (Jonas)
+
+* [10:93] And certainly We lodged the children of Israel in a goodly abode and We provided them with good things; but they did not disagree until the knowledge had come to them; surely your Lord will judge between them on the resurrection day concerning that in which they disagreed.
 
 ***
 
-[16:124] The Sabbath was ordained only for those who differed about it, and most surely your Lord will judge between them on the resurrection day concerning that about which they differed.
+## An Nahl
+
+* [16:124] The Sabbath was ordained only for those who differed about it, and most surely your Lord will judge between them on the resurrection day concerning that about which they differed.
 
 ***
+
+## Al Israa
 
 [17:3] The offspring of those whom We bore with Nuh; surely he was a grateful servant.
 
@@ -176,6 +185,7 @@
 
 ***
 
+## Al Jaathiya (Crouching)
 [45:16] And certainly We gave the Book and the wisdom and the prophecy to the children of Israel, and We gave them of the goodly things, and We made them excel the nations.
 
 [45:17] And We gave them clear arguments in the affair, but they did not differ until after knowledge had come to them out of envy among themselves; surely your Lord will judge between them on the day of resurrection concerning that wherein they differed.

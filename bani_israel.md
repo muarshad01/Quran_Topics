@@ -18,23 +18,27 @@
 
 ***
 
-* __2/56__: []() Then We raised you up after your death that you may give thanks.
+* __2/56 (Which Indicent???)__: [Then We brought you back to life after your death, so that perhaps you would be grateful.](https://quranwbw.com/2/56)
+  * 70 peopel who saw Allah SWT and died?
+  * 1,000's mentioned in another Ayat? 
+  
+* __2/57 (Manna and Quails)__: [And ˹remember when˺ We shaded you with clouds and sent down to you manna and quails, ˹saying˺, “Eat from the good things We have provided for you.” The evildoers ˹certainly˺ did not wrong Us, but wronged themselves.](https://quranwbw.com/2/57)
 
-* __2/57__: []() And We made the clouds to give shade over you and We sent to you manna and quails: Eat of the good things that We have given you; and they did not do Us any harm, but they made their own souls suffer the loss.
+* __2/58 (Enter thsi city Humbly and saying Hittatun)__: [And ˹remember˺ when We said, “Enter this city and eat freely from wherever you please; enter the gate with humility, saying, ‘Absolve us.’ We will forgive your sins and multiply the reward for the good-doers.”](https://quranwbw.com/2/58) 
 
-* __2/58__: []() And when We said: Enter this city, then eat from it a plenteous (food) wherever you wish, and enter the gate making obeisance, and say, forgiveness. We will forgive you your wrongs and give more to those who do good (to others).
+* __2/59 (The changed the Words)__: [But the wrongdoers changed the words they were commanded to say. So We sent down a punishment from the heavens upon them for their rebelliousness.](https://quranwbw.com/2/59) 
 
-* __2/59__: []() But those who were unjust changed it for a saying other than that which had been spoken to them, so We sent upon those who were unjust a pestilence from heaven, because they transgressed.
+* __2/60 (Twelve Springs)__:[And ˹remember˺ when Moses prayed for water for his people, We said, “Strike the rock with your staff.” Then twelve springs gushed out, ˹and˺ each tribe knew its drinking place. ˹We then said,˺ “Eat and drink of Allah’s provisions, and do not go about spreading corruption in the land.”](https://quranwbw.com/2/60)
 
-* __2/61__: []() And when you said: O Musa! We cannot bear with one food, therefore pray Lord on our behalf to bring forth for us out of what the earth grows, of its herbs and its cucumbers and its garlic and its lentils and its onions. He said: Will you exchange that which is better for that which is worse? Enter a city, so you will have what you ask for. And abasement and humiliation were brought down upon them, and they be- came deserving of Allah's wrath; this was so because they disbelieved in the communications of Allah and killed the prophets unjustly; this was so because they disobeyed and exceeded the limits.
+* __2/61 (More food Types...They invited the displeasure of Allah SWT)__: [And ˹remember˺ when you said, “O Moses! We cannot endure the same meal ˹every day˺. So ˹just˺ call upon your Lord on our behalf, He will bring forth for us some of what the earth produces of herbs, cucumbers, garlic, lentils, and onions.” Moses scolded ˹them˺, “Do you exchange what is better for what is worse? ˹You can˺ go down to any village and you will find what you have asked for.” They were stricken with disgrace and misery, and they invited the displeasure of Allah for rejecting Allah’s signs and unjustly killing the prophets. This is ˹a fair reward˺ for their disobedience and violations.](https://quranwbw.com/2/61)
 
-* __2/63__: []() And when We took a promise from you and lifted the mountain over you: Take hold of the law (Taurat) We have given you with firm- ness and bear in mind what is in it, so that you may guard (against evil).
+* __2/63 (Mountain was Raised)__: [And ˹remember˺ when We took a covenant from you and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”](https://quranwbw.com/2/63)
 
-* __2/64__: []() Then you turned back after that; so were it not for the grace of Allah and His mercy on you, you would certainly have been among the losers.
+* __2/64__: [Yet you turned away afterwards. Had it not been for Allah’s grace and mercy upon you, you would have certainly been of the losers.](https://quranwbw.com/2/64) 
 
-* __2/65__: []() And certainly you have known those among you who exceeded the limits of the Sabbath, so We said to them: Be (as) apes, despised and hated.
+* __2/65 (Sabath ...Apes Despised)__: [You are already aware of those of you who broke the Sabbath. We said to them, “Be disgraced apes!”1](https://quranwbw.com/2/65)
 
-* __2/66__: []() So We made them an example to those who witnessed it and those who came after it, and an admonition to those who guard (against evil).
+* __2/66 (Admonision for those who fear Allah)__: [So We made their fate an example to present and future generations, and a lesson to the God-fearing.](https://quranwbw.com/2/66) 
 
 ***
 

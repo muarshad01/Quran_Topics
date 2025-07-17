@@ -172,9 +172,9 @@
 
 ## Ad-Dukhaan (The Smoke)
 
-* [44:32] And certainly We chose them (Bani Israel), having knowledge, above the nations.
+* __44/32__:[And indeed, We chose the Israelites knowingly above the others.](https://quranwbw.com/44/32)
 
-* [44:33] And We gave them of the communications wherein was clear blessing.
+* __44/33__: [And We showed them signs in which there was a clear test.](https://quranwbw.com/44/33) 
 
 * [44:34] Most surely these do say:
 
@@ -190,7 +190,7 @@
 
 * __45/16__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16) 
 
-* __45/17__: [We ˹also˺ gave them clear commandments regarding ˹their˺ faith. But it was not until knowledge came to them that they differed out of mutual envy.1 Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quran.com/45/17)
+* __45/17__: [We ˹also˺ gave them clear commandments regarding ˹their˺ faith. But it was not until knowledge came to them that they differed out of mutual envy. Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quran.com/45/17)
 
 ***
 ***

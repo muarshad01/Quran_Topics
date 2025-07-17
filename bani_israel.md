@@ -78,7 +78,7 @@
 
 ## Surah Aal-i-Imran
 
-* __Surah 3/93__: [All food was lawful for the children of Israel, except what Israel made unlawful for himself before the Torah was revealed. Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
+* __Surah 3/93 (They made food unlawful to them)__: [All food was lawful for the children of Israel, except what Israel made unlawful for himself before the Torah was revealed. Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
 
 * __Surah 3/94__: [Then whoever still fabricates lies about Allah, they will be the ˹true˺ wrongdoers.](https://quranwbw.com/3/94)
 

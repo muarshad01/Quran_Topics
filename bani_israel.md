@@ -32,19 +32,24 @@
 
 * __2/66__: []() So We made them an example to those who witnessed it and those who came after it, and an admonition to those who guard (against evil).
 
-* __2/67__: []() And when Musa said to his people: Surely Allah commands you that you should sacrifice a cow; they said: Do you ridicule us? He said: I seek the protection of Allah from being one of the ignorant.
+***
 
-* __2/68__: []() They said: Call on your Lord for our sake to make it plain to us what she is. Musa said: He says, surely she is a cow neither advanced in age nor too young, of middle age between that (and this); do therefore what you are commanded.
+#### Cow
+* __2/67__: [](https://quranwbw.com/2/67) And when Musa said to his people: Surely Allah commands you that you should sacrifice a cow; they said: Do you ridicule us? He said: I seek the protection of Allah from being one of the ignorant.
 
-* __2/69__: []() They said: Call on your Lord for our sake to make it plain to us what her color is. Musa said: He says, surely she is a yellow cow; her color is intensely yellow, giving delight to the beholders.
+* __2/68__: [](https://quranwbw.com/2/68) They said: Call on your Lord for our sake to make it plain to us what she is. Musa said: He says, surely she is a cow neither advanced in age nor too young, of middle age between that (and this); do therefore what you are commanded.
 
-* __2/70__: []() They said: Call on your Lord for our sake to make it plain to us what she is, for surely to us the cows are all alike, and if Allah please we shall surely be guided aright.
+* __2/69__: [](https://quranwbw.com/2/69) They said: Call on your Lord for our sake to make it plain to us what her color is. Musa said: He says, surely she is a yellow cow; her color is intensely yellow, giving delight to the beholders.
 
-* __2/71__: []() Musa said: He says, surely she is a cow not made submissive that she should plough the land, nor does she irrigate the tilth; sound, without a blemish in her. They said: Now you have brought the truth; so they sacrificed her, though they had not the mind to do (it).
+* __2/70__: [](https://quranwbw.com/2/70) They said: Call on your Lord for our sake to make it plain to us what she is, for surely to us the cows are all alike, and if Allah please we shall surely be guided aright.
 
-* __2/72__: []() And when you killed a man, then you disagreed with respect to that, and Allah was to bring forth that which you were going to hide.
+* __2/71__: [](https://quranwbw.com/2/71) Musa said: He says, surely she is a cow not made submissive that she should plough the land, nor does she irrigate the tilth; sound, without a blemish in her. They said: Now you have brought the truth; so they sacrificed her, though they had not the mind to do (it).
 
-* __2/73__: []() So We said: Strike the (dead body) with part of the (Sacrificed cow), thus Allah brings the dead to life, and He shows you His signs so that you may understand.
+* __2/72__: [](https://quranwbw.com/2/72) And when you killed a man, then you disagreed with respect to that, and Allah was to bring forth that which you were going to hide.
+
+* __2/73__: [](https://quranwbw.com/2/73) So We said: Strike the (dead body) with part of the (Sacrificed cow), thus Allah brings the dead to life, and He shows you His signs so that you may understand.
+
+***
 
 * __2/74__: []() Then your hearts hardened after that, so that they were like rocks, rather worse in hardness; and surely there are some rocks from which streams burst forth, and surely there are some of them which split asunder so water issues out of them, and surely there are some of them which fall down for fear of Allah, and Allah is not at all heedless of what you do.
 

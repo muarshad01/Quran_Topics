@@ -2,77 +2,77 @@
 
 ## Al Baqarah
 
-[2:40] O children of Israel! call to mind My favor which I bestowed on you and be faithful to (your) covenant with Me, I will fulfill (My) covenant with you; and of Me, Me alone, should you be afraid.
+* [2:40] O children of Israel! call to mind My favor which I bestowed on you and be faithful to (your) covenant with Me, I will fulfill (My) covenant with you; and of Me, Me alone, should you be afraid.
 
-[2:47] O children of Israel! Call to mind My favor which I bestowed on you and that I made you excel the nations.
+* [2:47] O children of Israel! Call to mind My favor which I bestowed on you and that I made you excel the nations.
 
-[2:49] And when We delivered you from Firon's people, who subjected you to severe torment, killing your sons and sparing your women, and in this there was a great trial from your Lord.
+* [2:49] And when We delivered you from Firon's people, who subjected you to severe torment, killing your sons and sparing your women, and in this there was a great trial from your Lord.
 
-[2:50] And when We par- ted the sea for you, so We saved you and drowned the followers of Firon and you watched by.
+* [2:50] And when We par- ted the sea for you, so We saved you and drowned the followers of Firon and you watched by.
 
-[2:51] And when We appointed a time of forty nights with Musa, then you took the calf (for a god) after him and you were unjust.
+* [2:51] And when We appointed a time of forty nights with Musa, then you took the calf (for a god) after him and you were unjust.
 
-[2:52] Then We pardoned you after that so that you might give thanks.
+* [2:52] Then We pardoned you after that so that you might give thanks.
 
-[2:56] Then We raised you up after your death that you may give thanks.
+* [2:56] Then We raised you up after your death that you may give thanks.
 
-[2:57] And We made the clouds to give shade over you and We sent to you manna and quails: Eat of the good things that We have given you; and they did not do Us any harm, but they made their own souls suffer the loss.
+* [2:57] And We made the clouds to give shade over you and We sent to you manna and quails: Eat of the good things that We have given you; and they did not do Us any harm, but they made their own souls suffer the loss.
 
-[2:58] And when We said: Enter this city, then eat from it a plenteous (food) wherever you wish, and enter the gate making obeisance, and say, forgiveness. We will forgive you your wrongs and give more to those who do good (to others).
+* [2:58] And when We said: Enter this city, then eat from it a plenteous (food) wherever you wish, and enter the gate making obeisance, and say, forgiveness. We will forgive you your wrongs and give more to those who do good (to others).
 
-[2:59] But those who were unjust changed it for a saying other than that which had been spoken to them, so We sent upon those who were unjust a pestilence from heaven, because they transgressed.
+* [2:59] But those who were unjust changed it for a saying other than that which had been spoken to them, so We sent upon those who were unjust a pestilence from heaven, because they transgressed.
 
-[2:61] And when you said: O Musa! We cannot bear with one food, therefore pray Lord on our behalf to bring forth for us out of what the earth grows, of its herbs and its cucumbers and its garlic and its lentils and its onions. He said: Will you exchange that which is better for that which is worse? Enter a city, so you will have what you ask for. And abasement and humiliation were brought down upon them, and they be- came deserving of Allah's wrath; this was so because they disbelieved in the communications of Allah and killed the prophets unjustly; this was so because they disobeyed and exceeded the limits.
+* [2:61] And when you said: O Musa! We cannot bear with one food, therefore pray Lord on our behalf to bring forth for us out of what the earth grows, of its herbs and its cucumbers and its garlic and its lentils and its onions. He said: Will you exchange that which is better for that which is worse? Enter a city, so you will have what you ask for. And abasement and humiliation were brought down upon them, and they be- came deserving of Allah's wrath; this was so because they disbelieved in the communications of Allah and killed the prophets unjustly; this was so because they disobeyed and exceeded the limits.
 
-[2:63] And when We took a promise from you and lifted the mountain over you: Take hold of the law (Taurat) We have given you with firm- ness and bear in mind what is in it, so that you may guard (against evil).
+* [2:63] And when We took a promise from you and lifted the mountain over you: Take hold of the law (Taurat) We have given you with firm- ness and bear in mind what is in it, so that you may guard (against evil).
 
-[2:64] Then you turned back after that; so were it not for the grace of Allah and His mercy on you, you would certainly have been among the losers.
+* [2:64] Then you turned back after that; so were it not for the grace of Allah and His mercy on you, you would certainly have been among the losers.
 
-[2:65] And certainly you have known those among you who exceeded the limits of the Sabbath, so We said to them: Be (as) apes, despised and hated.
+* [2:65] And certainly you have known those among you who exceeded the limits of the Sabbath, so We said to them: Be (as) apes, despised and hated.
 
-[2:66] So We made them an example to those who witnessed it and those who came after it, and an admonition to those who guard (against evil).
+* [2:66] So We made them an example to those who witnessed it and those who came after it, and an admonition to those who guard (against evil).
 
-[2:67] And when Musa said to his people: Surely Allah commands you that you should sacrifice a cow; they said: Do you ridicule us? He said: I seek the protection of Allah from being one of the ignorant.
+* [2:67] And when Musa said to his people: Surely Allah commands you that you should sacrifice a cow; they said: Do you ridicule us? He said: I seek the protection of Allah from being one of the ignorant.
 
-[2:68] They said: Call on your Lord for our sake to make it plain to us what she is. Musa said: He says, surely she is a cow neither advanced in age nor too young, of middle age between that (and this); do therefore what you are commanded.
+* [2:68] They said: Call on your Lord for our sake to make it plain to us what she is. Musa said: He says, surely she is a cow neither advanced in age nor too young, of middle age between that (and this); do therefore what you are commanded.
 
-[2:69] They said: Call on your Lord for our sake to make it plain to us what her color is. Musa said: He says, surely she is a yellow cow; her color is intensely yellow, giving delight to the beholders.
+* [2:69] They said: Call on your Lord for our sake to make it plain to us what her color is. Musa said: He says, surely she is a yellow cow; her color is intensely yellow, giving delight to the beholders.
 
-[2:70] They said: Call on your Lord for our sake to make it plain to us what she is, for surely to us the cows are all alike, and if Allah please we shall surely be guided aright.
+* [2:70] They said: Call on your Lord for our sake to make it plain to us what she is, for surely to us the cows are all alike, and if Allah please we shall surely be guided aright.
 
-[2:71] Musa said: He says, surely she is a cow not made submissive that she should plough the land, nor does she irrigate the tilth; sound, without a blemish in her. They said: Now you have brought the truth; so they sacrificed her, though they had not the mind to do (it).
+* [2:71] Musa said: He says, surely she is a cow not made submissive that she should plough the land, nor does she irrigate the tilth; sound, without a blemish in her. They said: Now you have brought the truth; so they sacrificed her, though they had not the mind to do (it).
 
-[2:72] And when you killed a man, then you disagreed with respect to that, and Allah was to bring forth that which you were going to hide.
+* [2:72] And when you killed a man, then you disagreed with respect to that, and Allah was to bring forth that which you were going to hide.
 
-[2:73] So We said: Strike the (dead body) with part of the (Sacrificed cow), thus Allah brings the dead to life, and He shows you His signs so that you may understand.
+* [2:73] So We said: Strike the (dead body) with part of the (Sacrificed cow), thus Allah brings the dead to life, and He shows you His signs so that you may understand.
 
-[2:74] Then your hearts hardened after that, so that they were like rocks, rather worse in hardness; and surely there are some rocks from which streams burst forth, and surely there are some of them which split asunder so water issues out of them, and surely there are some of them which fall down for fear of Allah, and Allah is not at all heedless of what you do.
+* [2:74] Then your hearts hardened after that, so that they were like rocks, rather worse in hardness; and surely there are some rocks from which streams burst forth, and surely there are some of them which split asunder so water issues out of them, and surely there are some of them which fall down for fear of Allah, and Allah is not at all heedless of what you do.
 
-[2:75] Do you then hope that they would believe in you, and a party from among them indeed used to hear the Word of Allah, then altered it after they had understood it, and they know (this).
+* [2:75] Do you then hope that they would believe in you, and a party from among them indeed used to hear the Word of Allah, then altered it after they had understood it, and they know (this).
 
-[2:83] And when We made a covenant with the children of Israel: You shall not serve any but Allah and (you shall do) good to (your) parents, and to the near of kin and to the orphans and the needy, and you shall speak to men good words and keep up prayer and pay the poor-rate. Then you turned back except a few of you and (now too) you turn aside.
+* [2:83] And when We made a covenant with the children of Israel: You shall not serve any but Allah and (you shall do) good to (your) parents, and to the near of kin and to the orphans and the needy, and you shall speak to men good words and keep up prayer and pay the poor-rate. Then you turned back except a few of you and (now too) you turn aside.
 
-[2:84] And when We made a covenant with you: You shall not shed your blood and you shall not turn your people out of your cities; then you gave a promise while you witnessed.
+* [2:84] And when We made a covenant with you: You shall not shed your blood and you shall not turn your people out of your cities; then you gave a promise while you witnessed.
 
-[2:85] Yet you it is who slay your people and turn a party from among you out of their homes, backing each other up against them unlawfully and exceeding the limits; and if they should come to you, as captives you would ransom them, while their very turning out was unlawful for you. Do you then believe in a part of the Book and disbelieve in the other? What then is the re ward of such among you as do this but disgrace in the life of this world, and on the day of resurrection they shall be sent back to the most grievous chastisement, and Allah is not at all heedless of what you do.
+* [2:85] Yet you it is who slay your people and turn a party from among you out of their homes, backing each other up against them unlawfully and exceeding the limits; and if they should come to you, as captives you would ransom them, while their very turning out was unlawful for you. Do you then believe in a part of the Book and disbelieve in the other? What then is the re ward of such among you as do this but disgrace in the life of this world, and on the day of resurrection they shall be sent back to the most grievous chastisement, and Allah is not at all heedless of what you do.
 
-[2:92] And most certainly Musa came to you with clear arguments, then you took the calf (for a god) in his absence and you were unjust.
+* [2:92] And most certainly Musa came to you with clear arguments, then you took the calf (for a god) in his absence and you were unjust.
 
-[2:93] And when We made a covenant with you and raised the mountain over you: Take hold of what We have given you with firmness and be obedient. They said: We hear and disobey. And they were made to imbibe (the love of) the calf into their hearts on account of their unbelief Say: Evil is that which your belief bids you if you are believers.
+* [2:93] And when We made a covenant with you and raised the mountain over you: Take hold of what We have given you with firmness and be obedient. They said: We hear and disobey. And they were made to imbibe (the love of) the calf into their hearts on account of their unbelief Say: Evil is that which your belief bids you if you are believers.
 
-[2:94] Say: If the future abode with Allah is especially for you to the exclusion of the people, then invoke death if you are truthful.
+* [2:94] Say: If the future abode with Allah is especially for you to the exclusion of the people, then invoke death if you are truthful.
 
-[2:95] And they will never invoke it on account of what their hands have sent before, and Allah knows the unjust.
+* [2:95] And they will never invoke it on account of what their hands have sent before, and Allah knows the unjust.
 
-[2:96] And you will most certainly find them the greediest of men for life (greedier) than even those who are polytheists; every one of them loves that he should be granted a life of a thousand years, and his being granted a long life will in no way remove him further off from the chastisement, and Allah sees what they do.
+* [2:96] And you will most certainly find them the greediest of men for life (greedier) than even those who are polytheists; every one of them loves that he should be granted a life of a thousand years, and his being granted a long life will in no way remove him further off from the chastisement, and Allah sees what they do.
 
-[2:111] And they say: None shall enter the garden (or paradise) except he who is a Jew or a Christian. These are their vain desires. Say: Bring your proof if you are truthful.
+* [2:111] And they say: None shall enter the garden (or paradise) except he who is a Jew or a Christian. These are their vain desires. Say: Bring your proof if you are truthful.
 
-[2:122] O children of Israel, call to mind My favor which I bestowed on you and that I made you excel the nations.
+* [2:122] O children of Israel, call to mind My favor which I bestowed on you and that I made you excel the nations.
 
-[2:211] Ask the Israelites how many a clear sign have We given them; and whoever changes the favor of Allah after it has come to him, then surely Allah is severe in requiting (evil).
+* [2:211] Ask the Israelites how many a clear sign have We given them; and whoever changes the favor of Allah after it has come to him, then surely Allah is severe in requiting (evil).
 
-[2:243] Have you not considered those who went forth from their homes, for fear of death, and they were thousands, then Allah said to them, Die; again He gave them life; most surely Allah is Gracious to people, but most people are not grateful.
+* [2:243] Have you not considered those who went forth from their homes, for fear of death, and they were thousands, then Allah said to them, Die; again He gave them life; most surely Allah is Gracious to people, but most people are not grateful.
 
 ***
 

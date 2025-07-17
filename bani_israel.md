@@ -181,6 +181,7 @@
 [45:17] And We gave them clear arguments in the affair, but they did not differ until after knowledge had come to them out of envy among themselves; surely your Lord will judge between them on the day of resurrection concerning that wherein they differed.
 
 ***
+***
 
 ## [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 

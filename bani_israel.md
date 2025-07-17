@@ -84,7 +84,7 @@
 
 ***
 
-## Surah An Nisaa
+## Surah An-Nisaa
 
 ### Wanted to See Allah SWT
 * __Surah 4/153__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
@@ -98,7 +98,7 @@
 
 ***
 
-## Surah Al-Maaida
+## Surah Al-Maaida (The Table)
 
 #### 12 Leaders
 * __Surah 5/12__: [Allah made a covenant with the Children of Israel and appointed twelve leaders from among them and ˹then˺ said, “I am truly with you. If you establish prayer, pay alms-tax, believe in My messengers, support them, and lend to Allah a good loan, I will certainly forgive your sins and admit you into Gardens under which rivers flow. And whoever among you disbelieves afterwards has truly strayed from the Right Way.”](https://quranwbw.com/5/12)
@@ -120,7 +120,7 @@
 
 ***
 
-## Al Araaf
+## Al Araaf (The Heights)
 
 * [7:163] And ask them about the town which stood by the sea; when they exceeded the limits of the Sabbath, when their fish came to them on the day of their Sabbath, appearing on the surface of the water, and on the day on which they did not keep the Sabbath they did not come to them; thus did We try them because they transgressed.
 
@@ -148,13 +148,13 @@
 
 ***
 
-## An Nahl
+## An-Nahl (The Bee)
 
 * [16:124] The Sabbath was ordained only for those who differed about it, and most surely your Lord will judge between them on the resurrection day concerning that about which they differed.
 
 ***
 
-## Al Israa
+## Al-Israa (The Night Journey)
 
 * [17:3] The offspring of those whom We bore with Nuh; surely he was a grateful servant.
 
@@ -170,7 +170,7 @@
 
 ***
 
-## Ad-Dukhaan
+## Ad-Dukhaan (The Smoke)
 
 * [44:32] And certainly We chose them (Bani Israel), having knowledge, above the nations.
 

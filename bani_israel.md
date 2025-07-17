@@ -186,11 +186,11 @@
 
 ***
 
-## Al Jaathiya (Crouching)
+## Al Jaathiya (Crouching) - to bend your knees and lower yourself so that you are close to the ground and leaning forward slightly
 
-* [45:16] And certainly We gave the Book and the wisdom and the prophecy to the children of Israel, and We gave them of the goodly things, and We made them excel the nations.
+* __[45:16]__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16) 
 
-* [45:17] And We gave them clear arguments in the affair, but they did not differ until after knowledge had come to them out of envy among themselves; surely your Lord will judge between them on the day of resurrection concerning that wherein they differed.
+* __[45:17]__: [We ˹also˺ gave them clear commandments regarding ˹their˺ faith. But it was not until knowledge came to them that they differed out of mutual envy.1 Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quran.com/45/17)
 
 ***
 ***

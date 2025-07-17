@@ -102,7 +102,7 @@
 #### 12 Leaders
 * __Surah 5/12__: [Allah made a covenant with the Children of Israel and appointed twelve leaders from among them and ˹then˺ said, “I am truly with you. If you establish prayer, pay alms-tax, believe in My messengers, support them, and lend to Allah a good loan, I will certainly forgive your sins and admit you into Gardens under which rivers flow. And whoever among you disbelieves afterwards has truly strayed from the Right Way.”](https://quranwbw.com/5/12)
 
-* __Surah 5/13__: [But for breaking their covenant We condemned them and hardened their hearts. They distorted the words of the Scripture and neglected a portion of what they had been commanded to uphold. You ˹O Prophet˺ will always find deceit on their part, except for a few. But pardon them and bear with them. Indeed, Allah loves the good-doers.](https://quranwbw.com/5/13)
+* __Surah 5/13 (Always find deceit on their part)__: [But for breaking their covenant We condemned them and hardened their hearts. They distorted the words of the Scripture and neglected a portion of what they had been commanded to uphold. You ˹O Prophet˺ will always find deceit on their part, except for a few. But pardon them and bear with them. Indeed, Allah loves the good-doers.](https://quranwbw.com/5/13)
 
 #### Killed Prophets
 * __Surah 5/70__: [Indeed, We took a covenant from the Children of Israel and sent them messengers. Whenever a messenger came to them with what they did not desire, they denied some and killed others.](https://quranwbw.com/5/70)

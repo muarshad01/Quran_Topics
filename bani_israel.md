@@ -186,7 +186,7 @@
 
 ***
 
-## 45. Al Jaathiya (Crouching)
+### 45. Al Jaathiya (Crouching)
 
 * __45/16__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16) 
 

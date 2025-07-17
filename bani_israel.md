@@ -121,23 +121,24 @@
 ***
 
 ## Al Araaf
+
 * [7:163] And ask them about the town which stood by the sea; when they exceeded the limits of the Sabbath, when their fish came to them on the day of their Sabbath, appearing on the surface of the water, and on the day on which they did not keep the Sabbath they did not come to them; thus did We try them because they transgressed.
 
-[7:164] And when a party of them said: Why do you admonish a with a severe chastisement? They said: To be free from blame before your Lord, and that haply they may guard (against evil).
+* [7:164] And when a party of them said: Why do you admonish a with a severe chastisement? They said: To be free from blame before your Lord, and that haply they may guard (against evil).
 
-[7:165] So when they neglected what they had been reminded of, We delivered those who forbade evil and We overtook those who were unjust with an evil chastisement because they transgressed.
+* [7:165] So when they neglected what they had been reminded of, We delivered those who forbade evil and We overtook those who were unjust with an evil chastisement because they transgressed.
 
-[7:166] Therefore when they revoltingly persisted in what they had been forbidden, We said to them: Be (as) apes, despised and hated.
+* [7:166] Therefore when they revoltingly persisted in what they had been forbidden, We said to them: Be (as) apes, despised and hated.
 
-[7:167] And when your Lord announced that He would certainly send against them to the day of resurrection those who would subject them to severe torment; most surely your Lord is quick to requite (evil) and most surely He is Forgiving, Merciful.
+* [7:167] And when your Lord announced that He would certainly send against them to the day of resurrection those who would subject them to severe torment; most surely your Lord is quick to requite (evil) and most surely He is Forgiving, Merciful.
 
-[7:168] And We cut them up on the earth into parties, (some) of them being righteous and (others) of them falling short of that, and We tried them with blessings and misfortunes that they might turn.
+* [7:168] And We cut them up on the earth into parties, (some) of them being righteous and (others) of them falling short of that, and We tried them with blessings and misfortunes that they might turn.
 
-[7:169] Then there came after them an evil posterity who inherited the Book, taking only the frail good of this low life and saying: It will be for- given us. And if the like good came to them, they would take it (too). Was not a promise taken from them in the Book that they would not speak anything about Allah but the truth, and they have read what is in it; and the abode of the hereafter is better for those who guard (against evil). Do you not then understand?
+* [7:169] Then there came after them an evil posterity who inherited the Book, taking only the frail good of this low life and saying: It will be for- given us. And if the like good came to them, they would take it (too). Was not a promise taken from them in the Book that they would not speak anything about Allah but the truth, and they have read what is in it; and the abode of the hereafter is better for those who guard (against evil). Do you not then understand?
 
-[7:170] And (as for) those who hold fast by the Book and keep up prayer, surely We do not waste the reward of the right doers.
+* [7:170] And (as for) those who hold fast by the Book and keep up prayer, surely We do not waste the reward of the right doers.
 
-[7:171] And when We shook the mountain over them as if it were a covering overhead, and they thought that it was going to fall down upon them: Take hold of what We have given you with firmness, and be mindful of what is in it, so that you may guard (against evil).
+* [7:171] And when We shook the mountain over them as if it were a covering overhead, and they thought that it was going to fall down upon them: Take hold of what We have given you with firmness, and be mindful of what is in it, so that you may guard (against evil).
 
 ***
 
@@ -155,40 +156,41 @@
 
 ## Al Israa
 
-[17:3] The offspring of those whom We bore with Nuh; surely he was a grateful servant.
+* [17:3] The offspring of those whom We bore with Nuh; surely he was a grateful servant.
 
-[17:4] And We had made known to the children of Israel in the Book: Most certainly you will make mischief in the land twice, and most certainly you will behave insolently with great insolence.
+* [17:4] And We had made known to the children of Israel in the Book: Most certainly you will make mischief in the land twice, and most certainly you will behave insolently with great insolence.
 
-[17:5] So when the promise for the first of the two came, We sent over you Our servants, of mighty prowess, so they went to and fro among the houses, and it was a promise to be accomplished.
+* [17:5] So when the promise for the first of the two came, We sent over you Our servants, of mighty prowess, so they went to and fro among the houses, and it was a promise to be accomplished.
 
-[17:6] Then We gave you back the turn to prevail against them, and aided you with wealth and children and made you a numerous band.
+* [17:6] Then We gave you back the turn to prevail against them, and aided you with wealth and children and made you a numerous band.
 
-[17:7] If you do good, you will do good for your own souls, and if you do evil, it shall be for them. So when the second promise came (We raised another people) that they may bring you to grief and that they may enter the mosque as they entered it the first time, and that they might destroy whatever they gained ascendancy over with utter destruction.
+* [17:7] If you do good, you will do good for your own souls, and if you do evil, it shall be for them. So when the second promise came (We raised another people) that they may bring you to grief and that they may enter the mosque as they entered it the first time, and that they might destroy whatever they gained ascendancy over with utter destruction.
 
-[17:8] It may be that your Lord will have mercy on you, and if you again return (to disobedience) We too will return (to punishment), and We have made hell a prison for the unbelievers.
+* [17:8] It may be that your Lord will have mercy on you, and if you again return (to disobedience) We too will return (to punishment), and We have made hell a prison for the unbelievers.
 
 ***
 
 ## Ad-Dukhaan
 
-[44:32] And certainly We chose them (Bani Israel), having knowledge, above the nations.
+* [44:32] And certainly We chose them (Bani Israel), having knowledge, above the nations.
 
-[44:33] And We gave them of the communications wherein was clear blessing.
+* [44:33] And We gave them of the communications wherein was clear blessing.
 
-[44:34] Most surely these do say:
+* [44:34] Most surely these do say:
 
-[44:35] There is naught but our first death and we shall not be raised again.
+* [44:35] There is naught but our first death and we shall not be raised again.
 
-[44:36] So bring our fathers (back), if you are truthful.
+* [44:36] So bring our fathers (back), if you are truthful.
 
-[44:37] Are they better or the people of Tubba and those before them? We destroyed them (Bani Israel), for surely they were guilty.
+* [44:37] Are they better or the people of Tubba and those before them? We destroyed them (Bani Israel), for surely they were guilty.
 
 ***
 
 ## Al Jaathiya (Crouching)
-[45:16] And certainly We gave the Book and the wisdom and the prophecy to the children of Israel, and We gave them of the goodly things, and We made them excel the nations.
 
-[45:17] And We gave them clear arguments in the affair, but they did not differ until after knowledge had come to them out of envy among themselves; surely your Lord will judge between them on the day of resurrection concerning that wherein they differed.
+* [45:16] And certainly We gave the Book and the wisdom and the prophecy to the children of Israel, and We gave them of the goodly things, and We made them excel the nations.
+
+* [45:17] And We gave them clear arguments in the affair, but they did not differ until after knowledge had come to them out of envy among themselves; surely your Lord will judge between them on the day of resurrection concerning that wherein they differed.
 
 ***
 ***

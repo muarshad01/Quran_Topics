@@ -1,4 +1,6 @@
-## [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
+# [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
+
+***
 
 ## Al Baqarah
 
@@ -58,27 +60,28 @@
 
 * __2/73__: [So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.
 ](https://quranwbw.com/2/73)
+
 ***
 
-* __2/74__: []() Then your hearts hardened after that, so that they were like rocks, rather worse in hardness; and surely there are some rocks from which streams burst forth, and surely there are some of them which split asunder so water issues out of them, and surely there are some of them which fall down for fear of Allah, and Allah is not at all heedless of what you do.
+* __2/74 (Your HEARTS become like Stones)__: [Even then your hearts became hardened like a rock or even harder, for some rocks gush rivers; others split, spilling water; while others are humbled in awe of Allah. And Allah is never unaware of what you do.](https://quranwbw.com/2/74) 
 
-* __2/75__: []() Do you then hope that they would believe in you, and a party from among them indeed used to hear the Word of Allah, then altered it after they had understood it, and they know (this).
+* __2/75__: [Do you ˹believers still˺ expect them to be true to you, though a group of them would hear the word of Allah then knowingly corrupt it after understanding it?](https://quranwbw.com/2/75) 
 
-* __2/83__: []() And when We made a covenant with the children of Israel: You shall not serve any but Allah and (you shall do) good to (your) parents, and to the near of kin and to the orphans and the needy, and you shall speak to men good words and keep up prayer and pay the poor-rate. Then you turned back except a few of you and (now too) you turn aside.
+* __2/83__: [And ˹remember˺ when We took a covenant from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.](https://quranwbw.com/2/83) 
 
-* __2/84__: []() And when We made a covenant with you: You shall not shed your blood and you shall not turn your people out of your cities; then you gave a promise while you witnessed.
+* __2/84__: [And ˹remember˺ when We took your covenant that you would neither shed each other’s blood nor expel each other from their homes, you gave your pledge and bore witness.](https://quranwbw.com/2/84) 
 
-* __2/85__: []() Yet you it is who slay your people and turn a party from among you out of their homes, backing each other up against them unlawfully and exceeding the limits; and if they should come to you, as captives you would ransom them, while their very turning out was unlawful for you. Do you then believe in a part of the Book and disbelieve in the other? What then is the re ward of such among you as do this but disgrace in the life of this world, and on the day of resurrection they shall be sent back to the most grievous chastisement, and Allah is not at all heedless of what you do.
+* __2/85__: [But here you are, killing each other and expelling some of your people from their homes, aiding one another in sin and aggression; and when those ˹expelled˺ come to you as captives, you still ransom them—though expelling them was unlawful for you.1 Do you believe in some of the Scripture and reject the rest? Is there any reward for those who do so among you other than disgrace in this worldly life and being subjected to the harshest punishment on the Day of Judgment? For Allah is never unaware of what you do.](https://quranwbw.com/2/85) 
 
-* __2/92__: []() And most certainly Musa came to you with clear arguments, then you took the calf (for a god) in his absence and you were unjust.
+* __2/92__: [Indeed, Moses came to you with clear proofs, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/92) 
 
-* __2/93__: []() And when We made a covenant with you and raised the mountain over you: Take hold of what We have given you with firmness and be obedient. They said: We hear and disobey. And they were made to imbibe (the love of) the calf into their hearts on account of their unbelief Say: Evil is that which your belief bids you if you are believers.
+* __2/93__: [And when We took your covenant and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and obey,” they answered, “We hear and disobey.” The love of the calf was rooted in their hearts because of their disbelief. Say, ˹O Prophet,˺ “How evil is what your ˹so-called˺ belief prompts you to do, if you ˹actually˺ believe ˹in the Torah˺!”](https://quranwbw.com/2/93) 
 
-* __2/94__: []() Say: If the future abode with Allah is especially for you to the exclusion of the people, then invoke death if you are truthful.
+* __2/94__: [Say, ˹O Prophet,˺ “If the ˹eternal˺ Home of the Hereafter with Allah is exclusively for you ˹Israelites˺ out of all humanity, then wish for death if what you say is true!”](https://quranwbw.com/2/94) 
 
-* __2/95__: []() And they will never invoke it on account of what their hands have sent before, and Allah knows the unjust.
+* __2/95__: [But they will never wish for that because of what their hands have done.1 And Allah has ˹perfect˺ knowledge of the wrongdoers.](https://quranwbw.com/2/95) 
 
-* __2/96__: []() And you will most certainly find them the greediest of men for life (greedier) than even those who are polytheists; every one of them loves that he should be granted a life of a thousand years, and his being granted a long life will in no way remove him further off from the chastisement, and Allah sees what they do.
+* __2/96__: [You will surely find them clinging to life more eagerly than any other people, even more than polytheists. Each one of them wishes to live a thousand years. But even if they were to live that long, it would not save them from the punishment. And Allah is All-Seeing of what they do.](https://quranwbw.com/2/96) 
 
 * __2/111 (claim only Jews and Christins with enter Paradise)__: [The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.”](https://quranwbw.com/2/111)
   

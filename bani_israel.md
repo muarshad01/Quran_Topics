@@ -87,10 +87,9 @@
 ## Surah An-Nisaa
 
 ### Wanted to See Allah SWT
-* __Surah 4/153__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
+* __Surah 4/153 (Bring us in Writing from Allah SWT)__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
 
-### Raised Mountain
-* __Surah 4/154__: [We raised the Mount over them ˹as a warning˺ for ˹breaking˺ their covenant and said, “Enter the gate ˹of Jerusalem˺ with humility.” We also warned them, “Do not break the Sabbath,” and took from them a firm covenant.](https://quranwbw.com/4/153)
+* __Surah 4/154 (Raised Mountain )__: [We raised the Mount over them ˹as a warning˺ for ˹breaking˺ their covenant and said, “Enter the gate ˹of Jerusalem˺ with humility.” We also warned them, “Do not break the Sabbath,” and took from them a firm covenant.](https://quranwbw.com/4/153)
 
 * __Surah 4/155__: [˹They were condemned˺ for breaking their covenant, rejecting Allah’s signs, killing the prophets unjustly, and for saying, “Our hearts are unreceptive!”—it is Allah Who has sealed their hearts for their disbelief, so they do not believe except for a few—](https://quranwbw.com/4/154)
 

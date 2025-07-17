@@ -143,14 +143,12 @@
 ***
 
 ## Yunus (Jonas)
-
-* [10:93] And certainly We lodged the children of Israel in a goodly abode and We provided them with good things; but they did not disagree until the knowledge had come to them; surely your Lord will judge between them on the resurrection day concerning that in which they disagreed.
+* __10/93__: [Indeed, We settled the Children of Israel in a blessed land, and granted them good, lawful provisions. They did not differ until knowledge came to them.2 Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quranwbw.com/10/93)
 
 ***
 
 ## An-Nahl (The Bee)
-
-* [16:124] The Sabbath was ordained only for those who differed about it, and most surely your Lord will judge between them on the resurrection day concerning that about which they differed.
+* __16/124 (Sabbath)__: [˹Honouring˺ the Sabbath was ordained only for those who disputed about Abraham.1 And surely your Lord will judge between them on the Day of Judgment regarding their disputes.](https://quranwbw.com/16/124)
 
 ***
 

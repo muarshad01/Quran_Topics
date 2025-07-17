@@ -176,13 +176,13 @@
 
 * __44/33__: [And We showed them signs in which there was a clear test.](https://quranwbw.com/44/33) 
 
-* [44:34] Most surely these do say:
+* __44/34__: [Indeed, these ˹Meccans˺ say,](https://quranwbw.com/44/34) Most surely these do say:
 
-* [44:35] There is naught but our first death and we shall not be raised again.
+* __44/35__: [](https://quranwbw.com/44/35)There is naught but our first death and we shall not be raised again.
 
-* [44:36] So bring our fathers (back), if you are truthful.
+* __44/36__: [](https://quranwbw.com/44/36)So bring our fathers (back), if you are truthful.
 
-* [44:37] Are they better or the people of Tubba and those before them? We destroyed them (Bani Israel), for surely they were guilty.
+* __44/37__: [](https://quranwbw.com/44/37) Are they better or the people of Tubba and those before them? We destroyed them (Bani Israel), for surely they were guilty.
 
 ***
 

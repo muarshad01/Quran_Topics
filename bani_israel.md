@@ -186,11 +186,11 @@
 
 ***
 
-## Al Jaathiya (Crouching) - to bend your knees and lower yourself so that you are close to the ground and leaning forward slightly
+## 45. Al Jaathiya (Crouching)
 
-* __[45:16]__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16) 
+* __45/16__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16) 
 
-* __[45:17]__: [We ˹also˺ gave them clear commandments regarding ˹their˺ faith. But it was not until knowledge came to them that they differed out of mutual envy.1 Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quran.com/45/17)
+* __45/17__: [We ˹also˺ gave them clear commandments regarding ˹their˺ faith. But it was not until knowledge came to them that they differed out of mutual envy.1 Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quran.com/45/17)
 
 ***
 ***

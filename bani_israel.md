@@ -77,11 +77,11 @@
 
 * __2/93__: [And when We took your covenant and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and obey,” they answered, “We hear and disobey.” The love of the calf was rooted in their hearts because of their disbelief. Say, ˹O Prophet,˺ “How evil is what your ˹so-called˺ belief prompts you to do, if you ˹actually˺ believe ˹in the Torah˺!”](https://quranwbw.com/2/93) 
 
-* __2/94__: [Say, ˹O Prophet,˺ “If the ˹eternal˺ Home of the Hereafter with Allah is exclusively for you ˹Israelites˺ out of all humanity, then wish for death if what you say is true!”](https://quranwbw.com/2/94) 
+* __2/94 (Ask them to Wish for Death)__: [Say, ˹O Prophet,˺ “If the ˹eternal˺ Home of the Hereafter with Allah is exclusively for you ˹Israelites˺ out of all humanity, then wish for death if what you say is true!”](https://quranwbw.com/2/94) 
 
-* __2/95__: [But they will never wish for that because of what their hands have done.1 And Allah has ˹perfect˺ knowledge of the wrongdoers.](https://quranwbw.com/2/95) 
+* __2/95 (They'll never Wish for Death)__: [But they will never wish for that because of what their hands have done.1 And Allah has ˹perfect˺ knowledge of the wrongdoers.](https://quranwbw.com/2/95) 
 
-* __2/96__: [You will surely find them clinging to life more eagerly than any other people, even more than polytheists. Each one of them wishes to live a thousand years. But even if they were to live that long, it would not save them from the punishment. And Allah is All-Seeing of what they do.](https://quranwbw.com/2/96) 
+* __2/96 (Wish to live 1,000 years)__: [You will surely find them clinging to life more eagerly than any other people, even more than polytheists. Each one of them wishes to live a thousand years. But even if they were to live that long, it would not save them from the punishment. And Allah is All-Seeing of what they do.](https://quranwbw.com/2/96) 
 
 * __2/111 (claim only Jews and Christins with enter Paradise)__: [The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.”](https://quranwbw.com/2/111)
   

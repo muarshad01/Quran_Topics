@@ -34,3 +34,5 @@
 *** 
 
 * __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.]()
+
+* quran.com/18/65

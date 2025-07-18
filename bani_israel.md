@@ -226,6 +226,7 @@
 
 #### [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
 * When Prophet PBUH comes, accept Him. I'll give you double reward!
+* __Surah Al-Qasas 28/54__: [Double Reward](https://quranwbw.com/28/54)
 
 ***
   

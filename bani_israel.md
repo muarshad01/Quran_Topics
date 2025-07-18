@@ -96,7 +96,10 @@
 
 * __2/243 (Die!!! Which Incident is this???)__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death? Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
 
-* __2/247-252 (Talut (Saul) and Jalut (Goliath))__: [...](https://quran.com/2/247-252)
+***
+
+### Talut (Saul) and Jalut (Goliath)
+* __2/247-252__: [...](https://quran.com/2/247-252)
   * Ark of the Covenant (Taboot-e-Sakina)
   * Relices from Prophet Mosa and Haroon AS
 

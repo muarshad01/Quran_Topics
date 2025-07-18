@@ -1,7 +1,7 @@
 # [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
-1. Ibrahim -> Ishaq (Issac) -> Yaqob (Jacob) [Israel]-> Yusuf (Joseph)
-2. Talut (Saul) -> Dawood (David) AS son Sulayman (Soloman) AS established First Temple
+1. Ibrahim -- Ishaq (Issac) -- Yaqob (Jacob) [Israel]-- Yusuf (Joseph)
+2. Talut (Saul) -- Dawood (David) AS son Sulayman (Soloman) AS, established First Temple
 3. Musa (Moses) / Haroon (Aaron) AS --to-- Issa AS = 1400 years
 4. Issa AS --to-- Muhammad PBUH = 1400 years
 

@@ -226,6 +226,7 @@
 ***
 
 #### [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
+* https://quranwbw.com/2/61
 
 ***
 

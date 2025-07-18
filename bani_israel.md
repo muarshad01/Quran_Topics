@@ -112,6 +112,8 @@
 
 * __Surah 4/156__: [and for their denial and outrageous accusation against Mary,](https://quranwbw.com/4/155)
 
+* __Surah 2/247-252 (Talut and Jalut)__: [](https://quran.com/2/247-252)
+
 ***
 
 ## Surah Al-Maaida (The Table)

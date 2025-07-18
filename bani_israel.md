@@ -1,5 +1,10 @@
 # [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
+1. Ibrahim -> Ishaq (Issac) -> Yaqoob (Jacob) [Israel]->
+2. Talut (Saul) -> Dawood (David) AS son Sulayman (Soloman) AS
+3. Musa (Moses) / Haroom (Aaron) AS --to-- Issa AS = 1400 years
+4. Issa AS --to-- Muhammad PBUH = 1400 years
+
 ***
 
 ## Al Baqarah

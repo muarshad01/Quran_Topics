@@ -91,28 +91,28 @@
 
 * __2/243 (Die!!! Which Incident is this???)__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death? Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
 
+* __2/247-252 (Talut (Saul) and Jalut (Goliath))__: [...](https://quran.com/2/247-252)
+
 ***
 
 ## Surah Aal-i-Imran
 
-* __Surah 3/93 (They made food unlawful to them)__: [All food was lawful for the children of Israel, except what Israel made unlawful for himself before the Torah was revealed. Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
+* __3/93 (They made food unlawful to them)__: [All food was lawful for the children of Israel, except what Israel made unlawful for himself before the Torah was revealed. Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
 
-* __Surah 3/94__: [Then whoever still fabricates lies about Allah, they will be the ˹true˺ wrongdoers.](https://quranwbw.com/3/94)
+* __3/94__: [Then whoever still fabricates lies about Allah, they will be the ˹true˺ wrongdoers.](https://quranwbw.com/3/94)
 
 ***
 
 ## Surah An-Nisaa
 
 ### Wanted to See Allah SWT
-* __Surah 4/153 (Bring us in Writing from Allah SWT)__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
+* __4/153 (Bring us in Writing from Allah SWT)__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
 
-* __Surah 4/154 (Raised Mountain )__: [We raised the Mount over them ˹as a warning˺ for ˹breaking˺ their covenant and said, “Enter the gate ˹of Jerusalem˺ with humility.” We also warned them, “Do not break the Sabbath,” and took from them a firm covenant.](https://quranwbw.com/4/153)
+* __4/154 (Raised Mountain )__: [We raised the Mount over them ˹as a warning˺ for ˹breaking˺ their covenant and said, “Enter the gate ˹of Jerusalem˺ with humility.” We also warned them, “Do not break the Sabbath,” and took from them a firm covenant.](https://quranwbw.com/4/153)
 
-* __Surah 4/155 (Kill the Prophets)__: [˹They were condemned˺ for breaking their covenant, rejecting Allah’s signs, killing the prophets unjustly, and for saying, “Our hearts are unreceptive!”—it is Allah Who has sealed their hearts for their disbelief, so they do not believe except for a few—](https://quranwbw.com/4/154)
+* __4/155 (Kill the Prophets)__: [˹They were condemned˺ for breaking their covenant, rejecting Allah’s signs, killing the prophets unjustly, and for saying, “Our hearts are unreceptive!”—it is Allah Who has sealed their hearts for their disbelief, so they do not believe except for a few—](https://quranwbw.com/4/154)
 
-* __Surah 4/156__: [and for their denial and outrageous accusation against Mary,](https://quranwbw.com/4/155)
-
-* __Surah 2/247-252 (Talut and Jalut)__: [](https://quran.com/2/247-252)
+* __4/156__: [and for their denial and outrageous accusation against Mary,](https://quranwbw.com/4/155)
 
 ***
 
@@ -124,17 +124,17 @@
 * __Surah 5/13 (Always find deceit on their part)__: [But for breaking their covenant We condemned them and hardened their hearts. They distorted the words of the Scripture and neglected a portion of what they had been commanded to uphold. You ˹O Prophet˺ will always find deceit on their part, except for a few. But pardon them and bear with them. Indeed, Allah loves the good-doers.](https://quranwbw.com/5/13)
 
 #### Killed Prophets
-* __Surah 5/70__: [Indeed, We took a covenant from the Children of Israel and sent them messengers. Whenever a messenger came to them with what they did not desire, they denied some and killed others.](https://quranwbw.com/5/70)
+* __5/70__: [Indeed, We took a covenant from the Children of Israel and sent them messengers. Whenever a messenger came to them with what they did not desire, they denied some and killed others.](https://quranwbw.com/5/70)
 
-* __Surah 5/71__: [They thought there would be no consequences, so they turned a blind eye and a deaf ear. Yet Allah turned to them in forgiveness ˹after their repentance˺, but again many became blind and deaf. And Allah is All-Seeing of what they do.](https://quranwbw.com/5/71)
+* __5/71__: [They thought there would be no consequences, so they turned a blind eye and a deaf ear. Yet Allah turned to them in forgiveness ˹after their repentance˺, but again many became blind and deaf. And Allah is All-Seeing of what they do.](https://quranwbw.com/5/71)
 
-* __Surah 5/78 (The are Cursed)__: [The disbelievers among the Children of Israel were condemned in the revelations of David and Jesus, son of Mary. That was for their disobedience and violations.](https://quranwbw.com/5/78)
+* __5/78 (The are Cursed)__: [The disbelievers among the Children of Israel were condemned in the revelations of David and Jesus, son of Mary. That was for their disobedience and violations.](https://quranwbw.com/5/78)
 
-* __Surah 5/79__: [They did not forbid one another from doing evil. Evil indeed was what they did!](https://quranwbw.com/5/79)
+* __5/79__: [They did not forbid one another from doing evil. Evil indeed was what they did!](https://quranwbw.com/5/79)
 
-* __Surah 5/80 (They've earned Allah’s Wrath!)__: [You see many of them taking the disbelievers as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
+* __5/80 (They've earned Allah’s Wrath!)__: [You see many of them taking the disbelievers as allies. Truly wicked are their misdeeds, which have earned them Allah’s wrath. And they will be in everlasting torment.](https://quranwbw.com/5/80)
 
-* __Surah 5/81 (They take Pagans as Allies)__: [Had they believed in Allah, the Prophet, and what has been revealed to him, they would have never taken those ˹pagans˺ as allies. But most of them are rebellious.](https://quranwbw.com/5/81)
+* __5/81 (They take Pagans as Allies)__: [Had they believed in Allah, the Prophet, and what has been revealed to him, they would have never taken those ˹pagans˺ as allies. But most of them are rebellious.](https://quranwbw.com/5/81)
 
 ***
 

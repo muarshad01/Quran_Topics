@@ -259,6 +259,12 @@
 
 ***
 
+#### Muslims
+* You can't change a word in Quran
+* We have Imam of ALL Nabi
+
+***
+
 * https://www.youtube.com/shorts/XKrGOQ0tO9Y
 
 ***

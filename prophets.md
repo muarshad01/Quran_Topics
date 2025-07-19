@@ -8,7 +8,7 @@
 04. Hud (Heber)
 05. Saleh (Methusaleh)
 06. Lut (Lot)
-07. __Ibrahim (Abraham)__
+07. __[Ibrahim (Abraham)}(https://myislam.org/quran-verses/prophet-ibrahim/)__
 08. Ismail (Ishmael)
 09. Ishaq (Isaac)
 10. Yaqub (Jacob) [Israel]

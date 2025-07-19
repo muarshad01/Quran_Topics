@@ -3,8 +3,8 @@
 
 ***
 
-* 01: Adam
-* 02. Idris (Enoch)
+* 1: Adam
+* 02: Idris (Enoch)
 * 03. __Nuh (Noah)__
 * 04. Hud (Heber)
 * 05. Saleh (Methusaleh)

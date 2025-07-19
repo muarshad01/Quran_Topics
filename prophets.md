@@ -3,7 +3,7 @@
 
 ***
 
-* 01. Adam
+* 01: Adam
 * 02. Idris (Enoch)
 * 03. __Nuh (Noah)__
 * 04. Hud (Heber)

@@ -253,8 +253,8 @@
 
 ## [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)
 * Made Monkeys & Swine (Sabath)
-* 6 tribes fought against 6 other tribes
 * Killed Prophets morning / evening
+* 6 tribes fought against 6 other tribes
 * Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
 
 ***

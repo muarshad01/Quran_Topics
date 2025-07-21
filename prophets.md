@@ -3,15 +3,15 @@
 
 ***
 
-* 1 - Adam
-* 2 - Idris (Enoch)
-* 3 - __Nuh (Noah)__
-* 4 -  Hud (Heber)
-* 5 -  Saleh (Methusaleh)
-* 6 -  Lut (Lot)
-* 7 -  __[Ibrahim (Abraham)](https://myislam.org/quran-verses/prophet-ibrahim/)__
-* 8 -  Ismail (Ishmael)
-* 9 -  Ishaq (Isaac)
+*  1 - Adam
+*  2 - Idris (Enoch)
+*  3 - __Nuh (Noah)__: Surah 71
+*  4 -  Hud (Heber)
+*  5 -  Saleh (Methusaleh)
+*  6 -  Lut (Lot)
+*  7 -  __[Ibrahim (Abraham)](https://myislam.org/quran-verses/prophet-ibrahim/)__: Surah 14
+*  8 -  Ismail (Ishmael)
+*  9 -  Ishaq (Isaac)
 * 10 -  Yaqub (Jacob) [Israel]
 * 11 -  Yusuf (Joseph)
 * 12 -  Shu’aib (Jethro)
@@ -19,6 +19,7 @@
 * 14 -  Dhulkifl (Ezekiel)
 * 15 -  __Musa (Moses)__
 * 16 -  Harun (Aaron)
+* 17 -  Talut (Soul)
 * 17 -  Dawud (David)
 * 18 -  Sulayman (Solomon)
 * 19 -  Ilyas (Elias)
@@ -26,6 +27,7 @@
 * 21 -  Yunus (Jonah)
 * 22 -  Zakariya (Zachariah)
 * 23 -  Yahya (John the Baptist)
-* 24 -  __Isa (Jesus)__
-* 25 -  __Muhammad PBUH__
+* 24 -  __Isa (Jesus)__: 
+* 25 -  __Muhammad PBUH__: Surah 47
+
 ***

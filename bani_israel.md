@@ -1,13 +1,13 @@
 # [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
 1. Ibrahim (Abraham) -- Ishaq (Issac) -- Yaqoob (Jacob) [Israel]-- Yusuf (Joseph)
-2. Musa (Moses) / Haroon (Aaron) AS -to- Issa AS = 1400 years
-3. [248] Talut (Saul) -- Dawood (David) AS son Sulayman (Soloman) AS, established First Temple (1,000 BC)
-4. Issa AS -to- Muhammad PBUH = 1400 years
+2. Musa (Moses) / Haroon (Aaron) AS -to- Issa AS = 1,400 years
+3. [248] Talut (Saul) -- Dawood (David) AS -- Sulayman (Soloman) - about 100 years
+4. Issa AS -to- Muhammad PBUH = 1,400 years
 
 ***
 
-## Al Baqarah
+## Al-Baqarah
 
 * __2/40 (Fulfill My Covenant)__: [O children of Israel!1 Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
 

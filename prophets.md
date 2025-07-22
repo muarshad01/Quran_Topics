@@ -5,7 +5,7 @@
 
 *  1 - Adam
 *  2 - Idris (Enoch)
-*  3 - __Nuh (Noah)__: Surah 71
+*  3 - __Nuh (Noah)__: Surah 71; 17/3 (abdan shakooraa)
 *  4 -  Hud (Heber)
 *  5 -  Saleh (Methusaleh)
 *  6 -  Lut (Lot)

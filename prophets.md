@@ -20,14 +20,14 @@
 * 15 -  __Musa (Moses)__
 * 16 -  Harun (Aaron)
 * 17 -  Talut (Soul)
-* 17 -  Dawud (David)
-* 18 -  Sulayman (Solomon)
-* 19 -  Ilyas (Elias)
-* 20 -  Alyasa (Elisha)
-* 21 -  Yunus (Jonah)
-* 22 -  Zakariya (Zachariah)
-* 23 -  Yahya (John the Baptist)
-* 24 -  __Isa (Jesus)__: 
-* 25 -  __Muhammad PBUH__: Surah 47
+* 18 -  Dawud (David)
+* 19 -  Sulayman (Solomon)
+* 20 -  Ilyas (Elias)
+* 21 -  Alyasa (Elisha)
+* 22 -  Yunus (Jonah)
+* 23 -  Zakariya (Zachariah)
+* 24 -  Yahya (John the Baptist)
+* 25 -  __Isa (Jesus)__: 
+* 26 -  __Muhammad PBUH__: Surah 47
 
 ***

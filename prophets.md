@@ -9,7 +9,7 @@
 *  4 -  Hud (Heber)
 *  5 -  Saleh (Methusaleh)
 *  6 -  Lut (Lot)
-*  7 -  __[Ibrahim (Abraham)](https://myislam.org/quran-verses/prophet-ibrahim/)__: Surah 14
+*  7 -  __[Ibrahim (Abraham)](https://myislam.org/quran-verses/prophet-ibrahim/)__: Surah 14/52
 *  8 -  Ismail (Ishmael)
 *  9 -  Ishaq (Isaac)
 * 10 -  Yaqub (Jacob) [Israel]

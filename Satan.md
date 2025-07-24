@@ -207,6 +207,6 @@
 
 *** 
 
-* __Surah Al-Mulk 67/5__: [And indeed, We adorned the lowest heaven with ˹stars like˺ lamps, and made them ˹as missiles˺ for stoning ˹eavesdropping˺ devils, for whom We have also prepared the torment of the Blaze.1 ](https://quran.com/67/5)
+* __Surah Al-Mulk 67/5__: [And indeed, We adorned the lowest heaven with ˹stars like˺ lamps, and made them ˹as missiles˺ for stoning ˹eavesdropping˺ devils, for whom We have also prepared the torment of the Blaze.1 ](https://quranwbw.com/67/5)
 
 ***

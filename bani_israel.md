@@ -239,6 +239,10 @@
 * __Surah Al-Qasas 28/54__: [Double Reward](https://quranwbw.com/28/54)
 
 ***
+
+#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=117s)
+
+***
   
 ### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
 

@@ -39,9 +39,6 @@
 * __Surah Al-Anam Ayat 43__: []()
 * __Surah Al-Anam Ayat 68__: []()
 * __Surah Al-Anam Ayat 71__: []()
-
-***
-
 * __Surah Al-Anam Ayat 112__: []()
 * __Surah Al-Anam Ayat 121__: []()
 * __Surah Al-Anam Ayat 142__: []()
@@ -50,12 +47,12 @@
 ***
 
 * __Surah Al-A'raf Ayat 11__: []()
+* * __Surah Al-A'raf Ayat 12-13__: []()
 * __Surah Al-A'raf Ayat 20__: []()
 * __Surah Al-A'raf Ayat 22__: []()
 * __Surah Al-A'raf Ayat 27__: []()
 * __Surah Al-A'raf Ayat 30__: []()
 * __Surah Al-A'raf Ayat 175__: []()
-* __Surah Al-A'raf Ayat 12-13__: []()
 * __Surah Al-A'raf Ayat 179__: []()
 * __Surah Al-A'raf Ayat 200__: []()
 * __Surah Al-A'raf Ayat 201__: []()
@@ -74,6 +71,9 @@
 ***
 
 * __Surah Ibrahim Ayat 22__: []()
+
+*** 
+
 * __Surah Al-Hijr Ayat 17__: []()
 * __Surah Al-Hijr Ayat 14-15__: []()
 * __Surah Al-Hijr Ayat 40-42__: []()
@@ -81,9 +81,6 @@
 ***
 
 * __Surah An-Nahl Ayat 63__: []()
-
-***
-
 * __Surah An-Nahl Ayat 98__: []()
 
 ***
@@ -95,9 +92,6 @@
 ***
 
 * __Surah Al-Kahf Ayat 63__: []()
-
-***
-
 * __Surah Al-Kahf Ayat 50-51__: []()
 
 ***

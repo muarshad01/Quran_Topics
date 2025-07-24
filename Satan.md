@@ -184,30 +184,29 @@
 
 *** 
 
-* __Surah Muhammad Ayat 25__: []()
+* __Surah Muhammad 47/ 25__: [Indeed, those who relapse ˹into disbelief˺ after ˹true˺ guidance has become clear to them, ˹it is˺ Satan ˹that˺ has tempted them, luring them with false hopes.(https://quranwbw.com/47/25)
 
 *** 
 
-* __Surah Qaf Ayat 27-29__: []()
+* __Surah Qaf 50/ 27-29__: [One’s ˹devilish˺ associate will say, “Our Lord! I did not make them transgress. Rather, they were far astray ˹on their own˺.” Allah will respond, “Do not dispute in My presence, since I had already given you a warning. My Word cannot be changed, nor am I unjust to ˹My˺ creation.”](https://quran.com/50/27-29)
 
 *** 
 
-* __Surah An-Najm Ayat 19–20__: []()
+* __Surah An-Najm Ayat 19–20__: [Now, have you considered ˹the idols of˺ Lât and ’Uzza, and the third one, Manât, as well?](https://quran.com/53/19-20)
 
 *** 
 
-* __Surah Al-Mujadila Ayat 10__: []()
-
-***
-
-* __Surah Al-Mujadila Ayat 19__: []()
+###  Al-Mujadila: The Pleading Woman
+* __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quran.com/58/10)
+* __Surah Al-Mujadila 58/19__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quran.com/58/19)
 
 *** 
 
-* __Surah Al-Hashr Ayat 16__: []()
+### The Exile
+* __Surah Al-Hashr 59/16__: [˹They are˺ like Satan when he lures someone to disbelieve. Then after they have done so, he will say ˹on Judgment Day˺, “I have absolutely nothing to do with you. I truly fear Allah—the Lord of all worlds.”](https://quran.com/59/16)
 
 *** 
 
-* __Surah Al-Mulk Ayat 5__: []()
+* __Surah Al-Mulk 67/5__: [And indeed, We adorned the lowest heaven with ˹stars like˺ lamps, and made them ˹as missiles˺ for stoning ˹eavesdropping˺ devils, for whom We have also prepared the torment of the Blaze.1 ](https://quran.com/67/5)
 
 ***

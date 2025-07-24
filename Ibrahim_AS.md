@@ -3,29 +3,29 @@ https://myislam.org/quran-verses/prophet-ibrahim/
 
 ***
 
-Surah Al-Baqarah Ayat 71
-Surah Al-Baqarah Ayat 124
-Surah Al-Baqarah Ayat 125
-Surah Al-Baqarah Ayat 126
-Surah Al-Baqarah Ayat 127
-Surah Al-Baqarah Ayat 128
-Surah Al-Baqarah Ayat 130
-Surah Al-Baqarah Ayat 132
-Surah Al-Baqarah Ayat 133
-Surah Al-Baqarah Ayat 135
-Surah Al-Baqarah Ayat 140
-Surah Al-Baqarah Ayat 258
-Surah Al-Baqarah Ayat 260
-Surah Al-Baqarah Ayat 261
-Surah Al-Baqarah Ayat 263
-Surah Al-Baqarah Ayat 264
-Surah Al-Baqarah Ayat 268
-Surah Al-Baqarah Ayat 269
-Surah Al-Baqarah Ayat 270
-Surah Al-Baqarah Ayat 273
-Surah Al-Baqarah Ayat 282
-Surah Al-Baqarah Ayat 285
-Surah Al-Baqarah Ayat 286
+* __Surah Al-Baqarah Ayat 71
+* __Surah Al-Baqarah Ayat 124
+* __Surah Al-Baqarah Ayat 125
+* __Surah Al-Baqarah Ayat 126
+* __Surah Al-Baqarah Ayat 127
+* __Surah Al-Baqarah Ayat 128
+* __Surah Al-Baqarah Ayat 130
+* __Surah Al-Baqarah Ayat 132
+* __Surah Al-Baqarah Ayat 133
+* __Surah Al-Baqarah Ayat 135
+* __Surah Al-Baqarah Ayat 140
+* __Surah Al-Baqarah Ayat 258
+* __Surah Al-Baqarah Ayat 260
+* __Surah Al-Baqarah Ayat 261
+* __Surah Al-Baqarah Ayat 263
+* __Surah Al-Baqarah Ayat 264
+* __Surah Al-Baqarah Ayat 268
+* __Surah Al-Baqarah Ayat 269
+* __Surah Al-Baqarah Ayat 270
+* __Surah Al-Baqarah Ayat 273
+* __Surah Al-Baqarah Ayat 282
+* __Surah Al-Baqarah Ayat 285
+* __Surah Al-Baqarah Ayat 286
 
 ***
 

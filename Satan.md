@@ -184,7 +184,7 @@
 
 *** 
 
-* __Surah Muhammad 47/ 25__: [Indeed, those who relapse ˹into disbelief˺ after ˹true˺ guidance has become clear to them, ˹it is˺ Satan ˹that˺ has tempted them, luring them with false hopes.(https://quranwbw.com/47/25)
+* __Surah Muhammad 47/ 25__: [Indeed, those who relapse ˹into disbelief˺ after ˹true˺ guidance has become clear to them, ˹it is˺ Satan ˹that˺ has tempted them, luring them with false hopes.](https://quranwbw.com/47/25)
 
 *** 
 

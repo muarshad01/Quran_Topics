@@ -15,9 +15,9 @@
 
 ***
 
-* __Surah Al-Imran Ayat 36__: []()
-* __Surah Al-Imran Ayat 155__: []()
-* __Surah Al-Imran Ayat 175__: []()
+* __Surah Al-Imran 3/36__: [When she delivered, she said, “My Lord! I have given birth to a girl,”—and Allah fully knew what she had delivered—“and the male is not like the female.1 I have named her Mary, and I seek Your protection for her and her offspring from Satan, the accursed.”](https://quranwbw.com/3/36)
+* __Surah Al-Imran 3/155__: [Indeed, those ˹believers˺ who fled on the day when the two armies met were made to slip by Satan because of their misdeeds. But Allah has pardoned them. Surely Allah is All-Forgiving, Most Forbearing.](https://quranwbw.com/3/155)
+* __Surah Al-Imran 3/175__: [That ˹warning˺ was only ˹from˺ Satan, trying to prompt you to fear his followers.1 So do not fear them; fear Me if you are ˹true˺ believers.](https://quranwbw.com/3/175)
 
 ***
 

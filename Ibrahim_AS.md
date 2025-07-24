@@ -453,57 +453,7 @@ And [of] Abraham, who fulfilled [his obligations] –
 Read Tafseer
 expand_more
 Surah Al-Hadid Ayat 26
-73
-وَلَقَدۡ أَرۡسَلۡنَا نُوحٗا وَإِبۡرَٰهِيمَ وَجَعَلۡنَا فِي ذُرِّيَّتِهِمَا ٱلنُّبُوَّةَ وَٱلۡكِتَٰبَۖ فَمِنۡهُم مُّهۡتَدٖۖ وَكَثِيرٞ مِّنۡهُمۡ فَٰسِقُونَ
-play_arrow
-share
-Wa laqad arsalnaa Noohanw wa Ibraaheema wa ja’alnaa fee zurriyyatihiman nubuwwata wal Kitaaba faminhum muhtad; wa kaseerum minhum faasiqoon
-And We have already sent Noah and Abraham and placed in their descendants prophethood and scripture; and among them is he who is guided, but many of them are defiantly disobedient.
-Read Tafseer
-expand_more
-Surah Al-Mumtahanah Ayat 4
-74
-قَدۡ كَانَتۡ لَكُمۡ أُسۡوَةٌ حَسَنَةٞ فِيٓ إِبۡرَٰهِيمَ وَٱلَّذِينَ مَعَهُۥٓ إِذۡ قَالُواْ لِقَوۡمِهِمۡ إِنَّا بُرَءَـٰٓؤُاْ مِنكُمۡ وَمِمَّا تَعۡبُدُونَ مِن دُونِ ٱللَّهِ كَفَرۡنَا بِكُمۡ وَبَدَا بَيۡنَنَا وَبَيۡنَكُمُ ٱلۡعَدَٰوَةُ وَٱلۡبَغۡضَآءُ أَبَدًا حَتَّىٰ تُؤۡمِنُواْ بِٱللَّهِ وَحۡدَهُۥٓ إِلَّا قَوۡلَ إِبۡرَٰهِيمَ لِأَبِيهِ لَأَسۡتَغۡفِرَنَّ لَكَ وَمَآ أَمۡلِكُ لَكَ مِنَ ٱللَّهِ مِن شَيۡءٖۖ رَّبَّنَا عَلَيۡكَ تَوَكَّلۡنَا وَإِلَيۡكَ أَنَبۡنَا وَإِلَيۡكَ ٱلۡمَصِيرُ
-play_arrow
-share
-Qad kaanat lakum uswatun hasanatun feee Ibraaheema wallazeena ma’ahoo iz qaaloo liqawmihim innaa bura ‘aaa’u minkum wa mimmaa ta’budoona min doonil laahi kafarnaa bikum wa badaa bainanaa wa bainakumul ‘adaawatu wal baghdaaa’u abadan hattaa tu’minoo billaahi wahdahooo illaa qawla Ibraheema li abeehi la astaghfiranna laka wa maaa amliku laka minal laahi min shai; rabbanaa ‘alaika tawakkalnaa wa ilaika anabnaa wa ilaikal maseer
-There has already been for you an excellent pattern in Abraham and those with him, when they said to their people, "Indeed, we are disassociated from you and from whatever you worship other than Allah. We have denied you, and there has appeared between us and you animosity and hatred forever until you believe in Allah alone" except for the saying of Abraham to his father, "I will surely ask forgiveness for you, but I have not [power to do] for you anything against Allah. Our Lord, upon You we have relied, and to You we have returned, and to You is the destination.
-Read Tafseer
-expand_more
 Surah Al-Ala Ayat 19
-75
-صُحُفِ إِبۡرَٰهِيمَ وَمُوسَىٰ
-play_arrow
-share
-Suhufi Ibraaheema wa Moosaa
-The scriptures of Abraham and Moses.
-Read Tafseer
-expand_more
-Back to Qur’an Verses
 
-MY ISLAM
-
-© My Islam. All Rights Reserved.
-Support the site
-my islam youtube channel
-
-my islam twitter
-
-Instagram channel
-Quick Links:
-Online Quran
-Qibla Direction
-Tasbih Counter
-Islamic Dictionary
-Hisnul Muslim Du’as
-Prayer Times Online
-Dua Center
-99 Names of Allah
-Islamic Teachings
-Prophet Stories
-Islamic Games & Quizzes
-Companion Series
-Explore Qur’an By Topic
-Contact Us
-
-Complete your gift to make an impact
+***
+صُحُفِ إِبۡرَٰهِيمَ وَمُوسَ

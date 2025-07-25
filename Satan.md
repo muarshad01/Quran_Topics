@@ -92,8 +92,8 @@
 
 ***
 
-* __Surah Al-Kahf Ayat 63__: []()
-* __Surah Al-Kahf Ayat 50-51__: []()
+* __Surah Al-Kahf 18/63__: [He replied, “Do you remember when we rested by the rock? ˹That is when˺ I forgot the fish. None made me forget to mention this except Satan. And the fish made its way into the sea miraculously.”](https://quranwbw.com/18/63)
+* __Surah Al-Kahf 18/50-51__: [(50) And ˹remember˺ when We said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs,1 who was one of the jinn, but he rebelled against the command of his Lord. Would you then take him and his descendants as patrons instead of Me, although they are your enemy? What an evil alternative for the wrongdoers ˹to choose˺! (51) I never called them to witness the creation of the heavens and the earth or ˹even˺ their own creation, nor would I take the misleaders as helpers.](https://quranwbw.com/18/50-51)
 
 ***
 
@@ -104,11 +104,11 @@
 
 ***
 
-* __Surah Ta-Ha Ayat 120__: []()
+* __Surah Ta-Ha Ayat 120__: [But Satan whispered to him, saying, “O Adam! Shall I show you the Tree of Immortality and a kingdom that does not fade away?”](https://quranwbw.com/20/120)
 
 ***
 
-* __Surah Al-Anbiya Ayat 82__: []()
+* __Surah Al-Anbiya 21/82__: [And ˹We subjected˺ some jinn1 that dived for him,2 and performed other duties. It is We Who kept them in check.](https://quranwbw.com/21/82)
 
 ***
 

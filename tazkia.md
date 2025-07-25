@@ -44,6 +44,7 @@
 * 4:36
 * https://quranwbw.com/6/53
 * 11:23
+* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
 * 25:63
 * 28:83
 * https://quranwbw.com/9/60-66

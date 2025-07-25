@@ -165,10 +165,10 @@
 
 *** 
 
-* __Surah Sad Ayat 37__: [And ˹We subjected to him˺ every builder and diver1 of the jinn,](https://quran.com/38/37)
-* __Surah Sad Ayat 41__: [And remember Our servant Job, when he cried out to his Lord, “Satan has afflicted me with distress and suffering.”](https://quran.com/38/41)
-* __Surah Sad Ayat 74-75__: [but not Iblîs, who acted arrogantly,2 becoming unfaithful.](https://quran.com/38/74-75)
-* __Surah Sad Ayat 82-83__: [Satan said, “By Your Glory! I will certainly mislead them all,](https://quran.com/38/82-83)
+* __Surah Sad 38/37__: [And ˹We subjected to him˺ every builder and diver1 of the jinn,](https://quran.com/38/37)
+* __Surah Sad 38/41__: [And remember Our servant Job, when he cried out to his Lord, “Satan has afflicted me with distress and suffering.”](https://quran.com/38/41)
+* __Surah Sad 38/74-75__: [but not Iblîs, who acted arrogantly,2 becoming unfaithful.](https://quran.com/38/74-75)
+* __Surah Sad 38/82-83__: [Satan said, “By Your Glory! I will certainly mislead them all,](https://quran.com/38/82-83)
 
 *** 
 

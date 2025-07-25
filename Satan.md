@@ -118,7 +118,7 @@
 
 ***
 
-* __Surah Al-Mu'minun Ayat 97__: []()
+* __Surah Al-Mu'minun 23/97__: [And say, “My Lord! I seek refuge in You from the temptations of the devils.](https://quranwbw.com/23/97)
 
 ***
 
@@ -126,35 +126,33 @@
 
 ***
 
-* __Surah Al-Furqan Ayat 29__: []()
+* __Surah Al-Furqan 25/29__: [It was he who truly made me stray from the Reminder after it had reached me.” And Satan has always betrayed humanity.](https://quranwbw.com/25/29)
 
 ***
 
-* __Surah Ash-Shu'ara Ayat 210__: []()
+* __Surah Ash-Shu'ara 26/210__: [It was not the devils who brought this ˹Quran˺ down:](https://quranwbw.com/26/210)
+* __Surah Ash-Shu'ara Ayat 221__: [Shall I inform you of whom the devils ˹actually˺ descend upon?](https://quranwbw.com/26/221)
+
+***
+### The Ant
+* __Surah An-Naml 27/24__: [I found her and her people prostrating to the sun instead of Allah. For Satan has made their deeds appealing to them—hindering them from the ˹Right˺ Way and leaving them unguided—](https://quranwbw.com/27/24)
 
 ***
 
-* __Surah Ash-Shu'ara Ayat 221__: []()
+### Murder by Prophet Musa AS
+* __Surah Al-Qasas Ayat 15__: [˹One day˺ he entered the city unnoticed by its people.1 There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
 
 ***
 
-* __Surah An-Naml Ayat 24__: []()
+* __Surah Al-Ankabut 29/38__: [And the people of ’Ȃd and Thamûd ˹met a similar fate˺, which must be clear to you ˹Meccans˺ from their ruins.1 Satan made their ˹evil˺ deeds appealing to them, hindering them from the ˹Right˺ Way, although they were capable of reasoning.](https://quranwbw.com/29/38)
 
 ***
 
-* __Surah Al-Qasas Ayat 15__: []()
+* __Surah Luqman 31/21__: [When it is said to them, “Follow what Allah has revealed,” they reply, “No! We ˹only˺ follow what we found our forefathers practicing.” ˹Would they still do so˺ even if Satan is inviting them to the torment of the Blaze?](https://quranwbw.com/31/21)
 
 ***
 
-* __Surah Al-Ankabut Ayat 38__: []()
-
-***
-
-* __Surah Luqman Ayat 21__: []()
-
-***
-
-* __Surah Fatir Ayat 6__: []()
+* __Surah Fatir 35/6__: [Surely Satan is an enemy to you, so take him as an enemy. He only invites his followers to become inmates of the Blaze.](https://quranwbw.com/35/6)
 
 ***
 

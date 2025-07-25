@@ -160,8 +160,8 @@
 
 ***
 
-* __Surah As-Saffat Ayat 7__: []()
-* __Surah As-Saffat Ayat 65__: []()
+* __Surah As-Saffat 37/7__: [and ˹for˺ protection from every rebellious devil.](https://quranwbw.com/37/7)
+* __Surah As-Saffat 37/65__: [bearing fruit like devils’ heads.](https://quranwbw.com/37/65)
 
 *** 
 
@@ -172,14 +172,15 @@
 
 *** 
 
-* __Surah Fussilat Ayat 25__: []()
-* __Surah Fussilat Ayat 36__: []()
+* __Surah Fussilat 41/25__: [We placed at their disposal ˹evil˺ associates who made their past and future ˹misdeeds˺ appealing to them.1 ˹So˺ the fate of earlier communities of jinn and humans has been justified against them ˹as well˺, ˹for˺ they were truly losers.](https://quranwbw.com/41/25)
+* __Surah Fussilat 41/36__: [And if you are tempted by Satan, then seek refuge with Allah. Indeed, He ˹alone˺ is the All-Hearing, All-Knowing.](https://quranwbw.com/41/36)
 
 *** 
 
-* __Surah Az-Zukhruf Ayat 36__: []()
-* __Surah Az-Zukhruf Ayat 62__: []()
-* __Surah Az-Zukhruf Ayat 37-38__: []()
+* __Surah Az-Zukhruf 43/36__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quranwbw.com/43/36)
+* __Surah Az-Zukhruf 43/62__: [And do not let Satan hinder you, ˹for˺ he is certainly your sworn enemy.
+](https://quranwbw.com/43/62)
+* __Surah Az-Zukhruf 43/37-38__: [(38) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (39) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/37-38)
 
 *** 
 

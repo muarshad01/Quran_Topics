@@ -65,9 +65,9 @@
 
 ***
 
-* __Surah Yusuf Ayat 5__: []()
-* __Surah Yusuf Ayat 42__: []()
-* __Surah Yusuf Ayat 100__: []()
+* __Surah Yusuf Ayat 5__: [He replied, “O my dear son! Do not relate your vision to your brothers, or they will devise a plot against you. Surely Satan is a sworn enemy to humankind.](https://quran.com/12/5)
+* __Surah Yusuf Ayat 42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.1” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
+* __Surah Yusuf Ayat 100__: [Then he raised his parents to the throne, and they all fell down in prostration to Joseph,1 who then said, “O my dear father! This is the interpretation of my old dream. My Lord has made it come true. He was truly kind to me when He freed me from prison, and brought you all from the desert after Satan had ignited rivalry between me and my siblings.2 Indeed my Lord is subtle in fulfilling what He wills. Surely He ˹alone˺ is the All-Knowing, All-Wise.”](https://quran.com/12/100)
 
 ***
 

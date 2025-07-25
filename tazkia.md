@@ -1,5 +1,8 @@
-## [Har Gunnah Ki Root | Silent Killer of Souls | Irfan ul Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
-## [SEHAT HAZAAR NAIMAT | INSANI SEHAT KA SAB SE EHAM ASOOL | Irfan ul Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
+### [Har Gunnah Ki Root | Silent Killer of Souls | Irfan ul Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
+### [SEHAT HAZAAR NAIMAT | INSANI SEHAT KA SAB SE EHAM ASOOL | Irfan ul Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
+### [Tazkiya-e-Nafs | Allama Talib Johri](https://www.youtube.com/watch?v=MFymvwe0WLA)
+
+***
 
 #### Why Azazeel become Mayoos (disappointed)?
 * `Self-liking` is the first-disease after being disappointed, which makes you do ALL the sins.

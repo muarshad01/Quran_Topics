@@ -1,6 +1,7 @@
 ### A'oodhu billahi min ash-shaytaan-ir-rajeem
 
 ### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
+### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
 
 ***
 

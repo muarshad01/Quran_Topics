@@ -48,7 +48,7 @@
 ***
 
 * __Surah Al-A'raf Ayat 11__: []()
-* * __Surah Al-A'raf Ayat 12-13__: []()
+* __Surah Al-A'raf Ayat 12-13__: []()
 * __Surah Al-A'raf Ayat 20__: []()
 * __Surah Al-A'raf Ayat 22__: []()
 * __Surah Al-A'raf Ayat 27__: []()
@@ -71,24 +71,24 @@
 
 ***
 
-* __Surah Ibrahim Ayat 22__: [And Satan will say ˹to his followers˺ after the judgment has been passed, “Indeed, Allah has made you a true promise. I too made you a promise, but I failed you. I did not have any authority over you. I only called you, and you responded to me. So do not blame me; blame yourselves. I cannot save you, nor can you save me. Indeed, I denounce your previous association of me with Allah ˹in loyalty˺. Surely the wrongdoers will suffer a painful punishment.”](https://quranwbw.com/14/22)
+* __Surah Ibrahim 14/22__: [And Satan will say ˹to his followers˺ after the judgment has been passed, “Indeed, Allah has made you a true promise. I too made you a promise, but I failed you. I did not have any authority over you. I only called you, and you responded to me. So do not blame me; blame yourselves. I cannot save you, nor can you save me. Indeed, I denounce your previous association of me with Allah ˹in loyalty˺. Surely the wrongdoers will suffer a painful punishment.”](https://quranwbw.com/14/22)
 
 *** 
 
-* __Surah Al-Hijr Ayat 17__: []()
-* __Surah Al-Hijr Ayat 14-15__: []()
-* __Surah Al-Hijr Ayat 40-42__: []()
+* __Surah Al-Hijr 15/17__: [](https://quranwbw.com/15/17)
+* __Surah Al-Hijr 15/14-15__: [](https://quranwbw.com/15/14-15)
+* __Surah Al-Hijr 15/40-42__: [](https://quranwbw.com/15/40-42)
 
 ***
 
-* __Surah An-Nahl Ayat 63__: []()
-* __Surah An-Nahl Ayat 98__: []()
+* __Surah An-Nahl 16/63__: [](https://quranwbw.com/16/63)
+* __Surah An-Nahl 16/98__: [](https://quranwbw.com/16/98)
 
 ***
 
-* __Surah Al-Isra Ayat 27__: []()
-* __Surah Al-Isra Ayat 53__: []()
-* __Surah Al-Isra Ayat 64__: []()
+* __Surah Al-Isra 17/27__: [](https://quranwbw.com/17/27)
+* __Surah Al-Isra 17/53__: [](https://quranwbw.com/17/53)
+* __Surah Al-Isra 17/64__: [](https://quranwbw.com/17/64)
 
 ***
 
@@ -97,10 +97,10 @@
 
 ***
 
-* __Surah Maryam Ayat 44__: []()
-* __Surah Maryam Ayat 45__: []()
-* __Surah Maryam Ayat 68__: []()
-* __Surah Maryam Ayat 83__: []()
+* __Surah Maryam 19/44__: [O  dear father! Do not worship Satan. Surely Satan is ever rebellious against the Most Compassionate.](https://quran.com/19/44)
+* __Surah Maryam 19/45__: [O  dear father! I truly fear that you will be touched by a torment from the Most Compassionate, and become Satan’s companion ˹in Hell˺.”](https://quran.com/19/45)
+* __Surah Maryam 19/68__: [By your Lord ˹O Prophet˺! We will surely gather them along with the devils, and then set them around Hell on their knees.](https://quran.com/19/68)
+* __Surah Maryam 19/83__: [Do you ˹O Prophet˺ not see that We have sent the devils against the disbelievers, constantly inciting them?](https://quran.com/19/83)
 
 ***
 

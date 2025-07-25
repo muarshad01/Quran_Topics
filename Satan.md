@@ -5,14 +5,14 @@
 
 ***
 
-* __Surah Al-Baqarah 2/14__: [](https://quranwbw.com/2/14)
-* __Surah Al-Baqarah 2/34__: [](https://quranwbw.com/2/34)
-* __Surah Al-Baqarah 2/36__: [](https://quranwbw.com/2/36)
-* __Surah Al-Baqarah 2/102__: [](https://quranwbw.com/2/102)
-* __Surah Al-Baqarah 2/168__: [](https://quranwbw.com/2/168)
-* __Surah Al-Baqarah 2/208__: [](https://quranwbw.com/2/208)
-* __Surah Al-Baqarah 2/268__: [](https://quranwbw.com/2/268)
-* __Surah Al-Baqarah 2/275__: [](https://quranwbw.com/2/275)
+* __Surah Al-Baqarah 2/14__: [When they meet the believers they say, “We believe.” But when alone with their evil associates they say, “We are definitely with you; we were only mocking.”](https://quranwbw.com/2/14)
+* __Surah Al-Baqarah 2/34__: [And ˹remember˺ when We said to the angels, “Prostrate before Adam,”1 so they all did—but not Iblîs,2 who refused and acted arrogantly,3 becoming unfaithful.](https://quranwbw.com/2/34)
+* __Surah Al-Baqarah 2/36__: [But Satan deceived them—leading to their fall from the ˹blissful˺ state they were in,1 and We said, “Descend from the heavens ˹to the earth˺ as enemies to each other.2 You will find in the earth a residence and provision for your appointed stay.”](https://quranwbw.com/2/36)
+* __Surah Al-Baqarah 2/102__: [They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon. Never did Solomon disbelieve, rather the devils disbelieved. They taught magic to the people, along with what had been revealed to the two angels, Hârût and Mârût, in Babylon.1 The two angels never taught anyone without saying, “We are only a test ˹for you˺, so do not abandon ˹your˺ faith.” Yet people learned ˹magic˺ that caused a rift ˹even˺ between husband and wife; although their magic could not harm anyone except by Allah’s Will. They learned what harmed them and did not benefit them—although they already knew that whoever buys into magic would have no share in the Hereafter. Miserable indeed was the price for which they sold their souls, if only they knew!](https://quranwbw.com/2/102)
+* __Surah Al-Baqarah 2/168__: [O humanity! Eat from what is lawful and good on the earth and do not follow Satan’s footsteps. He is truly your sworn enemy.](https://quranwbw.com/2/168)
+* __Surah Al-Baqarah 2/208__: [O believers! Enter into Islam wholeheartedly and do not follow Satan’s footsteps. Surely he is your sworn enemy.](https://quranwbw.com/2/208)
+* __Surah Al-Baqarah 2/268__: [The Devil threatens you with ˹the prospect of˺ poverty and bids you to the shameful deed ˹of stinginess˺, while Allah promises you forgiveness and ˹great˺ bounties from Him. And Allah is All-Bountiful, All-Knowing.](https://quranwbw.com/2/268)
+* __Surah Al-Baqarah 2/275__: [Those who consume interest will stand ˹on Judgment Day˺ like those driven to madness by Satan’s touch. That is because they say, “Trade is no different than interest.” But Allah has permitted trading and forbidden interest. Whoever refrains—after having received warning from their Lord—may keep their previous gains, and their case is left to Allah. As for those who persist, it is they who will be the residents of the Fire. They will be there forever.](https://quranwbw.com/2/275)
 
 ***
 

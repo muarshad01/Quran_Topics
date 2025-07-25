@@ -32,8 +32,8 @@
 
 ***
 
-* __Surah Al-Ma'idah Ayat 90__: []()
-* __Surah Al-Ma'idah Ayat 91__: []()
+* __Surah Al-Ma'idah 5/90__: [O believers! Intoxicants, gambling, idols, and drawing lots for decisions1 are all evil of Satan’s handiwork. So shun them so you may be successful.](https://quranwbw.com/5/90)
+* __Surah Al-Ma'idah 5/91__: [Satan’s plan is to stir up hostility and hatred between you with intoxicants and gambling and to prevent you from remembering Allah and praying. Will you not then abstain?](https://quranwbw.com/5/91)
 
 ***
 
@@ -60,8 +60,8 @@
 
 ***
 
-* __Surah Al-Anfal Ayat 11__: []()
-* __Surah Al-Anfal Ayat 48__: []()
+* __Surah Al-Anfal 8/11__: [˹Remember˺ when He caused drowsiness to overcome you, giving you serenity.1 And He sent down rain from the sky to purify you, free you from Satan’s whispers, strengthen your hearts, and make ˹your˺ steps firm.](https://quranwbw.com/8/11)
+* __Surah Al-Anfal Ayat 8/48__: [And ˹remember˺ when Satan made their ˹evil˺ deeds appealing to them, and said, “No one can overcome you today. I am surely by your side.” But when the two forces faced off, he cowered and said, “I have absolutely nothing to do with you. I certainly see what you do not see. I truly fear Allah, for Allah is severe in punishment.”](https://quranwbw.com/8/48)
 
 ***
 

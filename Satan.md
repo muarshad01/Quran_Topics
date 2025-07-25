@@ -121,7 +121,7 @@
 
 ***
 
-* __Surah An-Nur Ayat 21__: []()
+* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
 
 ***
 
@@ -157,7 +157,7 @@
 
 ***
 
-* __Surah Ya-Sin Ayat 60__: []()
+* __Surah Ya-Sin 36/60__: [Did I not command you, O  Children of Adam, not to follow Satan, for he is truly your sworn enemy,](https://quranwbw.com/36/60)
 
 ***
 

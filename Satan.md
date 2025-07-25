@@ -75,20 +75,21 @@
 
 *** 
 
-* __Surah Al-Hijr 15/17__: [](https://quranwbw.com/15/17)
-* __Surah Al-Hijr 15/14-15__: [](https://quranwbw.com/15/14-15)
-* __Surah Al-Hijr 15/40-42__: [](https://quranwbw.com/15/40-42)
+* __Surah Al-Hijr 15/17__: [And We protected it from every accursed devil,](https://quranwbw.com/15/17)
+* __Surah Al-Hijr 15/14-15__: [And even if We opened for them a gate to heaven, through which they continued to ascend,](https://quranwbw.com/15/14-15)
+* __Surah Al-Hijr 15/40-42 (Al-mukh'lasina)__: [(40) Except Your chosen servants among them.” (41) Allah said, “This is the Way, binding on Me: (42) you will certainly have no authority over My servants, except the deviant who follow you,](https://quranwbw.com/15/40-42)
 
 ***
 
-* __Surah An-Nahl 16/63__: [](https://quranwbw.com/16/63)
-* __Surah An-Nahl 16/98__: [](https://quranwbw.com/16/98)
+* __Surah An-Nahl 16/63__: [By Allah! We have surely sent messengers to communities before you ˹O Prophet˺, but Satan made their misdeeds appealing to them. So he is their patron today, and they will suffer a painful punishment.](https://quranwbw.com/16/63)
+ 
+* __Surah An-Nahl 16/98 (Fasta'iz billaahi minashh Shai-taanir rajeem)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
 
 ***
 
-* __Surah Al-Isra 17/27__: [](https://quranwbw.com/17/27)
-* __Surah Al-Isra 17/53__: [](https://quranwbw.com/17/53)
-* __Surah Al-Isra 17/64__: [](https://quranwbw.com/17/64)
+* __Surah Al-Isra 17/27__: [Surely the wasteful are ˹like˺ brothers to the devils. And the Devil is ever ungrateful to his Lord.](https://quranwbw.com/17/27)
+* __Surah Al-Isra 17/53__: [Tell My ˹believing˺ servants to say only what is best. Satan certainly seeks to sow discord among them. Satan is indeed a sworn enemy to humankind.](https://quranwbw.com/17/53)
+* __Surah Al-Isra 17/64__: [And incite whoever you can of them with your voice, mobilize against them all your cavalry and infantry, manipulate them in their wealth and children, and make them promises.” But Satan promises them nothing but delusion.](https://quranwbw.com/17/64)
 
 ***
 

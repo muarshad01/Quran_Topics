@@ -5,14 +5,14 @@
 
 ***
 
-* __Surah Al-Baqarah Ayat 14__: []()
-* __Surah Al-Baqarah Ayat 34__: []()
-* __Surah Al-Baqarah Ayat 36__: []()
-* __Surah Al-Baqarah Ayat 102__: []()
-* __Surah Al-Baqarah Ayat 168__: []()
-* __Surah Al-Baqarah Ayat 208__: []()
-* __Surah Al-Baqarah Ayat 268__: []()
-* __Surah Al-Baqarah Ayat 275__: []()
+* __Surah Al-Baqarah 2/14__: [](https://quranwbw.com/2/14)
+* __Surah Al-Baqarah 2/34__: [](https://quranwbw.com/2/34)
+* __Surah Al-Baqarah 2/36__: [](https://quranwbw.com/2/36)
+* __Surah Al-Baqarah 2/102__: [](https://quranwbw.com/2/102)
+* __Surah Al-Baqarah 2/168__: [](https://quranwbw.com/2/168)
+* __Surah Al-Baqarah 2/208__: [](https://quranwbw.com/2/208)
+* __Surah Al-Baqarah 2/268__: [](https://quranwbw.com/2/268)
+* __Surah Al-Baqarah 2/275__: [](https://quranwbw.com/2/275)
 
 ***
 
@@ -22,13 +22,13 @@
 
 ***
 
-* __Surah An-Nisa Ayat 38__: []()
-* __Surah An-Nisa Ayat 60__: []()
-* __Surah An-Nisa Ayat 76__: []()
-* __Surah An-Nisa Ayat 83__: []()
-* __Surah An-Nisa Ayat 117__: []()
-* __Surah An-Nisa Ayat 119__: []()
-* __Surah An-Nisa Ayat 120__: []()
+* __Surah An-Nisa 4/38__: [](https://quranwbw.com/4/38)
+* __Surah An-Nisa 4/60__: [](https://quranwbw.com/4/60)
+* __Surah An-Nisa 4/76__: [](https://quranwbw.com/4/76)
+* __Surah An-Nisa 4/83__: [](https://quranwbw.com/4/83)
+* __Surah An-Nisa 4/117__: [](https://quranwbw.com/4/117)
+* __Surah An-Nisa 4/119__: [](https://quranwbw.com/4/119)
+* __Surah An-Nisa 4/120__: [](https://quranwbw.com/4/120)
 
 ***
 

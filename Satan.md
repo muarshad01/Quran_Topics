@@ -185,20 +185,25 @@
 *** 
 
 * __Surah Muhammad 47/ 25__: [Indeed, those who relapse ˹into disbelief˺ after ˹true˺ guidance has become clear to them, ˹it is˺ Satan ˹that˺ has tempted them, luring them with false hopes.](https://quranwbw.com/47/25)
+    * "Sawwala" (سَوَّلَ) in Arabic is a verb form II (also known as "form II") that can mean "to make something seem attractive or desirable to someone," "to flatter," or "to incite."
 
 *** 
 
-* __Surah Qaf 50/ 27-29__: [One’s ˹devilish˺ associate will say, “Our Lord! I did not make them transgress. Rather, they were far astray ˹on their own˺.” Allah will respond, “Do not dispute in My presence, since I had already given you a warning. My Word cannot be changed, nor am I unjust to ˹My˺ creation.”](https://quran.com/50/27-29)
+* __Surah Qaf 50/23__: [](https://quranwbw.com/50/23]
+* __Surah Qaf 50/27-29__: [(27) One’s ˹devilish˺ associate will say, “Our Lord! I did not make them transgress. Rather, they were far astray ˹on their own˺.” (28) Allah will respond, “Do not dispute in My presence, since I had already given you a warning. (29) My Word cannot be changed, nor am I unjust to ˹My˺ creation.”](https://quranwbw.com/50/27-29)
 
 *** 
 
-* __Surah An-Najm Ayat 19–20__: [Now, have you considered ˹the idols of˺ Lât and ’Uzza, and the third one, Manât, as well?](https://quran.com/53/19-20)
+* __Surah An-Najm Ayat 19–20__: [Now, have you considered ˹the idols of˺ Lât and ’Uzza, and the third one, Manât, as well?](https://quranwbw.com/53/19-20)
 
 *** 
 
 ###  Al-Mujadila: The Pleading Woman
-* __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quran.com/58/10)
-* __Surah Al-Mujadila 58/19__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quran.com/58/19)
+* __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quranwbw.com/58/10)
+    * Najwa in Arabic means to talk with someone in private.
+* __Surah Al-Mujadila 58/19__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quranwbw.com/58/19)
+    * "is'tahwadha", is related to the Arabic word istawa (استوى),
+    * meaning subjugating or taking control over, particularly in the context of Allah's control over His creation.  
 
 *** 
 

@@ -51,9 +51,11 @@
 
 * __Surah Al-A'raf 7/11__: [Surely We created you,1 then shaped you, then said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs,2 who refused to prostrate with the others.](https://quranwbw.com/7/11)
 * __Surah Al-A'raf 7/12-13__: [Allah asked, “What prevented you from prostrating when I commanded you?” He replied, “I am better than he is: You created me from fire and him from clay.”](https://quranwbw.com/7/12-13)
+* __Surah Al-A'raf 7/17 (All 4-sides)__: [I will approach them from their front, their back, their right, their left, and then You will find most of them ungrateful.”
+](https://quranwbw.com/7/17)
 * __Surah Al-A'raf 7/20__: [Then Satan tempted them in order to expose what was hidden of their nakedness. He said, “Your Lord has forbidden this tree to you only to prevent you from becoming angels or immortals.”](https://quranwbw.com/7/20)
 * __Surah Al-A'raf 7/22__: [So he brought about their fall through deception. And when they tasted of the tree, their nakedness was exposed to them, prompting them to cover themselves with leaves from Paradise. Then their Lord called out to them, “Did I not forbid you from that tree and ˹did I not˺ tell you that Satan is your sworn enemy?”](https://quranwbw.com/7/22)
-* __Surah Al-A'raf 7/27__: [O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.](https://quranwbw.com/7/27)
+* __Surah Al-A'raf 7/27 (Satan sees you from where you can't see them)__: [O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.](https://quranwbw.com/7/27)
 * __Surah Al-A'raf 7/30__: [He has guided some, while others are destined to stray. They have taken devils as their masters instead of Allah—thinking they are ˹rightly˺ guided.](https://quranwbw.com/7/30)
 * __Surah Al-A'raf 7/175__: [And relate to them ˹O Prophet˺ the story of the one to whom We gave Our signs, but he abandoned them, so Satan took hold of him, and he became a deviant.1](https://quranwbw.com/7/175)
 * __Surah Al-A'raf 7/179__: [Indeed, We have destined many jinn and humans for Hell. They have hearts they do not understand with, eyes they do not see with, and ears they do not hear with. They are like cattle. In fact, they are even less guided! Such ˹people˺ are ˹entirely˺ heedless.](https://quranwbw.com/7/179)
@@ -95,7 +97,7 @@
 ### The Nigh Journey
 * __Surah Al-Isra 17/27__: [Surely the wasteful are ˹like˺ brothers to the devils. And the Devil is ever ungrateful to his Lord.](https://quranwbw.com/17/27)
 * __Surah Al-Isra 17/53__: [Tell My ˹believing˺ servants to say only what is best. Satan certainly seeks to sow discord among them. Satan is indeed a sworn enemy to humankind.](https://quranwbw.com/17/53)
-* __Surah Al-Isra 17/64__: [And incite whoever you can of them with your voice, mobilize against them all your cavalry and infantry, manipulate them in their wealth and children, and make them promises.” But Satan promises them nothing but delusion.](https://quranwbw.com/17/64)
+* __Surah Al-Isra 17/64 (Delusion as a Promise)__: [And incite whoever you can of them with your voice, mobilize against them all your cavalry and infantry, manipulate them in their wealth and children, and make them promises.” But Satan promises them nothing but delusion.](https://quranwbw.com/17/64)
 
 ***
 
@@ -179,7 +181,7 @@
 * __Surah Sad 38/37__: [And ˹We subjected to him˺ every builder and diver1 of the jinn,](https://quran.com/38/37)
 * __Surah Sad 38/41__: [And remember Our servant Job, when he cried out to his Lord, “Satan has afflicted me with distress and suffering.”](https://quran.com/38/41)
 * __Surah Sad 38/74-75__: [but not Iblîs, who acted arrogantly,2 becoming unfaithful.](https://quran.com/38/74-75)
-* __Surah Sad 38/82-83__: [Satan said, “By Your Glory! I will certainly mislead them all,](https://quran.com/38/82-83)
+* __Surah Sad 38/82-83 (Satan Challenge)__: [Satan said, “By Your Glory! I will certainly mislead them all,](https://quran.com/38/82-83)
 
 *** 
 
@@ -213,7 +215,7 @@
 ###  Al-Mujadila: The Pleading Woman
 * __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quranwbw.com/58/10)
     * Najwa in Arabic means to talk with someone in private.
-* __Surah Al-Mujadila 58/19__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quranwbw.com/58/19)
+* __Surah Al-Mujadila 58/19 (Satan made them forget)__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quranwbw.com/58/19)
     * "is'tahwadha", is related to the Arabic word istawa (استوى),
     * meaning subjugating or taking control over, particularly in the context of Allah's control over His creation.  
 

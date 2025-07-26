@@ -49,16 +49,16 @@
 
 ***
 
-* __Surah Al-A'raf Ayat 11__: []()
-* __Surah Al-A'raf Ayat 12-13__: []()
-* __Surah Al-A'raf Ayat 20__: []()
-* __Surah Al-A'raf Ayat 22__: []()
-* __Surah Al-A'raf Ayat 27__: []()
-* __Surah Al-A'raf Ayat 30__: []()
-* __Surah Al-A'raf Ayat 175__: []()
-* __Surah Al-A'raf Ayat 179__: []()
-* __Surah Al-A'raf Ayat 200__: []()
-* __Surah Al-A'raf Ayat 201__: []()
+* __Surah Al-A'raf 7/11__: [Surely We created you,1 then shaped you, then said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs,2 who refused to prostrate with the others.](https://quranwbw.com/7/11)
+* __Surah Al-A'raf 7/12-13__: [Allah asked, “What prevented you from prostrating when I commanded you?” He replied, “I am better than he is: You created me from fire and him from clay.”](https://quranwbw.com/7/12-13)
+* __Surah Al-A'raf 7/20__: [Then Satan tempted them in order to expose what was hidden of their nakedness. He said, “Your Lord has forbidden this tree to you only to prevent you from becoming angels or immortals.”](https://quranwbw.com/7/20)
+* __Surah Al-A'raf 7/22__: [So he brought about their fall through deception. And when they tasted of the tree, their nakedness was exposed to them, prompting them to cover themselves with leaves from Paradise. Then their Lord called out to them, “Did I not forbid you from that tree and ˹did I not˺ tell you that Satan is your sworn enemy?”](https://quranwbw.com/7/22)
+* __Surah Al-A'raf 7/27__: [O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.](https://quranwbw.com/7/27)
+* __Surah Al-A'raf 7/30__: [He has guided some, while others are destined to stray. They have taken devils as their masters instead of Allah—thinking they are ˹rightly˺ guided.](https://quranwbw.com/7/30)
+* __Surah Al-A'raf 7/175__: [And relate to them ˹O Prophet˺ the story of the one to whom We gave Our signs, but he abandoned them, so Satan took hold of him, and he became a deviant.1](https://quranwbw.com/7/175)
+* __Surah Al-A'raf 7/179__: [Indeed, We have destined many jinn and humans for Hell. They have hearts they do not understand with, eyes they do not see with, and ears they do not hear with. They are like cattle. In fact, they are even less guided! Such ˹people˺ are ˹entirely˺ heedless.](https://quranwbw.com/7/179)
+* __Surah Al-A'raf 7/200__: [If you are tempted by Satan, then seek refuge with Allah. Surely He is All-Hearing, All-Knowing.](https://quranwbw.com/7/200)
+* __Surah Al-A'raf 7/201__: [Indeed, when Satan whispers to those mindful ˹of Allah˺, they remember ˹their Lord˺ then they start to see ˹things˺ clearly.](https://quranwbw.com/7/201)
 
 ***
 

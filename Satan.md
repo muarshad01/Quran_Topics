@@ -62,6 +62,7 @@
 
 ***
 
+### The Spoils of War
 * __Surah Al-Anfal 8/11__: [˹Remember˺ when He caused drowsiness to overcome you, giving you serenity.1 And He sent down rain from the sky to purify you, free you from Satan’s whispers, strengthen your hearts, and make ˹your˺ steps firm.](https://quranwbw.com/8/11)
 * __Surah Al-Anfal Ayat 8/48__: [And ˹remember˺ when Satan made their ˹evil˺ deeds appealing to them, and said, “No one can overcome you today. I am surely by your side.” But when the two forces faced off, he cowered and said, “I have absolutely nothing to do with you. I certainly see what you do not see. I truly fear Allah, for Allah is severe in punishment.”](https://quranwbw.com/8/48)
 
@@ -75,20 +76,23 @@
 
 * __Surah Ibrahim 14/22__: [And Satan will say ˹to his followers˺ after the judgment has been passed, “Indeed, Allah has made you a true promise. I too made you a promise, but I failed you. I did not have any authority over you. I only called you, and you responded to me. So do not blame me; blame yourselves. I cannot save you, nor can you save me. Indeed, I denounce your previous association of me with Allah ˹in loyalty˺. Surely the wrongdoers will suffer a painful punishment.”](https://quranwbw.com/14/22)
 
-*** 
+***
 
+### The Rock
 * __Surah Al-Hijr 15/17__: [And We protected it from every accursed devil,](https://quranwbw.com/15/17)
 * __Surah Al-Hijr 15/14-15__: [And even if We opened for them a gate to heaven, through which they continued to ascend,](https://quranwbw.com/15/14-15)
 * __Surah Al-Hijr 15/40-42 (Al-mukh'lasina)__: [(40) Except Your chosen servants among them.” (41) Allah said, “This is the Way, binding on Me: (42) you will certainly have no authority over My servants, except the deviant who follow you,](https://quranwbw.com/15/40-42)
 
 ***
 
+### The Bee
 * __Surah An-Nahl 16/63__: [By Allah! We have surely sent messengers to communities before you ˹O Prophet˺, but Satan made their misdeeds appealing to them. So he is their patron today, and they will suffer a painful punishment.](https://quranwbw.com/16/63)
  
 * __Surah An-Nahl 16/98 (Fasta'iz billaahi minashh Shai-taanir rajeem)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
 
 ***
 
+### The Nigh Journey
 * __Surah Al-Isra 17/27__: [Surely the wasteful are ˹like˺ brothers to the devils. And the Devil is ever ungrateful to his Lord.](https://quranwbw.com/17/27)
 * __Surah Al-Isra 17/53__: [Tell My ˹believing˺ servants to say only what is best. Satan certainly seeks to sow discord among them. Satan is indeed a sworn enemy to humankind.](https://quranwbw.com/17/53)
 * __Surah Al-Isra 17/64__: [And incite whoever you can of them with your voice, mobilize against them all your cavalry and infantry, manipulate them in their wealth and children, and make them promises.” But Satan promises them nothing but delusion.](https://quranwbw.com/17/64)
@@ -133,17 +137,19 @@
 
 ***
 
+### The Poets
 * __Surah Ash-Shu'ara 26/210__: [It was not the devils who brought this ˹Quran˺ down:](https://quranwbw.com/26/210)
 * __Surah Ash-Shu'ara Ayat 221__: [Shall I inform you of whom the devils ˹actually˺ descend upon?](https://quranwbw.com/26/221)
 
 ***
+
 ### The Ant
 * __Surah An-Naml 27/24__: [I found her and her people prostrating to the sun instead of Allah. For Satan has made their deeds appealing to them—hindering them from the ˹Right˺ Way and leaving them unguided—](https://quranwbw.com/27/24)
 
 ***
 
 ### Murder by Prophet Musa AS
-* __Surah Al-Qasas Ayat 15__: [˹One day˺ he entered the city unnoticed by its people.1 There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
+* __Surah Al-Qasas (The Stories) 28/15__: [˹One day˺ he entered the city unnoticed by its people.1 There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
 
 ***
 
@@ -155,6 +161,7 @@
 
 ***
 
+### The Originator
 * __Surah Fatir 35/6__: [Surely Satan is an enemy to you, so take him as an enemy. He only invites his followers to become inmates of the Blaze.](https://quranwbw.com/35/6)
 
 ***
@@ -163,6 +170,7 @@
 
 ***
 
+### Those  drwan up in Ranks
 * __Surah As-Saffat 37/7__: [and ˹for˺ protection from every rebellious devil.](https://quranwbw.com/37/7)
 * __Surah As-Saffat 37/65__: [bearing fruit like devils’ heads.](https://quranwbw.com/37/65)
 
@@ -175,14 +183,15 @@
 
 *** 
 
+### Explained in Detail
 * __Surah Fussilat 41/25__: [We placed at their disposal ˹evil˺ associates who made their past and future ˹misdeeds˺ appealing to them.1 ˹So˺ the fate of earlier communities of jinn and humans has been justified against them ˹as well˺, ˹for˺ they were truly losers.](https://quranwbw.com/41/25)
 * __Surah Fussilat 41/36__: [And if you are tempted by Satan, then seek refuge with Allah. Indeed, He ˹alone˺ is the All-Hearing, All-Knowing.](https://quranwbw.com/41/36)
 
 *** 
 
+### Ornaments of Gold
 * __Surah Az-Zukhruf 43/36__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quranwbw.com/43/36)
-* __Surah Az-Zukhruf 43/62__: [And do not let Satan hinder you, ˹for˺ he is certainly your sworn enemy.
-](https://quranwbw.com/43/62)
+* __Surah Az-Zukhruf 43/62__: [And do not let Satan hinder you, ˹for˺ he is certainly your sworn enemy.](https://quranwbw.com/43/62)
 * __Surah Az-Zukhruf 43/37-38__: [(38) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (39) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/37-38)
 
 *** 

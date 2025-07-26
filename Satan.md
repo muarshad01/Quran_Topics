@@ -39,13 +39,13 @@
 
 ***
 
-* __Surah Al-Anam Ayat 43__: []()
-* __Surah Al-Anam Ayat 68__: []()
-* __Surah Al-Anam Ayat 71__: []()
-* __Surah Al-Anam Ayat 112__: []()
-* __Surah Al-Anam Ayat 121__: []()
-* __Surah Al-Anam Ayat 142__: []()
-* __Surah Al-Anam Ayat 22-24__: []()
+* __Surah Al-Anam 6/43__: [Why did they not humble themselves when We made them suffer? Instead, their hearts were hardened, and Satan made their misdeeds appealing to them.](https://quran.com/6/43)
+* __Surah Al-Anam 6/68__: [And when you come across those who ridicule Our revelations, do not sit with them unless they engage in a different topic. Should Satan make you forget, then once you remember, do not ˹continue to˺ sit with the wrongdoing people.](https://quran.com/6/68)
+* __Surah Al-Anam 6/71__: [Ask ˹them, O  Prophet˺, “Should we invoke, other than Allah, those ˹idols˺ which cannot benefit or harm us, and turn back to disbelief after Allah has guided us? ˹If we do so, we will be˺ like those disoriented by devils in the wilderness, while their companions call them to guidance, ˹saying˺, ‘Come to us!’ Say, ˹O Prophet,˺ “Allah’s guidance is the ˹only˺ true guidance. And we are commanded to submit to the Lord of all worlds,](https://quran.com/6/71)
+* __Surah Al-Anam 6/112__: [And so We have made for every prophet enemies—devilish humans and jinn—whispering to one another with elegant words of deception. Had it been your Lord’s Will, they would not have done such a thing. So leave them and their deceit,](https://quran.com/6/112)
+* __Surah Al-Anam 6/121__: [Do not eat of what is not slaughtered in Allah’s Name. For that would certainly be ˹an act of˺ disobedience. Surely the devils whisper to their ˹human˺ associates to argue with you.1 If you were to obey them, then you ˹too˺ would be polytheists.](https://quran.com/6/121)
+* __Surah Al-Anam 6/142__: [Some cattle are fit for labour, others are too small.1 Eat of what Allah has provided for you and do not follow Satan’s footsteps. Certainly, he is your sworn enemy.](https://quran.com/6/142)
+* __Surah Al-Anam 6/22-24__: [˹Consider˺ the Day We will gather them all together then ask those who associated others ˹with Allah in worship˺, “Where are those gods you used to claim?”](https://quran.com/6/22-24)
 
 ***
 

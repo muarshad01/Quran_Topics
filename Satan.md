@@ -22,13 +22,13 @@
 
 ***
 
-* __Surah An-Nisa 4/38__: [](https://quranwbw.com/4/38)
-* __Surah An-Nisa 4/60__: [](https://quranwbw.com/4/60)
-* __Surah An-Nisa 4/76__: [](https://quranwbw.com/4/76)
-* __Surah An-Nisa 4/83__: [](https://quranwbw.com/4/83)
-* __Surah An-Nisa 4/117__: [](https://quranwbw.com/4/117)
-* __Surah An-Nisa 4/119__: [](https://quranwbw.com/4/119)
-* __Surah An-Nisa 4/120__: [](https://quranwbw.com/4/120)
+* __Surah An-Nisa 4/38__: [Likewise for those who spend their wealth to show off and do not believe in Allah or the Last Day. And whoever takes Satan as an associate—what an evil associate they have!](https://quranwbw.com/4/38)
+* __Surah An-Nisa 4/60__: [Have you ˹O Prophet˺ not seen those who claim they believe in what has been revealed to you and what was revealed before you? They seek the judgment of false judges, which they were commanded to reject. And Satan ˹only˺ desires to lead them farther away.](https://quranwbw.com/4/60)
+* __Surah An-Nisa 4/76__: [Believers fight for the cause of Allah, whereas disbelievers fight for the cause of the Devil. So fight against Satan’s ˹evil˺ forces. Indeed, Satan’s schemes are ever weak.](https://quranwbw.com/4/76)
+* __Surah An-Nisa 4/83__: [And when they hear news of security or fear,1 they publicize it. Had they referred it to the Messenger or their authorities, those with sound judgment among them would have validated it. Had it not been for Allah’s grace and mercy, you would have followed Satan—except for a few.](https://quranwbw.com/4/83)
+* __Surah An-Nisa 4/117__: [Instead of Allah, they only invoke female gods1 and they ˹actually˺ invoke none but a rebellious Satan—](https://quranwbw.com/4/117)
+* __Surah An-Nisa 4/119 (Alter the Creation)__: [I will certainly mislead them and delude them with empty hopes. Also, I will order them and they will slit the ears of cattle1 and alter Allah’s creation.” And whoever takes Satan as a guardian instead of Allah has certainly suffered a tremendous loss.](https://quranwbw.com/4/119)
+* __Surah An-Nisa 4/120__: [Satan only makes them ˹false˺ promises and deludes them with ˹empty˺ hopes. Truly Satan promises them nothing but delusion.](https://quranwbw.com/4/120)
 
 ***
 

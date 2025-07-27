@@ -8,16 +8,21 @@
 |6. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 2025 |
 |7. | [Rizq (Sustenance or provision that Allah bestows upon all Creation)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
 
+
 ***
+
+|1. | [Zikr (Remembrance of Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 2025| 
+|2. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 2025 |
+|3. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 2025 | 
+
+***
+
 |   | Topic                      | Last Updated               |
 |---|---|---|
 |12. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
 |31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
 |1. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](...)|...|
 |2. | [As-Salat (Namaz)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/namaaz_in_quran.md)       | Jun 25, 2025 |
-|3. | [Zikr (or Dhikr) Remembrance of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/zikr_benefits.md) | Jun 26, 2025| 
-|4. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Istighfar.md) | Jun 25, 2025 |
-|11. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tasbeeh_in_quran.md) | Jun 25, 2025 | 
 |6. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/nafs.md) | Jun 25, 2025 |
 |7. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Jahil_Ignorant.md)  | Jun 25, 2025 |
 |8. | [Al-Insan (Humankind)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/insaan_in_quran.md) | Jun 25, 2025 |

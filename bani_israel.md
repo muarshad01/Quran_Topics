@@ -11,6 +11,8 @@
 
 * __2/40 (Fulfill My Covenant)__: [O children of Israel!1 Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
 
+* __2/44-46 (Preach Righteousness)__:[](https://quranwbw.com/2/44-46)
+
 * __2/47 (Remember My favours)__: [O Children of Israel! Remember ˹all˺ the favours I granted you and how I honoured you above the others.](https://quranwbw.com/2/47) 
 
 ***
@@ -25,13 +27,13 @@
 
 ***
 
-* __2/56 (Which Indicent???)__: [Then We brought you back to life after your death, so that perhaps you would be grateful.](https://quranwbw.com/2/56)
+* __2/55-56 (We want to see Allah SWT)__: [Then We brought you back to life after your death, so that perhaps you would be grateful.](https://quranwbw.com/2/55-56)
   * 70 peopel who saw Allah SWT and died?
   * 1,000's mentioned in another Ayat? 
   
-* __2/57 (Manna and Quails)__: [And ˹remember when˺ We shaded you with clouds and sent down to you manna and quails, ˹saying˺, “Eat from the good things We have provided for you.” The evildoers ˹certainly˺ did not wrong Us, but wronged themselves.](https://quranwbw.com/2/57)
+* __2/57 (Manna and Quails; Cloud made shade)__: [And ˹remember when˺ We shaded you with clouds and sent down to you manna and quails, ˹saying˺, “Eat from the good things We have provided for you.” The evildoers ˹certainly˺ did not wrong Us, but wronged themselves.](https://quranwbw.com/2/57)
 
-* __2/58 (Enter thsi city Humbly and saying Hittatun)__: [And ˹remember˺ when We said, “Enter this city and eat freely from wherever you please; enter the gate with humility, saying, ‘Absolve us.’ We will forgive your sins and multiply the reward for the good-doers.”](https://quranwbw.com/2/58) 
+* __2/58 (Enter this city Humbly and saying Hittatun)__: [And ˹remember˺ when We said, “Enter this city and eat freely from wherever you please; enter the gate with humility, saying, ‘Absolve us.’ We will forgive your sins and multiply the reward for the good-doers.”](https://quranwbw.com/2/58) 
 
 * __2/59 (The changed the Words)__: [But the wrongdoers changed the words they were commanded to say. So We sent down a punishment from the heavens upon them for their rebelliousness.](https://quranwbw.com/2/59) 
 
@@ -39,7 +41,7 @@
 
 * __2/61 (More food Types...They invited the displeasure of Allah SWT)__: [And ˹remember˺ when you said, “O Moses! We cannot endure the same meal ˹every day˺. So ˹just˺ call upon your Lord on our behalf, He will bring forth for us some of what the earth produces of herbs, cucumbers, garlic, lentils, and onions.” Moses scolded ˹them˺, “Do you exchange what is better for what is worse? ˹You can˺ go down to any village and you will find what you have asked for.” They were stricken with disgrace and misery, and they invited the displeasure of Allah for rejecting Allah’s signs and unjustly killing the prophets. This is ˹a fair reward˺ for their disobedience and violations.](https://quranwbw.com/2/61)
 
-* __2/63 (Mountain was Raised)__: [And ˹remember˺ when We took a covenant from you and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”](https://quranwbw.com/2/63)
+* __2/63 (Mountain Toor was Raised)__: [And ˹remember˺ when We took a covenant from you and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”](https://quranwbw.com/2/63)
 
 * __2/64__: [Yet you turned away afterwards. Had it not been for Allah’s grace and mercy upon you, you would have certainly been of the losers.](https://quranwbw.com/2/64) 
 

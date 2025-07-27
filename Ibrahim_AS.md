@@ -152,11 +152,15 @@
 
 126  And [mention] when Abraham said, “My Lord, make this a secure city and provide its people with fruits – whoever of them believes in Allah and the Last Day.” [Allah] said. “And whoever disbelieves – I will grant him enjoyment for a little; then I will force him to the punishment of the Fire, and wretched is the destination.
 
+***
+
 (2:127)
 
 ١٢٧  وَإِذْ يَرْفَعُ إِبْرَاهِيمُ الْقَوَاعِدَ مِنَ الْبَيْتِ وَإِسْمَاعِيلُ رَبَّنَا تَقَبَّلْ مِنَّا ۖ إِنَّكَ أَنْتَ السَّمِيعُ الْعَلِيمُ
 
 127  And [mention] when Abraham was raising the foundations of the House and [with him] Ishmael, [saying], “Our Lord, accept [this] from us. Indeed You are the Hearing, the Knowing.
+
+***
 
 (2:130)
 

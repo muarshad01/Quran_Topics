@@ -4,28 +4,28 @@
 ***
 
 *  1 - Adam
-*  2 - Idris (Enoch)
-*  3 - __Nuh (Noah)__: Surah 71; 17/3 (abdan shakooraa)
+*  2 - Idris (Enoch): https://quranwbw.com/21/85
+*  3 - [__Nuh (Noah)__](https://quranwbw.com/21/76): Surah 71; 17/3 (abdan shakooraa); 
 *  4 -  Hud (Heber)
 *  5 -  Saleh (Methusaleh)
-*  6 -  Lut (Lot)
-*  7 -  __[Ibrahim (Abraham)](https://myislam.org/quran-verses/prophet-ibrahim/)__: Surah 14/52
-*  8 -  Ismail (Ishmael)
-*  9 -  Ishaq (Isaac)
-* 10 -  Yaqub (Jacob) [Israel]
+*  6 -  Lut (Lot): https://quranwbw.com/21/74
+*  7 -  [__Ibrahim (Abraham)__](https://quranwbw.com/21/69): Surah 14/52
+*  8 -  [Ismail (Ishmael)](https://quranwbw.com/21/85)
+*  9 -  [Ishaq (Isaac)](https://quranwbw.com/21/72)
+* 10 -  [Yaqub (Jacob) [Israel]](https://quranwbw.com/21/72)
 * 11 -  Yusuf (Joseph)
 * 12 -  Shu’aib (Jethro)
-* 13 -  Ayyub (Job)
-* 14 -  Dhulkifl (Ezekiel)
-* 15 -  __Musa (Moses)__
-* 16 -  Harun (Aaron)
+* 13 -  [Ayyub (Job)](https://quranwbw.com/21/83)
+* 14 -  [Dhulkifl (Ezekiel)](https://quranwbw.com/21/85)
+* 15 -  [Musa (Moses)](https://quranwbw.com/21/48)
+* 16 -  [Harun (Aaron)](https://quranwbw.com/21/48)
 * 17 -  Talut (Soul)
-* 18 -  Dawud (David)
-* 19 -  Sulayman (Solomon)
+* 18 -  [Dawud (David)](https://quranwbw.com/21/78)
+* 19 -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
 * 20 -  Ilyas (Elias)
 * 21 -  Alyasa (Elisha)
 * 22 -  Yunus (Jonah)
-* 23 -  Zakariya (Zachariah)
+* 23 -  [Zakariya (Zachariah)](https://quranwbw.com/21/89)
 * 24 -  Yahya (John the Baptist)
 * 25 -  __Isa (Jesus)__: 
 * 26 -  __Muhammad PBUH__: Surah 47

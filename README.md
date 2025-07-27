@@ -1,5 +1,5 @@
 #### Tauz (أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
-* __Surah An-Nahl 16/98__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+* __Surah An-Nahl 16/98 (Quran Recitation)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
   
 #### Shikwa of Allah SWT - Qadar (Respect) of Allah SWT
 * __Surah Al-Hajj 22/74__: [ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw.com/22#74)

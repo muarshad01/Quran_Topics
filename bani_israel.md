@@ -9,7 +9,7 @@
 
 ## Al-Baqarah
 
-* __2/40 (Fulfill My Covenant)__: [O children of Israel!1 Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
+* __2/40 (Fulfill My Covenant)__: [O children of Israel! Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
 
 * __2/44-46 (Preach Righteousness)__:[](https://quranwbw.com/2/44-46)
 

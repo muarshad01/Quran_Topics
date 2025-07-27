@@ -2,11 +2,11 @@
 
 ***
 
-* __Surah Al-Baqarah Ayat 71__: []()
-* __Surah Al-Baqarah Ayat 124__: []()
-* __Surah Al-Baqarah Ayat 125__: []()
-* __Surah Al-Baqarah Ayat 126__: []()
-* __Surah Al-Baqarah Ayat 127__: []()
+* __Surah Al-Baqarah Ayat 2/71__: []()
+* __Surah Al-Baqarah Ayat 2/124__: []()
+* __Surah Al-Baqarah Ayat 2/125__: []()
+* __Surah Al-Baqarah Ayat 2/126__: []()
+* __Surah Al-Baqarah Ayat 2/127__: []()
 * __Surah Al-Baqarah Ayat 128__: []()
 * __Surah Al-Baqarah Ayat 130__: []()
 * __Surah Al-Baqarah Ayat 132__: []()
@@ -126,6 +126,6 @@
 
 *** 
 
-* __Surah Al-Ala Ayat 19__: []()
+* __Surah Al-Ala 87/19__: [the Scriptures of Abraham and Moses.](https://quranwbw.com/87/19)
 
 ***

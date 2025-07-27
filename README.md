@@ -35,3 +35,4 @@
 |31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
 |32. | [Satan](https://github.com/muarshad01/Quran_Topics/blob/main/Satan.md)|July, 2025|
 |33. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Ibrahim_AS.md)|July, 2025|
+|34. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Gog_Magog.md)| July 2025|

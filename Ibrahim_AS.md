@@ -122,7 +122,6 @@
 * __Surah An-Najm Ayat 37__: []()
 
 *** 
-
 * __Surah Al-Hadid Ayat 26__: []()
 
 *** 

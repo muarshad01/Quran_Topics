@@ -4,7 +4,7 @@
 |3. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 2025 |
 |4. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 2025 |
 |5. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/promise.md)| July 2025 |
-|6. | [Love of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 2025|
+|6. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 2025|
 |7. | [Sabr (Patience, Perseverance, or Steadfastness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md) | July 2025 |
 |2. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 2025 |
 |8. | [Rizq (Sustenance or provision that Allah bestows upon all Creation)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |

@@ -16,6 +16,8 @@
 |1. | [Zikr (Remembrance of Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 2025| 
 |2. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 2025 |
 |3. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 2025 | 
+|4. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | July 2025 |
+|5. | [Tawaqqal (Placing one's trust and reliance on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | July 2025 |
 
 ***
 
@@ -30,8 +32,6 @@
 |8. | [Al-Insan (Humankind)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/insaan_in_quran.md) | Jun 25, 2025 |
 |9. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/qaraz_hasana.md) | Jun 25, 2025 |
 |13. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 |
-|14. | [Fawz (Success)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/success.md)  | Jun 25, 2025 |
-|15. | [Tawaqqal (Placing one's trust and reliance on Allah (SWT) in all matters)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tawaqqal.md) | Jun 25, 2025 |
 |15. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
 |22. | [Tauheed](https://github.com/muarshad01/Quran_Topics/blob/main/tauheed.md) | xxx, 2025|
 |23. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|

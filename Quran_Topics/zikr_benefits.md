@@ -1,0 +1,117 @@
+#### [Importance of Zikr | Baba Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
+* __Surah Yunus__: [Had he not ˹constantly˺ glorified ˹Allah˺, he would have certainly remained in its belly until the Day of Resurrection.](https://quran.com/37/143-144)
+* __Surah Al-Isra 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quran.com/17/82)
+     
+#### [Zikar ky Zindgi Pr Asaraat | Baba Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
+* Attitudes, Behavior, Temperament, Moral, Genetic Problems, All-issues
+* __Under debt__: `Ya Zuljalal Wal Ikram`
+
+#### [Benefits of Tasbeeh, Zikar and remembrance of Allah kareem | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
+* No body can fight that person
+
+***
+
+#### Rememberance & Thankfulness
+* __Surah Al-Baqarah 2/152__: [Rremember Me; I will remember you. And thank Me, and never be ungrateful](https://quran.com/2/152)
+
+***
+
+#### Standing, Sitting, and Side-potition
+* __Surah Ali 'Imran 3/191__: [˹They are˺ those who remember Allah while standing, sitting, and lying on their sides, and reflect on the creation of the heavens and the earth ˹and pray˺, “Our Lord! You have not created ˹all of˺ this without purpose. Glory be to You! Protect us from the torment of the Fire.](https://quran.com/3/191)
+
+***
+
+#### Zikr after prayers: Standing, Sitting, or Lying-down
+* [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quran.com/4/103)
+
+***
+
+* __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
+
+***
+
+#### Hearts find Comfort
+* __Surah Ar-Rad 13/28__: [Surely in the remembrance of Allah do hearts find comfort.](https://quran.com/en/13/28)
+
+***
+
+* __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quran.com/18/28)
+* __Surah Al-Kahf 18/101__: [those who turned a blind eye to My Reminder1 and could not stand listening ˹to it˺.](https://quran.com/18/101)
+
+***
+
+#### We'll protect it
+* __Surah Al-Hijr 15/9__: [It is certainly We Who have revealed the Reminder, and it is certainly We Who will preserve it.](https://quran.com/15/9)
+
+***
+
+#### Shifa and Rehmat
+* __Surah Al-Isra 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quran.com/17/82)
+
+***
+
+* __Surah Taha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quran.com/20/14)
+
+***
+
+* __Surah Al-Anbya 21/10__: [We have surely revealed to you a Book, in which there is glory for you. Will you not then understand?](https://quran.com/21/10)
+
+***
+
+### Morning, Zuhar, Evening, Isha
+* __Surah Ar-Rum__: [So glorify Allah in the evening and in the morning. All praise is for Him in the heavens and the earth—as well as in the afternoon, and at noon.](https://quran.com/30/17-18)
+
+***
+
+#### Benefits In The Hereafter: Forgiveness & Great Reward
+* __Surah Al-Ahzab 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quran.com/33/35)
+
+#### zikran kaseera
+* __Surah Al-Ahzab 33/41__: [O believers! Always remember Allah often,](https://quran.com/33/41)
+* __Surah Jummah 62/10__: [And remember Allah often so you may be successful.](https://quran.com/62/10)
+
+#### Morning and Evening
+* __Surah Al-Ahzab 33/42__: [and glorify Him morning and evening.](https://quran.com/33/42)
+***
+
+#### Yunus AS
+* __Surah Yunus 37/143-144__: [Had he not been of them who glorify Allah. He would have indeed remained inside its belly (the fish) till the Day of Resurrection](https://quranwbw.com/37#143-144)
+
+***
+
+* __Surah Sad 38/1__: [Ṣãd. By the Quran, full of reminders!](https://quran.com/38/1)
+* __Surah Sad 38/49__: [ This is ˹all˺ a reminder. And the righteous will certainly have an honourable destination](https://quran.com/38/49)
+
+***
+
+* __Surah Az-Zukhruf 43/36-38__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quran.com/43/36-38)
+
+* __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quran.com/43/44)
+
+***
+
+* __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quran.com/54/17)
+
+***
+
+#### Remember Allah a lot so that you be Successful
+* __Surah Jummah 62/10__: [And remember Allah often so you may be successful.](https://quran.com/62/10)
+
+***
+
+* __Surah 68/51__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.”](https://quran.com/68/51)
+
+***
+
+__Surah At-Takwir 81/27__: [Surely this ˹Quran˺ is only a reminder to the whole world—](https://quranwbw.com/87/27)
+
+***
+
+* __Surah Al-Ala 87/1__: [Glorify the Name of your Lord, the Most High.](https://quran.com/87/1)
+* __Surah Al-Ala 87/14-15__: [Successful indeed are those who purify themselves, remember the Name of their Lord, and pray.](https://quran.com/87/14-15)
+
+***
+
+* __Surah Ash-Sharh 94/4__: [and elevated your renown for you?](https://quran.com/94/4)
+
+***

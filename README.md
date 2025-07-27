@@ -27,7 +27,7 @@
 |2. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Jahil_Ignorant.md)  | Jun 25, 2025 |
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|
 |4. | [Al-Insan (Humankind)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/insaan_in_quran.md) | Jun 25, 2025 |
-|5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need]
+|5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/qaraz_hasana.md) | Jun 25, 2025 |
 |6. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
 |7. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/nafs.md) | Jun 25, 2025 |
 
@@ -37,7 +37,7 @@
 |---|---|---|
 |31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
 |1. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](...)|...|
-(https://github.com/muarshad01/YouTube_Videos/blob/main/quran/qaraz_hasana.md) | Jun 25, 2025 |
+
 |13. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 |
 |15. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
 |22. | [Tauheed](https://github.com/muarshad01/Quran_Topics/blob/main/tauheed.md) | xxx, 2025|

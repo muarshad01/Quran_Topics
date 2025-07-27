@@ -3,6 +3,14 @@
 
 ***
 
+* Wife Sara and Hajra
+* His Father (Azar)
+* Was Thrown in Fire
+* Was ordered to Leave Ismael and Hajra in Makkah
+* Was ordered to Slaughter his Son
+
+***
+
 (2:124)
 ١٢٤  وَإِذِ ابْتَلَىٰ إِبْرَاهِيمَ رَبُّهُ بِكَلِمَاتٍ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّي جَاعِلُكَ لِلنَّاسِ إِمَامًا ۖ قَالَ وَمِنْ ذُرِّيَّتِي ۖ قَالَ لَا يَنَالُ عَهْدِي الظَّالِمِينَ
 

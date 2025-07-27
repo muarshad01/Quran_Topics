@@ -33,21 +33,32 @@
 
 
 ***
+
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
-|1. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](...)|...|
-|13. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 |
-|15. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
-|22. | [Tauheed](https://github.com/muarshad01/Quran_Topics/blob/main/tauheed.md) | xxx, 2025|
-|23. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|
-|25. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|
-|26. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| 
-|27. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
-|29. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Trouble.md)| July, 2025|
-|30. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/prophets.md)| July, 2025|
-|33. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Ibrahim_AS.md)|July, 2025|
-|32. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)|July 27, 2025|
-|17. | [Satan makes you forget](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Nasiya_forgot.md) | Jun 26, 2025 |
-|34. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Gog_Magog.md)| July 2025|
+|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Trouble.md)| July, 2025|
+|2. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
+|4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/tauheed.md) | xxx, 2025|
+|5. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| 
+|6. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 
 
+***
+
+|   | Topic                      | Last Updated               |
+|---|---|---|
+|1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|
+|2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/prophets.md)| July, 2025|
+|3. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Ibrahim_AS.md)|July, 2025|
+|4. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)|July 27, 2025|
+|5. | [Satan makes you forget](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Nasiya_forgot.md) | Jun 26, 2025 |
+|6. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Gog_Magog.md)| July 2025|
+
+***
+
+|   | Topic                      | Last Updated               |
+|---|---|---|
+|1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|
+|2. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
+|3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
+
+***

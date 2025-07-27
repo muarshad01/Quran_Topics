@@ -227,32 +227,23 @@
 ***
 ***
 
+#### [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
+* When Prophet PBUH comes, accept Him. I'll give you double reward!
+* __Surah Al-Qasas 28/54 (Double Reward)__: [These ˹believers˺ will be given a double reward for their perseverance, responding to evil with good, and for donating from what We have provided for them.](https://quranwbw.com/28/54)
+
 #### [Story of Bani Israel’s Cow | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
 
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 
-***
-
 #### [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
-* https://quranwbw.com/2/61
-
-***
-
-#### [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
-* When Prophet PBUH comes, accept Him. I'll give you double reward!
-* __Surah Al-Qasas 28/54__: [Double Reward](https://quranwbw.com/28/54)
-
-***
 
 #### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=117s)
 
-***
-  
-### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
+#### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
 
 ***
 
-## [Bani Israel ki tean khabasaat - Mufti Muneer Ahmed Akhoon - Raham TV](https://www.youtube.com/watch?v=vn_xHp2BoRM)
+## [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
 1. When Moutain was lifted and then Allah brought it down, but they refused again. 
 2. Sabath (Catching Fisth by Net)
 3. Murder at the time of Prophet Musa (Cow story)
@@ -260,14 +251,12 @@
 ***
 
 ## [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)
-* Made Monkeys & Swine (Sabath)
+* Made Monkeys & Swine (Sabaath)
 * Killed Prophets morning / evening
 * 6 tribes fought against 6 other tribes
 * Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
-* __Surah Al-Qasas Ayat 15__: [˹One day˺ he entered the city unnoticed by its people.1 There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
-
-***
-
+* __Surah Al-Qasas Ayat 15__: [˹One day˺ he entered the city unnoticed by its people. There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
+  
 #### Muslims
 * You can't change a word in Quran
 * We have Imam of ALL Nabi

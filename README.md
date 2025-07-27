@@ -19,7 +19,7 @@
 |16. | [Thankfulness](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/thank_in_quran.md) | Jun 25, 2025 |
 |17. | [Satan makes you forget](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Nasiya_forgot.md) | Jun 26, 2025 |
 |18. | [ Sabr (Patience)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md)| Jun 27, 2025 |
-|19. | [Rehmat (Mercey) of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Rehmat_Mercey.md) | July 2025 |
+|19. | [Rehmat (Mercey) of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025 |
 |20. | [Fazal](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/fazal.md)| July 3, 2025 |
 |20. | [Promise](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/promise.md)| July 3, 2025 |
 |21. | [Love of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/allah_ki_mohabbat.md) | July 3, 2025|

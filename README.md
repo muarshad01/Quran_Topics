@@ -7,7 +7,7 @@
 |5. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 2025|
 |6. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 2025 |
 |7. | [Rizq (Sustenance or provision that Allah bestows upon all Creation)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-
+|2. | [As-Salat (Namaz)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/namaaz_in_quran.md)       | Jun 25, 2025 |
 
 ***
 
@@ -23,23 +23,28 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|12. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
+|. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Ilm.md)| xxx, 2025|
+|2. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Jahil_Ignorant.md)  | Jun 25, 2025 |
+|3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|
+|4. | [Al-Insan (Humankind)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/insaan_in_quran.md) | Jun 25, 2025 |
+|5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need]
+|6. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
+|7. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/nafs.md) | Jun 25, 2025 |
+
+
+***
+|   | Topic                      | Last Updated               |
+|---|---|---|
 |31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
 |1. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](...)|...|
-|2. | [As-Salat (Namaz)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/namaaz_in_quran.md)       | Jun 25, 2025 |
-|6. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/nafs.md) | Jun 25, 2025 |
-|7. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Jahil_Ignorant.md)  | Jun 25, 2025 |
-|8. | [Al-Insan (Humankind)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/insaan_in_quran.md) | Jun 25, 2025 |
-|9. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/qaraz_hasana.md) | Jun 25, 2025 |
+(https://github.com/muarshad01/YouTube_Videos/blob/main/quran/qaraz_hasana.md) | Jun 25, 2025 |
 |13. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 |
 |15. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
 |22. | [Tauheed](https://github.com/muarshad01/Quran_Topics/blob/main/tauheed.md) | xxx, 2025|
 |23. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|
-|24. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Ilm.md)| xxx, 2025|
 |25. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|
 |26. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| 
 |27. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
-|28. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|
 |29. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Trouble.md)| July, 2025|
 |30. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/prophets.md)| July, 2025|
 |33. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Ibrahim_AS.md)|July, 2025|

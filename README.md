@@ -36,11 +36,11 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Trouble.md)| July, 2025|
-|2. | [Tazkia](https://github.com/muarshad01/Quran_Topics/blob/main/tazkia.md) | xxx, 2025|
-|4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/tauheed.md) | xxx, 2025|
-|5. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/amr_of_allah.md)| 
-|6. | [Sajdah (Act of prostration)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sajdah.md) | Jun 25, 2025 
+|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md)| July 2025|
+|2. | [Tazkia (Purification)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
+|4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
+|5. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/amr_of_allah.md)| July 2025 |
+|6. | [Sajdah (Act of prostration)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sajdah.md) | July 2025 
 
 ***
 

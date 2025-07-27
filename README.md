@@ -1,8 +1,6 @@
 #### Tauz (أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
 * __Surah An-Nahl 16/98__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
-
-*** 
-
+  
 #### Shikwa of Allah SWT - Qadar (Respect) of Allah SWT
 * __Surah Al-Hajj 22/74__: [ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw.com/22#74)
 * __Surah Nuh 71/13__: [What is the matter with you that you are not in awe of the Majesty of Allah,](https://quranwbw.com/71/13)
@@ -22,7 +20,7 @@
 #### You'll be asked about it
 * __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quran.com/43/44)
 
-### Whose words are better than the Person?
+#### Whose words are better than the Person?
 * __Surah Fussilat 41/33__: [And whose words are better than someone who calls ˹others˺ to Allah](https://quran.com/41/33-35)
 * __Surah Al-Asr__: [https://quran.com/103](https://quran.com/103)
 

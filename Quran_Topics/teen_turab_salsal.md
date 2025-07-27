@@ -1,0 +1,47 @@
+### Sijjilin
+
+* __Surah Al Fil 105/4__: [Striking them with stones of Sijjil](https://quranwbw.com/105#4)
+
+***
+
+### Salsalin (Clay)
+
+* __Surah Al-Hijr 15/26 (Salsalin)__: [salsalin min hama-in masnunin (Clay of altered black-smooth-mud)](https://quranwbw.com/15#26)
+
+* __Surah Al-Hijr 15/28 (Salsalin)__: [salsalin min hama-in masnunin (Clay of altered black-smooth-mud)](https://quranwbw.com/15#28)
+
+* __Surah Al-Hijr 15/233 (Salsalin)__: [salsalin min hama-in masnunin (Clay of altered black-smooth-mud)](https://quranwbw.com/15#33)
+
+* __Surah Ar-Rahman 55/14 (Salsalin)__: [salsalin kal-fakhari (Clay like the clay-of-pottery)](https://quranwbw.com/55#14)
+
+***
+
+### Tini
+
+* __Surah Al-Muminum 23/12-14 (Tini)__: [sulalatin min tini (An extract of clay)](https://quranwbw.com/23#12-14)
+
+* __Surah As-Saffat 37/11 (Tinin Lazibin)__: [Verily, We created them of a sticky clay](https://quranwbw.com/37#11)
+
+***
+
+### Turab (Dust):
+
+* __Surah Raad 13/5 (Turaban)__: [˹Now,˺ if anything should amaze you ˹O Prophet˺, then it is their question: “When we are reduced to dust, will we really be raised as a new creation?” It is they who have disbelieved in their Lord. It is they who will have shackles around their necks. And it is they who will be the residents of the Fire. They will be there forever.](https://quran.com/13/5)
+
+* __Surah Al-Kahf 18/37 (Turabin)__: [Akofarta bil-ladhi khalaqaka min turabin](https://quranwbw.com/18#37)
+
+* __Surah Al-Hajj 22/5 (Turabin)__ [Ya ayyuha'l-naasu in kuntum fi raybin mina'l-ba'thi fa inna khalaqnaakum min turabin](https://quranwbw.com/22#5)
+
+* __Surah Al-Muminoon 23/35 (Turaban)__: [Ayya'idukum anna'kum idha mittum wa kuntum turaban wa 'izhaman anna'kum mukhrujun](https://quranwbw.com/23#35)
+
+* __Surah Ar-Room 30/20 (Turabin)__: [Wamin ayatihi an khalaqakum min turabin thumma idha antum basha'r tanta'shurun](https://quranwbw.com/30#20)
+
+* __Surah Faatir 35/11 (Turabin)__: [Wallahu khalaqakum min turabin thumma min nutfah thumma ja'ala'kum azwaajaa](https://quranwbw.com/35#11)
+
+* __Surah As Saffat 37/16 (Turaban)__: [Verily, We created them of a sticky clay](https://quranwbw.com/37#16)
+
+* __Surah As Saffat 37/52 (Turaban)__: [(That) when we die and become dust and bones, shall we indeed (be raised up) to receive reward or punishment (according to our deeds)](https://quranwbw.com/37#53)
+
+* __Surah An-Naba 78/40 (Ruraban)__: [Indeed, We have warned you of an imminent punishment—the Day every person will see ˹the consequences of˺ what their hands have done, and the disbelievers will cry, “I wish I were dust.”](https://quranwbw.com/78/40)
+
+***

@@ -46,12 +46,12 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/bani_israel.md)| xxx, 2025|
-|2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/prophets.md)| July, 2025|
-|3. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Ibrahim_AS.md)|July, 2025|
+|1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md)| xxx, 2025|
+|2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets.md)| July, 2025|
+|3. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ibrahim_AS.md)|July, 2025|
 |4. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)|July 27, 2025|
-|5. | [Satan makes you forget](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Nasiya_forgot.md) | Jun 26, 2025 |
-|6. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Gog_Magog.md)| July 2025|
+|5. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | Jun 26, 2025 |
+|6. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md)| July 2025|
 
 ***
 

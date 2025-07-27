@@ -7,7 +7,7 @@
 |5. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 2025|
 |6. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 2025 |
 |7. | [Rizq (Sustenance or provision that Allah bestows upon all Creation)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-|2. | [As-Salat (Namaz)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/namaaz_in_quran.md)       | Jun 25, 2025 |
+|2. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)       | Jun 25, 2025 |
 
 ***
 

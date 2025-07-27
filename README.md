@@ -33,6 +33,6 @@
 |29. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Trouble.md)| July, 2025|
 |30. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/prophets.md)| July, 2025|
 |31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
-|32. | [Satan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)|July 27, 2025|
+|32. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)|July 27, 2025|
 |33. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Ibrahim_AS.md)|July, 2025|
 |34. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Gog_Magog.md)| July 2025|

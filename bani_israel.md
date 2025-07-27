@@ -225,6 +225,8 @@
 ***
 ***
 
+#### [Story of Bani Israel’s Cow | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
+
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 
 ***

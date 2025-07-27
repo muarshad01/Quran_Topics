@@ -57,8 +57,8 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Islamic_Wars.md) | xxx, 2025|
-|2. | [Types of Clay](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/teen_turab_salsal.md) | Jun 25, 2025 |
-|3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
+|1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | xxx, 2025|
+|2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | Jun 25, 2025 |
+|3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July, 2025|
 
 ***

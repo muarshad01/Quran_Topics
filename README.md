@@ -6,8 +6,8 @@
 |4. | [Fazal (Bounty)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/fazal.md)| July 2025 |
 |5. | [Promise (Covenant)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/promise.md)| July 2025 |
 |6. | [Love of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/allah_ki_mohabbat.md) | July 2025|
-|7. | [Sabr (Patience, Perseverance, or Steadfastness)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md) | July2025 |
-|8. | [Rizq (Sustenance or provision that Allah bestows upon all Creation)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/rizq.md) | Jun 25, 2025 |
+|7. | [Sabr (Patience, Perseverance, or Steadfastness)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md) | July 2025 |
+|8. | [Rizq (Sustenance or provision that Allah bestows upon all Creation)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/rizq.md) | July 2025 |
 
 ***
 |   | Topic                      | Last Updated               |

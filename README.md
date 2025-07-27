@@ -25,12 +25,11 @@
 |---|---|---|
 |1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ilm.md)| July 2025|
 |2. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Jahil_Ignorant.md)  | July 2025 |
-|3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| xxx, 2025|
+|3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |4. | [Al-Insan (Humankind)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan_in_quran.md) | July 2025 |
-|5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | Jun 25, 2025 |
+|5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
 |6. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |
 |7. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
-
 
 ***
 
@@ -46,11 +45,11 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md)| xxx, 2025|
-|2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets.md)| July, 2025|
-|3. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ibrahim_AS.md)|July, 2025|
-|4. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)|July 27, 2025|
-|5. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | Jun 26, 2025 |
+|1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md)| July 2025|
+|2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets.md)| July 2025|
+|3. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ibrahim_AS.md)| July 2025|
+|4. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)| July 2025|
+|5. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
 |6. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md)| July 2025|
 
 ***

@@ -24,6 +24,8 @@
 * __Surah Fussilat 41/33__: [And whose words are better than someone who calls ˹others˺ to Allah](https://quran.com/41/33-35)
 * __Surah Al-Asr__: [https://quran.com/103](https://quran.com/103)
 
+* __Surah At-Tariq (Decisive Word; Don't take it lightly)__: [Surely this ˹Quran˺ is a decisive word, and is not to be taken lightly.](https://quran.com/86/13-14)
+
 ***
 ***
 

@@ -11,6 +11,8 @@
 
 ***
 
+|   | Topic                      | Last Updated               |
+|---|---|---|
 |1. | [Zikr (Remembrance of Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 2025| 
 |2. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 2025 |
 |3. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 2025 | 

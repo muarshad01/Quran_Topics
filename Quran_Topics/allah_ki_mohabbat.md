@@ -1,11 +1,3 @@
-# Allah SWT Doesn'y LIKE
-
-* __Surah An-Nisaa 4/148__: [Allah does not like negative thoughts to be voiced—except by those who have been wronged.1 Allah is All-Hearing, All-Knowing.](https://quranwbw.com/4/148)
-* __Surah An-Nisaa 4/368__: [Worship Allah ˹alone˺ and associate none with Him. And be kind to parents, relatives, orphans, the poor, near and distant neighbours, close friends, ˹needy˺ travellers, and those ˹bondspeople˺ in your possession. Surely Allah does not like whoever is arrogant, boastful—](https://quranwbw.com/4/36)
-
-
-***
-
 # Allah SWT Ki Mohabbat
 * https://www.youtube.com/shorts/2ARfP9AiVLU
   
@@ -79,3 +71,9 @@
 * __Surah Al Mumtahana (60:8)__: [Allah does not forbid you from those who do not fight you because of religion and do not expel you from your homes – from being righteous toward them and acting justly toward them. Indeed, Allah loves those who are equitable (act justly).](https://quran.com/60/8)
 
 ***
+
+# Allah SWT Doesn't LIKE
+
+* __Surah An-Nisaa 4/148__: [Allah does not like negative thoughts to be voiced—except by those who have been wronged.1 Allah is All-Hearing, All-Knowing.](https://quranwbw.com/4/148)
+* __Surah An-Nisaa 4/368__: [Worship Allah ˹alone˺ and associate none with Him. And be kind to parents, relatives, orphans, the poor, near and distant neighbours, close friends, ˹needy˺ travellers, and those ˹bondspeople˺ in your possession. Surely Allah does not like whoever is arrogant, boastful—](https://quranwbw.com/4/36)
+

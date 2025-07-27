@@ -2,11 +2,16 @@
 |---|---|---|
 |19. | [Rehmat (Mercey) of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025 |
 |18. | [ Sabr (Patience)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md)| Jun 27, 2025 |
+|16. | [Thankfulness](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/thank_in_quran.md) | Jun 25, 2025 |
 |20. | [Fazal](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/fazal.md)| July 3, 2025 |
 |20. | [Promise](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/promise.md)| July 3, 2025 |
 |21. | [Love of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/allah_ki_mohabbat.md) | July 3, 2025|
 |5. | [Sabr (Patience, perseverance, or steadfastness)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sabr_patience.md) | Jun 25, 2025 |
 |10. | [Rizq (Sustenance or provision that Allah bestows upon all creation)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/rizq.md) | Jun 25, 2025 |
+
+***
+|   | Topic                      | Last Updated               |
+|---|---|---|
 |12. | [Sirat (or Sirat al-Mustaqim) refers to the straight-path" or the right-way](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/sirat.md) | Jun 25, 2025 |
 |31. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Tanhi_Solitude.md)| July, 2025|
 |1. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](...)|...|
@@ -14,7 +19,6 @@
 |3. | [Zikr (or Dhikr) Remembrance of Allah (SWT)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/zikr_benefits.md) | Jun 26, 2025| 
 |4. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Istighfar.md) | Jun 25, 2025 |
 |11. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/tasbeeh_in_quran.md) | Jun 25, 2025 | 
-|16. | [Thankfulness](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/thank_in_quran.md) | Jun 25, 2025 |
 |6. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/nafs.md) | Jun 25, 2025 |
 |7. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/Jahil_Ignorant.md)  | Jun 25, 2025 |
 |8. | [Al-Insan (Humankind)](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/insaan_in_quran.md) | Jun 25, 2025 |

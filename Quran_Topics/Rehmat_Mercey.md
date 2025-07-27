@@ -19,8 +19,8 @@
 
 ***
 
-* __Surah Al-Imran 3/8__: [](https://quranwbw.com/3/8)
-* __Surah Al-Imran 3/74__: [](https://quranwbw.com/3/74)
+* __Surah Al-Imran 3/8__: [˹They say,˺ “Our Lord! Do not let our hearts deviate after you have guided us. Grant us Your mercy. You are indeed the Giver ˹of all bounties˺.](https://quranwbw.com/3/8)
+* __Surah Al-Imran 3/74__: [He chooses whoever He wills to receive His mercy. And Allah is the Lord of infinite bounty.](https://quranwbw.com/3/74)
 * __Surah Al-Imran 3/107__: [](https://quranwbw.com/3/107)
 * __Surah Al-Imran 3/132__: [](https://quranwbw.com/3/132)
 * __Surah Al-Imran 3/157__: [](https://quranwbw.com/3/157)

@@ -23,9 +23,9 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Ilm.md)| July 2025|
+|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ilm.md)| July 2025|
 |2. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Jahil_Ignorant.md)  | July 2025 |
-|3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/faqeer-jahil-haqeer.md)| xxx, 2025|
+|3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| xxx, 2025|
 |4. | [Al-Insan (Humankind)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan_in_quran.md) | July 2025 |
 |5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | Jun 25, 2025 |
 |6. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |

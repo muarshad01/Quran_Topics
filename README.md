@@ -3,32 +3,32 @@
 |1. | Introduction | July 2025 | :heavy_check_mark: |
 
 #### Tauz (أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
-* __Surah An-Nahl 16/98 (Quran Recitation)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+* __Surah An-Nahl [The Bee] 16/98 (When you Recite Quran!)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
   
 #### Shikwa of Allah SWT - Qadar (Respect) of Allah SWT
-* __Surah Al-Hajj 22/74__: [ma qadaru al-laha haqqa qadrihi inna al-laha laqawiyyun azizun](https://quranwbw.com/22#74)
-* __Surah Nuh 71/13__: [What is the matter with you that you are not in awe of the Majesty of Allah,](https://quranwbw.com/71/13)
+* __Surah Al-Hajj 22/74__: [They have not shown Allah the reverence He deserves. Surely Allah is All-Powerful, Almighty.](https://quranwbw.com/22#74)
+* __Surah Noah 71/13__: [What is the matter with you that you are not in awe of the Majesty of Allah,](https://quranwbw.com/71/13)
   
 #### Shikwa of Prophet Muhammad PBUH - with Allah about his Ummah
-* __Surah Al-Furqan 25/30__: [Waqala al-rasulu Ya-Rabbi inna Qawmi ittakhadhu hadha al-qur'ana Mahjuran](https://quran.com/25/30)
+* __Surah Al-Furqan [The Criterion] 25/30__: [The Messenger has cried, “O my Lord! My people have indeed received this Quran with neglect.”](https://quranwbw.com/25/30)
 
 #### Wisdom (A Great Privilege)
-* __Surah Al-Baqarah 2/269 (Wisdom)__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.](https://quran.com/2/269)
+* __Surah Al-Baqarah 2/269 (Wisdom)__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/2/269)
 
 #### Open Hearts to Islam
-* __Surah Al-Anam 6/125 (Who Allah SWT wills to guide...)__: [Whoever Allah wills to guide, He opens their heart to Islam...](https://quranwbw.com/6/125)
+* __Surah Al-Anam [The Cattle] 6/125 (Who Allah SWT wills to guide...)__: [Whoever Allah wills to guide, He opens their heart to Islam.1 But whoever He wills to leave astray, He makes their chest tight and constricted as if they were climbing up into the sky. This is how Allah dooms those who disbelieve.](https://quranwbw.com/6/125)
 
 #### Quran puts a Barrier
-* __Surah Al-Isra 17/45 (Puts a Barrier)__: [When you ˹O Prophet˺ recite the Quran, We put a hidden barrier between you and those who do not believe in the Hereafter.](https://quran.com/17/45)
+* __Surah Al-Isra [The Night Journey] 17/45 (Puts a Barrier)__: [When you ˹O Prophet˺ recite the Quran, We put a hidden barrier between you and those who do not believe in the Hereafter.](https://quranwbw.com/17/45)
 
 #### You'll be asked about it
-* __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quran.com/43/44)
+* __Surah Az-Zukhruf [Ornaments of Gold] 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quranwbw.com/43/44)
 
 #### Whose words are better than the Person?
-* __Surah Fussilat 41/33__: [And whose words are better than someone who calls ˹others˺ to Allah](https://quran.com/41/33-35)
-* __Surah Al-Asr__: [https://quran.com/103](https://quran.com/103)
+* __Surah Fussilat [Explained in Details] 41/33__: [And whose words are better than someone who calls ˹others˺ to Allah, does good, and says, “I am truly one of those who submit.”?](https://quranwbw.com/41/33-35)
+* __Surah Al-Asr 103__: [(1) By the ˹passage of˺ time! (2) Surely humanity is in ˹grave˺ loss, (3) except those who have faith, do good, and urge each other to the truth, and urge each other to perseverance.](https://quranwbw.com/103)
 
-* __Surah At-Tariq (Decisive Word; Don't take it lightly)__: [Surely this ˹Quran˺ is a decisive word, and is not to be taken lightly.](https://quran.com/86/13-14)
+* __Surah At-Tariq 86/13-14 (Decisive Word; Don't take it lightly)__: [Surely this ˹Quran˺ is a decisive word, and is not to be taken lightly.](https://quran.com/86/13-14)
 
 ***
 ***

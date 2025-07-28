@@ -1,6 +1,8 @@
 ### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
 ### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
 
+* https://www.youtube.com/shorts/_mZCW8VDuHI
+
 ***
 
 * Wife Sara and Hajra

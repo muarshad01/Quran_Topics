@@ -98,6 +98,7 @@
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
 |4. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
 |5. | [Digits...](...) | July 2025|
+|6. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)|July 2025|
 |6. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/east_and_west.md) | July 2025|
 |7. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/angels_in_quran.com) | July 2025|
 |8. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hoor_in_quran.md) | July 2025|
@@ -105,7 +106,13 @@
 |10. | [Fingerprint](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fingerprint.md) | July 2025|
 |11. | [Swear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/swear_in_quran.md) | July 2025|
 |12. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
-|13. | [Animal...](...) | July 2025|
+|13. | [Animal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/animals.md) | July 2025|
 |14. | [Gates](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md) |July 2025|
-
+|14. | [Anfiqu..]() |July 2025|
+|14. | [Haqq]() |July 2025|
+|14. | [Jannah]()  |July 2025|
+|14. | [Solomon...](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
+|14. | [Awabeen (https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)]()  |July 2025|
+|14. | []()  |July 2025|
+|14. | []()  |July 2025|
 ***

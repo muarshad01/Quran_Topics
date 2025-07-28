@@ -1,3 +1,7 @@
+|   | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
+|---|---|---|--- | ---| ---| ---|--|
+|1. | Introduction | July 2025 | :heavy_check_mark: |
+
 #### Tauz (أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
 * __Surah An-Nahl 16/98 (Quran Recitation)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
   

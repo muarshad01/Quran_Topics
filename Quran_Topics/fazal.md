@@ -26,6 +26,7 @@
 
 ### But Allah purifies whoever He wills
 * __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
+   * yastanbitunahu (referring to those possessing the capacity to draw inferences directly from the evidence, which is called in Arabic istinbat)
 
 ***
 

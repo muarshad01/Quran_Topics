@@ -14,6 +14,11 @@
 
 ***
 
+* __Surah Raad 13/2__: [It is Allah Who has raised the heavens without pillars—as you can see—then established Himself on the Throne. He has subjected the sun and the moon, each orbiting for an appointed term. He conducts the whole affair. He makes the signs clear so that you may be certain of the meeting with your Lord.](https://quran.com/13/2)
+
+***
+
+
 ### [Sahib-e-Amar - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=0VvlyDXYcek)
 * Hazrat Hassa RA says:
 1. Iron

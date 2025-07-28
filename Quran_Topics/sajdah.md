@@ -1,6 +1,7 @@
 
 ### [Sajda ishq ho to ibadat mein maza aata hai | Allama Iqbal](https://www.youtube.com/watch?v=IKXsYDZhJo4)
 ### [Hum Sajda Kasy Karty Hain? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=RuNJxmBZhac)
+* [Sun - Hadith](https://www.youtube.com/shorts/Bb85uU8zIuc)
 
 ***
 

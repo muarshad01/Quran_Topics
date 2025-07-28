@@ -35,10 +35,11 @@
 |2. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 2025 | :heavy_check_mark: |
 |3. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 2025 |
 |4. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/promise.md)| July 2025 |
-|5. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 2025|
-|6. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 2025 |
-|7. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-|8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 2025 |
+|5. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025|
+|6. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 2025|
+|7. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 2025 |
+|8. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
+|9. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 2025 |
 
 ***
 

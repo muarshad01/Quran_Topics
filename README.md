@@ -108,11 +108,14 @@
 |12. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
 |13. | [Animal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/animals.md) | July 2025|
 |14. | [Gates](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md) |July 2025|
-|14. | [Anfiqu..]() |July 2025|
-|14. | [Haqq]() |July 2025|
-|14. | [Jannah]()  |July 2025|
-|14. | [Solomon...](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
-|14. | [Awabeen (https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)]()  |July 2025|
-|14. | [Momin]()  |July 2025|
-|14. | [Loneliness...]()  |July 2025|
+|15. | [Anfiqu..]() |July 2025|
+|16. | [Haqq]() |July 2025|
+|17. | [Jannah]()  |July 2025|
+|18. | [Solomon...](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
+|19. | [Awabeen (https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)]()  |July 2025|
+|20. | [Momin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/momin.md)  |July 2025|
+|21. | [Creation in 6 days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/creation_6_days.md) | July 2025|
+|22. | [Seven Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/seven_heavens_and_earth.md) | July 2025|
+|23. | [Kun FaYa Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kun_faya_kun.md) | July 2025|
+|24. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/loneliness.md) | July 2025|
 ***

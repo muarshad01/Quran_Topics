@@ -11,9 +11,7 @@
 * __Surah Al-Baqarah 2/243__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
     * https://quranwbw.com/2/216
     * https://quranwbw.com/5/20
-  ```
-  This refers to the exodus of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for forty years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.
-```
+    * `This refers to the exodus of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for forty years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.`
 
 ***
 

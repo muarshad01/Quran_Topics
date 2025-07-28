@@ -96,5 +96,16 @@
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
 |2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 |
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
+|4. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
+|5. | [Digits](...) | July 2025|
+|6. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/east_and_west.md) | July 2025|
+|7. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/angels_in_quran.com) | July 2025|
+|8. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hoor_in_quran.md) | July 2025|
+|9. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/heen_in_quran.md) | July 2025|
+|10. | [Fingerprint](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fingerprint.md) | July 2025|
+|11. | [Swear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/swear_in_quran.md) | July 2025|
+|12. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
+|13. | [Animal](...) | July 2025|
+|14. | [Gates](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md) |July 2025|
 
 ***

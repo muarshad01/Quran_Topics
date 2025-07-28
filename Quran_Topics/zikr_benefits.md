@@ -1,3 +1,9 @@
+## Ahl-e-Ilm versus Ahl-e-Zikr
+* Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
+* I leave their zikr in previous generations
+
+***
+
 #### [Importance of Zikr | Baba Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
 * __Surah Yunus__: [Had he not ˹constantly˺ glorified ˹Allah˺, he would have certainly remained in its belly until the Day of Resurrection.](https://quran.com/37/143-144)
 * __Surah Al-Isra 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quran.com/17/82)

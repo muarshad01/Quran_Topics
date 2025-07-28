@@ -97,7 +97,7 @@
 |2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 |
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
 |4. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
-|5. | [Digits...](...) | July 2025|
+|5. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
 |6. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)|July 2025|
 |6. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/east_and_west.md) | July 2025|
 |7. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/angels_in_quran.com) | July 2025|

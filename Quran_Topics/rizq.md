@@ -1,5 +1,5 @@
 * [Qur’an verses on rizq](https://myislam.org/quran-verses/rizq/)
-* [The Path to Blessings in Rizq](https://www.youtube.com/watch?v=YPwRgKB7P2I)
+#### [The Path to Blessings in Rizq | SSA Shah](https://www.youtube.com/watch?v=YPwRgKB7P2I)
 
 ***
 

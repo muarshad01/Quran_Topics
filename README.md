@@ -114,5 +114,5 @@
 |14. | [Solomon...](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
 |14. | [Awabeen (https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)]()  |July 2025|
 |14. | [Momin]()  |July 2025|
-|14. | []()  |July 2025|
+|14. | [Loneliness...]()  |July 2025|
 ***

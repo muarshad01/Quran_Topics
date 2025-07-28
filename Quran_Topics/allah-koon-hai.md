@@ -1,0 +1,3 @@
+* __Surah Raad 13/2__: [It is Allah Who has raised the heavens without pillars—as you can see—then established Himself on the Throne. He has subjected the sun and the moon, each orbiting for an appointed term. He conducts the whole affair. He makes the signs clear so that you may be certain of the meeting with your Lord.](https://quran.com/13/2)
+
+* __Surah Raad 13/3__: [And He is the One Who spread out the earth and placed firm mountains and rivers upon it, and created fruits of every kind in pairs.1 He covers the day with night. Surely in this are signs for those who reflect.](https://quran.com/13/3)

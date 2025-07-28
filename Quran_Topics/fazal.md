@@ -1,7 +1,7 @@
 ### [Signs that Allah SWT has Choses you](https://www.youtube.com/shorts/GkzowvaPtsA)
-* Grant of Ilm is afzal tareen
+* Grant of Ilm is afzal tareen (The Best Inam)
 * Roozi wasee kar deh
-* Izzat (Respect) Baksh Di
+* Izzat (Respect) baksh di
 * Every Naymat (Blessing) granted to us is His Fazal
 
 ***

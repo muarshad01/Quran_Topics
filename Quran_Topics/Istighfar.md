@@ -2,6 +2,8 @@
 * Istighfar, in Islam, is the act of seeking forgiveness from Allah (God). It's a common practice among Muslims, typically involving the recitation of `Astaghfirullah" (أَسْتَغْفِرُ ٱللَّٰهَ)`, which means "I seek forgiveness from Allah". It's a way to acknowledge one's sins and seek divine pardon
 
 #### [Allah forgive all sins, if sinner seek repentance from God | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
+* __Surah Az Zumar [The Groups] 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quran.com/39/53)
+* __Surah Yaseen 36/30__: https://quranwbw.com/36/30
 
 #### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
 

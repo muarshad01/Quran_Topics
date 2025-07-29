@@ -30,6 +30,10 @@
 * __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
 * __Al-Alaa 87/1 (Sabbih (سَبِّحْ))__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
+* __Surah An Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110/3)
+* __Surah Al Haaqqa 69/52 (Fasabbih (فَسَبِّحْ))__: [So glorify the Name of your Lord, the Greatest.](https://quranwbw.com/69/52)
+
+
 ***
 
 * __Surah Ale-i-Imran 3/41 (Afternoon and Morning)__:[And remember your Lord much (by praising Him again and again), and glorify (Him) in the afternoon and in the morning](https://quranwbw.com/3#41)
@@ -50,8 +54,6 @@
 
 * __Surah As Saffat 37/166__: [Verily, we (angels), we are they who glorify (Allah's Praises i.e. perform prayers)](https://quranwbw.com/37#166)
 
-* __Surah An Nasr 11/3 (Fasabbih)__: [](https://quranwbw.com/11/3)
-* __Surah Al Haaqqa 69/52 (Fasabbih)__: [](https://quranwbw.com/69/52)
 
 
 * __Surah Fatah 48/9 (Morning and Evening)__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)

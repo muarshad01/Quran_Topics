@@ -1,10 +1,8 @@
 ## Sabr (Patience)
 
-***
-
-* [The Power of Patience(صبر) | Life Changing Bayan by Dr Israr Ahmed | Youth & Quran](https://www.youtube.com/watch?v=WmVzIrJz10Y)
-* [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | The Power of Patience صبر | Dr Israr Ahmed Bayan](https://www.youtube.com/watch?v=imR4I8xJdbM)
-* [IBADAT, IKHLAAQ AUR HIKMATO MEIN SAB SE AFZAL KYA HAI? | Irfan Ul Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
+### [The Power of Patience(صبر) | Dr Israr Ahmed](https://www.youtube.com/watch?v=WmVzIrJz10Y)
+### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed Bayan](https://www.youtube.com/watch?v=imR4I8xJdbM)
+### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 
 ### Shukkar (Thankfulness) and Sabr (Patience)
 * Sabr -> Allah

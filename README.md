@@ -30,7 +30,7 @@
 
 * __Surah At-Tariq 86/13-14 (Decisive Word; Don't take it lightly)__: [Surely this ˹Quran˺ is a decisive word, and is not to be taken lightly.](https://quran.com/86/13-14)
 
-* __Surah__: [](https://quran.com/82/6)
+* __Surah Al-Infitaar 82/6__: [O humanity! What has emboldened you against your Lord, the Most Generous,](https://quranwbw.com/82/6)
 
 ***
 ***

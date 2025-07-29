@@ -12,6 +12,7 @@
 * Physical, Psychological, Economic, Social, Moral, ...
 * Attitudes, Behavior, Temperament, Moral, Genes Change (Genetic Problems), All-issues
 * __Under Debt__: `Ya Zuljalal Wal Ikram`
+* ...
 
 #### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
 * https://quranwbw.com/2/200 (فَاذْكُرُوا اللَّهَ كَذِكْرِكُمْ آبَاءَكُمْ أَوْ أَشَدَّ ذِكْرًا)

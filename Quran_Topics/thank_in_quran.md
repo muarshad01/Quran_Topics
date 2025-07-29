@@ -1,3 +1,8 @@
+* Sukhar -> Jannat
+* Sabr -> Allah
+
+***
+
 ### [Prophet Daud (David) AS, Thankfulness | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=njOVrXuYMXY)
 * `Ijz, Inkisari, aur Zauf ka iqrar`
 

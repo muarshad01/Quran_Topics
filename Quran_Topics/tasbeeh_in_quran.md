@@ -13,11 +13,12 @@
 
 | Word | Meaning| 
 |---|---|
+| Sabbih (سَبِّحْ) | Praise |
+| Fasabbih (فَسَبِّحْ) ||
 | Subhana (سُبْحَانَ)||
 | Sabbaha (سَبَّحَ) | Purity has been proclaimed |
 | Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
-| Fasabbih (فَسَبِّحْ) ||
-| Sabbih (سَبِّحْ) | Praise |
+
 
 ***
 

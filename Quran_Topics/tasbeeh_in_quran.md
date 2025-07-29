@@ -12,14 +12,11 @@ https://www.youtube.com/shorts/GAdvoL34EAQ
 
 ***
 
-* Appears in 41 verses of the Quran ???
-
-***
-||||
+| Word | Meaning| 
 |---|---|---|
-| Subhana (سُبْحَانَ)|||
-| Sabbaha (سَبَّحَ) |||
-| Yusabbihu (يُسَبِّحُ) |||
+| Subhana (سُبْحَانَ)||
+| Sabbaha (سَبَّحَ) ||
+| Yusabbihu (يُسَبِّحُ) ||
 
 ***
 

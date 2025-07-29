@@ -1,11 +1,13 @@
-### [Allah forgive all sins, if sinner seek repentance from God | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
+## Istigfar
 
-***
+#### [Allah forgive all sins, if sinner seek repentance from God | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
 
-# Istigfar
-* [Syed Istigfar](https://www.youtube.com/shorts/WaEOEiUQHL4)
+#### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
+
+#### [Syed Istigfar](https://www.youtube.com/shorts/WaEOEiUQHL4)
+
+#### Hadith
 * [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
-* [Marhoom Allama Talib Johri | Astaghfar ka Falsafa | Majlis](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
 
 ***
 

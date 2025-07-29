@@ -1,12 +1,16 @@
 ## Sabr (Patience)
 
 #### [The Power of Patience (صبر) | Dr Israr Ahmed](https://www.youtube.com/watch?v=WmVzIrJz10Y)
-#### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
-#### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 
-#### Sabr verses Shukkar
-* Sabr say Allah milta hai
-* Sukkar say Jannat milti hai
+#### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
+
+#### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
+* Zikr, Shukkar, Sabr
+* Sabr say Allah milta hai (The best...)
+* Sukkar say Jannat milti hay
+* All Prophets and Messengers...
+* Fasting (Sabr): The Prophet Muhammad ﷺ said, "Allah says: 'Fasting is for Me and I shall reward for it'"
+* Hanuman Temple: People go to ask for son... (They lost their Imann due to being Impatient!!!) 
 
 ***
 
@@ -33,7 +37,7 @@
 
 * __Surah Al-Kahf 18/68__: [And how can you be patient with what is beyond your ˹realm of˺ knowledge?”](https://quranwbw.com/18/68)
 
-* __Surah An-Naml [Ant] 27/19 (King Solomon...)__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
+* __Surah An-Naml [Ant] 27/19 (King Solomon...Thankfulness)__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
 
 * __Surah Al-Ahzzab [The Clans] 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quranwbw.com/33/35)
 

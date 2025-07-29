@@ -3,15 +3,20 @@
 #### [The Power of Patience (صبر) | Dr Israr Ahmed](https://www.youtube.com/watch?v=WmVzIrJz10Y)
 
 #### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
+* The top-most thing is Sabr
+* Apnay app ko thamna, rokna, bardashat karna, tahammal karna
+* Sabr ala Atatat.
+* Sabr the madaa. 
+* 
 
 #### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 * Zikr, Shukkar, Sabr
-* Sabr say Allah milta hai (The best...)
+* Sabr say Allah milta hai. إِنَّ اللَّهَ مَعَ الصَّابِرِينَ. It is the the best thing.
 * Sukkar say Jannat milti hay
 * All Prophets and Messengers...
 * Fasting (Sabr): The Prophet Muhammad ﷺ said, "Allah says: 'Fasting is for Me and I shall reward for it'"
 * Hanuman Temple: People go to ask for son... (They lost their Imann due to being Impatient!!!) 
-* https://quran.com/42/49-50
+* __Surah__: [(49) To Allah ˹alone˺ belongs the kingdom of the heavens and the earth. He creates whatever He wills. He blesses whoever He wills with daughters, and blesses whoever He wills with sons, (50) or grants both, sons and daughters, ˹to whoever He wills˺, and leaves whoever He wills infertile. He is indeed All-Knowing, Most Capable.](https://quran.com/42/49-50)
 
 ***
 
@@ -56,28 +61,38 @@
 
 ***
 
-## Prophet Muhammad PBUH Dawat-e-Haq (Sadiq & Ameen)
+## Prophet Muhammad PBUH Sabr 
+* Dawat-e-Haq: Sadiq & Ameen
+* Aankhon ka taara
 
-#### Majnoon
-* __Surah Al-Hijr [The Rock] 15/6 (Majnoon)__: [They say, “O you to whom the Reminder1 is revealed! You must be insane!](https://quranwbw.com/15/6)
+#### Majnoon (Pagal)
+* __Surah Al-Hijr [The Rock] 15/6 (Majnoon)__: [They say, “O you to whom the Reminder is revealed! You must be insane!](https://quranwbw.com/15/6)
+   * Aay wo shakash, jis ka khayal hay kay us par koi zikr nazil ho raha hay, hamaray khyal mayn tumhara damagh kharab ho gaya hai
 
-* __Surah Al-Qalam 68/1-7 (Not Majnoon; A man of outstanding character)__: [(1) Nũn. By the pen and what everyone writes! (2) By the grace of your Lord, you ˹O Prophet˺ are not insane. (3) You will certainly have a never-ending reward. (4) And you are truly ˹a man˺ of outstanding character. (5) Soon you and the pagans will see. (6) which of you is mad. (7) Surely your Lord ˹alone˺ knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/68/1-7)
+* __Surah Al-Qalam 68/1-7 (Not Majnoon; A man of outstanding character; Never ending reward!)__: [(1) Nũn. By the pen and what everyone writes! (2) By the grace of your Lord, you ˹O Prophet˺ are not insane. (3) You will certainly have a never-ending reward. (4) And you are truly ˹a man˺ of outstanding character. (5) Soon you and the pagans will see. (6) which of you is mad. (7) Surely your Lord ˹alone˺ knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/68/1-7)
 
 * __Surah Al-Qalam 68/51-52 (Majnoon)__: [(51) The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” But it is simply a reminder to the whole world. (52) But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
 
 * __Surah At-Takwir [The overthrowing] 81/22 (Majnoon)__: [And your fellow man1 is not insane.](https://quranwbw.com/81/22)
 
-
-#### Poet  
+#### Poet (Sahir) 
 * __Surah Ya-Sin 36/69 (Poet/Poetry)__: [We have not taught him poetry, nor is it fitting for him. This ˹Book˺ is only a Reminder and a clear Quran](https://quranwbw.com/36/69)
 
+### Your heart is Distressed...
 * __Surah Al-Hijr [The Rock] 15/97 (Heart is Distressed)__: [We certainly know that your heart is truly distressed by what they say.](https://www.quranwbw.com/15/97)
+   * [It is overseen by nineteen ˹keepers˺.](https://quranwbw.com/74/30)
 
-* __Surah Al-Muzzamil 73/10 (Depart Courteously)__: [Be patient ˹O Prophet˺ with what they say, and depart from them courteously.](https://quranwbw.com/73/10)
+* __Surah Al-Muzzamil 73/10 (Depart Courteously...)__: [Be patient ˹O Prophet˺ with what they say, and depart from them courteously.](https://quranwbw.com/73/10)
 
 * __Surah As-Saf 61/8 (Allah SWT will Perfect His light)__: [They wish to extinguish Allah’s light with their mouths, but Allah will ˹certainly˺ perfect His light, even to the dismay of the disbelievers.](https://quranwbw.com/61/8)
 
 * __Surah Al-Balad [The City] 90/17__: [and—above all—to be one of those who have faith and urge each other to perseverance and urge each other to compassion.](https://quranwbw.com/90/17)
+
+### Faqaaloo saahirun kazzaab (Liar)
+* https://quranwbw.com/40/24
+
+### Qaaloo saahirun aw majnoon
+* https://quran.com/51/52
 
 ***
 ***

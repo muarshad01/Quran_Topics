@@ -14,9 +14,9 @@
 | Word | Meaning| 
 |---|---|
 | Sabbih (سَبِّحْ) | Praise |
+| Sabbaha (سَبَّحَ) | Purity has been proclaimed |
 | Fasabbih (فَسَبِّحْ) ||
 | Subhana (سُبْحَانَ)||
-| Sabbaha (سَبَّحَ) | Purity has been proclaimed |
 | Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
 
 

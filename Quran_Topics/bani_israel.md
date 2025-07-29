@@ -228,10 +228,11 @@
 ***
 
 #### [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
-* When Prophet PBUH comes, accept Him. I'll give you double reward!
+* __2/40 (Fulfill My Covenant)__: [O children of Israel! Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
 * __Surah Al-Qasas 28/54 (Double Reward)__: [These ˹believers˺ will be given a double reward for their perseverance, responding to evil with good, and for donating from what We have provided for them.](https://quranwbw.com/28/54)
+* When Prophet PBUH will come, accept Him. I'll give you double reward!
 
-#### [Story of Bani Israel’s Cow | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
+#### [Story of Bani Israel’s Cow | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
 
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 
@@ -241,9 +242,7 @@
 
 #### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
 
-***
-
-## [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
+### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
 1. When Moutain was lifted and then Allah brought it down, but they refused again. 
 2. Sabath (Catching Fisth by Net)
 3. Murder at the time of Prophet Musa (Cow story)

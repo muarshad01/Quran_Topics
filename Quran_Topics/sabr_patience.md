@@ -101,7 +101,9 @@
 ***
 ***
 
+
 ## Sumayyah (Wife), Yasir (Husband), Ammar
+<!--
 * __Surah Al-Baqarah 2/154__: [Never say that those martyred in the cause of Allah are dead—in fact, they are alive! But you do not perceive it.](https://quranwbw.com/2/154)
 
 #### First woman to be martyred-for-Islam / First martyr-of-Ummah 
@@ -130,3 +132,5 @@
 * [Khabbab Ibn Al Aratt (RA) - Under Burning Hot Coals](https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
 
 ***
+
+-->

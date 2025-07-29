@@ -8,7 +8,8 @@
 * __Surah Al-Isra [The night journey] 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
 
 #### [Zikar Ky Zindgi Pr Asaraat | Baba Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
-* Attitudes, Behavior, Temperament, Moral, Genetic Problems, All-issues
+* Physical, Psychological, Economic, Social, Moral, ...
+* Attitudes, Behavior, Temperament, Moral, Genes Change (Genetic Problems), All-issues
 * __Under Debt__: `Ya Zuljalal Wal Ikram`
 
 #### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)

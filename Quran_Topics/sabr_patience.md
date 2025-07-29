@@ -116,27 +116,21 @@
 * She and her husband, Hazrat Yasir, were among the early-converts-to-Islam and faced persecution by the non-believers in Mecca.
     * 4-Camels (2 legs + 2 arms) in 4-directions
 
-*** 
+#### Hazrat Usman RA
+* Chacha nay aik-chatai-kay-undaar lapatah aur dhooni-deh-dhee.
 
-* `Hazrat Usman RA` - Chacha nay aik chatai kay undaar lapatah aur dhooni deh dhee.
+#### Mus'ab ibn Umayr -  First ambassador of Islam
+* 200-dirham dress from Syria, Perfume
+* Uncle (Chacha) said, "Remove your dress also"
+* 75 people in Yasrib (Madina) become Muslim on his preaching
+* Martyerd in Ghazwa-e-Ahud - `Alam-e-Bardar`
+* Resembled Prophet Muhammad PBUH a lot
 
-***
-* `Mus'ab ibn Umayr` -  First ambassador of Islam
-   * 200 dirham dress from Syria, Perfume
-   * Chacha said, "remove also your dress"
-   * 75 people in Yasrib (Madina) become Muslim on his preaching
-      * Martyerd in Ghazwa-e-Ahud - `Alam-e-Bardar`
-      * Resembled Prophet PBUH a lot
+#### Hazrat Ibrahm AS Father (Azar) - Go away from my eyes
+* __Surah Maryam 19/42-46 (Wahjurnee maliyyaa)__: [So be gone from me for a long time!”](https://quranwbw.com/19/42-46)
 
-***
-
-* `Hazrat Ibrahm AS Father` - go away from my eyes
-    * __Surah Maryam 19/42-46__: [So be gone from me for a long time!”](https://quran.com/19/42-46)
-
-***
-
-* `Khabbab ibn al-Aratt `
-    * Blacksmith 
-    * [Khabbab Ibn Al Aratt (ra) - Under Burning Hot Coals](https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
+#### Khabbab ibn al-Aratt
+* Blacksmith 
+* [Khabbab Ibn Al Aratt (RA) - Under Burning Hot Coals (https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
 
 ***

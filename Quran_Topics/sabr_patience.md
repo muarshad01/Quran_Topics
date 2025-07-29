@@ -68,10 +68,6 @@
 
 ***
 
-* __Surah At-Takwir 81/22 (Not Insane)__: [And your fellow man is not insane.](https://quranwbw.com/81/22)
-
-***
-
 * __Surah Al-Asr 103/3 (Urge/Enjoin Sabr)__: [...and urge each other to perseverance](https://quranwbw.com/103)
 
 ***
@@ -97,8 +93,9 @@
 
 ***
 
-* Sahir (Jadu)
-* Kazzab (Lier)
+#### Majnoon
+* __Surah Al-Qalam 68/51-52__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.” But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+* __Surah At-Takwir 81/22__: [And your fellow man1 is not insane.](https://quranwbw.com/81/22)
 
 ***
 

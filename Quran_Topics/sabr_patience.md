@@ -53,9 +53,10 @@
 
 * __Surah At-Tur 52/48 (Be patient with your Lord’s decree)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
 
-* __Surah Al-Qalam 68/48__: [So be patient with your Lord’s decree, and do not be like ˹Jonah,˺ the Man of the Whale, who cried out ˹to Allah˺, in total distress.](https://quranwbw.com/68/48)
+* __Surah Al-Qalam [Nun] 68/48__: [So be patient with your Lord’s decree, and do not be like ˹Jonah,˺ the Man of the Whale, who cried out ˹to Allah˺, in total distress.](https://quranwbw.com/68/48)
+    * He didn't waited for Allah SWT order...(He left the city...)
 
-* __Surah Al-Qalam 68/51-52__: [(51) The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” (52) But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+* __Surah Al-Qalam [Nun] 68/51-52__: [(51) The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” (52) But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
 
 * __Surah Al-Asr 103/3 (Urge/Enjoin Sabr)__: [except those who have faith, do good, and urge each other to the truth, and urge each other to perseverance.](https://quranwbw.com/103/3)
 

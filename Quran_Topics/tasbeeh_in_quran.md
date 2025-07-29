@@ -19,17 +19,18 @@ https://www.youtube.com/shorts/GAdvoL34EAQ
 |---|---|---|
 | Subhana (سُبْحَانَ)|||
 | Sabbaha (سَبَّحَ) |||
+| Yusabbihu (يُسَبِّحُ) |||
 
 ***
 
-#### SEVEN Surahs that begin with (Sabbaha, Yusabbihu, Sabbhi, Subhana) words:
+#### 7 Surahs that begin with (Sabbaha, Subhana, Yusabbihu) words:
 * __Al-Isra 17__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
-* __Al-Hadid 57__: Starts with `sabbaha lillahi ma fis-samawati wal-ardi` (Whatever is in the heavens and on earth glorifies Allah). 
-* __Al-Hashr 59__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
-* __As-Saff 61__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
-* __Al-Jumuah 62__: Starts with `yusabbihu lillahi ma fis-samawati` (Whatever is in the heavens and on earth glorifies Allah). 
-* __At-Taghabun 64__: Also starts with `yusabbihu lillahi ma fis-samawati`. 
-* __Al-Alaa 87__: Starts with `sabbิhi isma rabbika al-a'la` (Glorify the name of your Lord, the Most High). 
+* __Al-Hadid 57__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
+* __Al-Hashr 59__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
+* __As-Saff 61__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
+* __Al-Jumuah 62__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
+* __At-Taghabun 64__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
+* __Al-Alaa 87__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
 ***
 

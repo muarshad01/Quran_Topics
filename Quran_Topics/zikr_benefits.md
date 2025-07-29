@@ -96,28 +96,30 @@
 
 ***
 
-* __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quran.com/54/17)
+#### Is there Anyone
+* __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quranwbw.com/54/17)
 
 ***
 
 #### Remember Allah a lot so that you be Successful
-* __Surah Jummah 62/10__: [And remember Allah often so you may be successful.](https://quran.com/62/10)
+* __Surah Jummah 62/10__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
 
 ***
 
-* __Surah 68/51__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.”](https://quran.com/68/51)
+* __Surah Al-Qalam 68/51__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.”](https://quran.com/68/51)
 
 ***
 
-__Surah At-Takwir 81/27__: [Surely this ˹Quran˺ is only a reminder to the whole world—](https://quranwbw.com/87/27)
+__Surah At-Takwir [The Overthrowing] 81/27__: [Surely this ˹Quran˺ is only a reminder to the whole world—](https://quranwbw.com/81/27)
 
 ***
 
-* __Surah Al-Ala 87/1__: [Glorify the Name of your Lord, the Most High.](https://quran.com/87/1)
-* __Surah Al-Ala 87/14-15__: [Successful indeed are those who purify themselves, remember the Name of their Lord, and pray.](https://quran.com/87/14-15)
+* __Surah Al-Ala [The most high] 87/1__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
+* __Surah Al-Ala [The most high] 87/14-15__: [(14) Successful indeed are those who purify themselves,
+(15) remember the Name of their Lord, and pray.](https://quranwbw.com/87/14-15)
 
 ***
 
-* __Surah Ash-Sharh 94/4__: [and elevated your renown for you?](https://quran.com/94/4)
+* __Surah Sharh [The Consolation] 94/4 (Warafa'na)__: [and elevated your renown for you?1](https://quranwbw.com/94/4)
 
 ***

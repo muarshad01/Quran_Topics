@@ -85,12 +85,11 @@
 * __Surah Al-Balad [The City] 90/17__: [and—above all—to be one of those who have faith and urge each other to perseverance and urge each other to compassion.](https://quranwbw.com/90/17)
 
 ### Faqaaloo saahirun kazzaab (Liar)
-* https://quranwbw.com/40/24
+* __Surah Al-Ghaffir [The Forgiver] 40/23-24__: [(23) Indeed, We sent Moses with Our signs and compelling proof, (24) to Pharaoh, Hamân, and Korah. But they responded: “Magician! Total liar!”](https://quranwbw.com/40/23-24)
 
 ### Qaaloo saahirun aw majnoon
-* https://quran.com/51/52
+* __Surah Adh Dhaariyat [The Winnowing Winds] 51/52__: [Similarly, no messenger came to those before them without being told: “A magician or a madman!”](https://quranwbw.com/51/52)
 
-***
 ***
 
 <!--

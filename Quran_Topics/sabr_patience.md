@@ -1,13 +1,9 @@
 ## Sabr (Patience)
 
-#### [The Power of Patience (صبر) | Dr Israr Ahmed](https://www.youtube.com/watch?v=WmVzIrJz10Y)
-
 #### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
 * Listen first 15 mins...
-* The top-most thing is Sabr
-* Apnay app ko thamna, rokna, bardashat karna, tahammal karna
-* Sabr ala Atatat.
-* Sabr the madaa. 
+* The top-most thing is Sabr (إِنَّ اللَّهَ مَعَ الصَّابِرِينَ)
+* Apnay app ko thamna, rokna, bardashat karna, tahamual karna
 
 #### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 * Zikr, Shukkar, Sabr

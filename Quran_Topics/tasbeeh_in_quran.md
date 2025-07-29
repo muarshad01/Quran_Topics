@@ -14,9 +14,9 @@
 ***
 
 | Word | Meaning| 
-|---|---|---|
+|---|---|
 | Subhana (سُبْحَانَ)||
-| Sabbaha (سَبَّحَ) |(Purity has been proclaimed)|
+| Sabbaha (سَبَّحَ) |Purity has been proclaimed|
 | Yusabbihu (يُسَبِّحُ) ||
 
 ***

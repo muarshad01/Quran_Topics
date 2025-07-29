@@ -3,6 +3,7 @@
 #### [The Power of Patience (صبر) | Dr Israr Ahmed](https://www.youtube.com/watch?v=WmVzIrJz10Y)
 
 #### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
+* Listen first 15 mins...
 * The top-most thing is Sabr
 * Apnay app ko thamna, rokna, bardashat karna, tahammal karna
 * Sabr ala Atatat.
@@ -97,8 +98,10 @@
 ***
 ***
 
-## Sumayyah (Wife), Yasir (Husband), Ammar
-<!--
+## Sumayyah (Wife; Kaneez), Yasir (Husband), Ammar (Son)
+* Abu Jahal's Kanees
+* Yasir was a very pious man, saw a dream, a prophet is going to come to Makkah
+
 * __Surah Al-Baqarah 2/154__: [Never say that those martyred in the cause of Allah are dead—in fact, they are alive! But you do not perceive it.](https://quranwbw.com/2/154)
 
 #### First woman to be martyred-for-Islam / First martyr-of-Ummah 
@@ -112,12 +115,13 @@
 #### Hazrat Usman RA
 * Chacha nay aik-chatai-kay-undaar lapatah aur dhooni-deh-dhee.
 
-#### Mus'ab ibn Umayr -  First ambassador of Islam
+#### Musab ibn Umayr (Muhammad Ka Deewana) -  First ambassador of Islam
 * 200-dirham dress from Syria, Perfume
 * Uncle (Chacha) said, "Remove your dress also"
 * 75 people in Yasrib (Madina) become Muslim on his preaching
 * Martyerd in Ghazwa-e-Ahud - `Alam-e-Bardar`
 * Resembled Prophet Muhammad PBUH a lot
+* His kafun was so small; Head was covered with chaddar and legs were covered with grass
 
 #### Hazrat Ibrahm AS Father (Azar) - Go away from my eyes
 * __Surah Maryam 19/42-46 (Wahjurnee maliyyaa)__: [So be gone from me for a long time!”](https://quranwbw.com/19/42-46)
@@ -127,5 +131,3 @@
 * [Khabbab Ibn Al Aratt (RA) - Under Burning Hot Coals](https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
 
 ***
-
--->

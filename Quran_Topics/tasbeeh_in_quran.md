@@ -22,13 +22,13 @@
 ***
 
 #### 7 Surahs that begin with (Sabbaha, Subhana, Yusabbihu) words:
-* __Al-Isra 17 (Subhana (سُبْحَانَ))__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
-* __Al-Hadid 57 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
-* __Al-Hashr 59 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
-* __As-Saff 61 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
-* __Al-Jumuah 62 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
-* __At-Taghabun 64 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
-* __Al-Alaa 87__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
+* __Al-Isra 17/ (Subhana (سُبْحَانَ))__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
+* __Al-Hadid 57/1 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
+* __Al-Hashr 59/1 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
+* __As-Saff 61/1 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
+* __Al-Jumuah 62/1 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
+* __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
+* __Al-Alaa 87/1 (Sabbih (سَبِّحْ))__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
 ***
 
@@ -52,7 +52,6 @@
 
 * __Surah An Nasr 11/3 (Fasabbih)__: [](https://quranwbw.com/11/3)
 * __Surah Al Haaqqa 69/52 (Fasabbih)__: [](https://quranwbw.com/69/52)
-* __Surah Al'Alaa 87/1 (Sabbih)__: [](https://quranwbw.com/87/1)
 
 
 * __Surah Fatah 48/9 (Morning and Evening)__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)

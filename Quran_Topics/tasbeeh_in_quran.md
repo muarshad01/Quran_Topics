@@ -22,12 +22,12 @@
 ***
 
 #### 7 Surahs that begin with (Sabbaha, Subhana, Yusabbihu) words:
-* __Al-Isra 17__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
-* __Al-Hadid 57 (Sabbaha)__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
-* __Al-Hashr 59 (Sabbaha)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
-* __As-Saff 61 (Sabbaha)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
-* __Al-Jumuah 62 (Yusabbihu)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
-* __At-Taghabun 64 (Yusabbihu)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
+* __Al-Isra 17 (Subhana (سُبْحَانَ))__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
+* __Al-Hadid 57 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
+* __Al-Hashr 59 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
+* __As-Saff 61 (Sabbaha (سَبَّحَ))__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
+* __Al-Jumuah 62 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
+* __At-Taghabun 64 (Yusabbihu (يُسَبِّحُ))__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
 * __Al-Alaa 87__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
 ***

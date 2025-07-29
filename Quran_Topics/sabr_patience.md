@@ -93,6 +93,7 @@
 ***
 ***
 
+<!--
 ## Sumayyah (Wife; Kaneez), Yasir (Husband), Ammar (Son)
 * Abu Jahal's Kanees
 * Yasir was a very pious man, saw a dream, a prophet is going to come to Makkah
@@ -126,3 +127,4 @@
 * [Khabbab Ibn Al Aratt (RA) - Under Burning Hot Coals](https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
 
 ***
+-->

@@ -1,4 +1,4 @@
-### [Allah forgive all sins, if sinner seek repentance from God | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
+### [Allah forgive all sins, if sinner seek repentance from God | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
 
 ***
 

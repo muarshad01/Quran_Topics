@@ -23,7 +23,7 @@
 * [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
 
 #### And Hasten towards Forgiveness
-* __Surah Ale-i-Imran 3/133-138__: [And hasten towards forgiveness from your Lord](https://quranwbw.com/3#133-138)
+* __Surah Ale-i-Imran 3/133-138__: [And hasten towards forgiveness from your Lord...](https://quranwbw.com/3#133-138)
    * [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
 
 ***

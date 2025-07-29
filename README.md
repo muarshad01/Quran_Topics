@@ -21,6 +21,9 @@
 #### Quran puts a Barrier
 * __Surah Al-Isra [The Night Journey] 17/45 (Puts a Barrier)__: [When you ˹O Prophet˺ recite the Quran, We put a hidden barrier between you and those who do not believe in the Hereafter.](https://quranwbw.com/17/45)
 
+#### Devil as a Close Associate
+* __Surah Az-Zukhruf [Ornaments of Gold] 43/36-38__: [(36) And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate, (37) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (38) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/36-38)
+
 #### You'll be asked about it
 * __Surah Az-Zukhruf [Ornaments of Gold] 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quranwbw.com/43/44)
 

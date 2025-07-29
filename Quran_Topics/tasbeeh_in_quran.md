@@ -16,8 +16,8 @@
 | Word | Meaning| 
 |---|---|
 | Subhana (سُبْحَانَ)||
-| Sabbaha (سَبَّحَ) |Purity has been proclaimed|
-| Yusabbihu (يُسَبِّحُ) ||
+| Sabbaha (سَبَّحَ) |Purity has been proclaimed |
+| Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
 
 ***
 
@@ -26,8 +26,8 @@
 * __Al-Hadid 57 (Sabbaha)__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
 * __Al-Hashr 59 (Sabbaha)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
 * __As-Saff 61 (Sabbaha)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
-* __Al-Jumuah 62__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
-* __At-Taghabun 64__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
+* __Al-Jumuah 62 (Yusabbihu)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
+* __At-Taghabun 64 (Yusabbihu)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
 * __Al-Alaa 87__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
 
 ***
@@ -72,13 +72,6 @@
 
 ### Morning & Evening
 * __Surah Fatah 48/9__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)
-
-## `Yusabbihu` (Purity is proclaimed)
-* __Surah Al-Jumu'ah 62/1__:
-* __Surah At-Taghabun 64/1__:
-```
-Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.
-```
 
 ### `Sabbih` (Praise)
 * __Surah Al'Alaa__ 87/1:

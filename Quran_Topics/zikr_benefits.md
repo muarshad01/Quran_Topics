@@ -1,6 +1,5 @@
-## Ahl-e-Ilm versus Ahl-e-Zikr
+## Zikr: Ahl-e-Ilm versus Ahl-e-Zikr
 * Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
-* I leave their zikr in previous generations
 
 ***
 

@@ -3,17 +3,20 @@
 ### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with the person at Judgement whom you loved in Dunya
 
-***
+### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
 
-* https://quranawareness.wordpress.com/allah-loves-16-ayats/
-  
-***
+### [Khuda Kabi Kisi Ki Talab Ko Zaya Nahi Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
+* Akhlas mate-i-faqeer
+* Tujhay zaib nahi deta kah mate-i-faqeer zaya karay
+* Tujhay zaib nahi deta kah teri iss talab ki tahueen hoo
+* Mayn teri tawajah ka talib hoon aur mayn zaroor tughay matloob bana kar choron gaa
+* Khuda nay kabhi kisi talab ko zaya nahi kya
 
-* https://www.youtube.com/shorts/tFp0Tx95tyE
-* https://www.youtube.com/shorts/VyaGXuP8azc
+### [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25)
+* https://www.youtube.com/shorts/RLLIfAJWqJE
 
-***
-* https://www.youtube.com/shorts/RLLIfAJWqJE (Hadith)
+### [ALLAH LOVES : 16 AYATS](https://quranawareness.wordpress.com/allah-loves-16-ayats/)
+
 ***
 
 ### Al-Tawabina:

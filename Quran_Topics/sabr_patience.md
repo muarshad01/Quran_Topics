@@ -11,6 +11,7 @@
 * All Prophets and Messengers...
 * Fasting (Sabr): The Prophet Muhammad ﷺ said, "Allah says: 'Fasting is for Me and I shall reward for it'"
 * Hanuman Temple: People go to ask for son... (They lost their Imann due to being Impatient!!!) 
+* https://quran.com/42/49-50
 
 ***
 

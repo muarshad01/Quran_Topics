@@ -1,16 +1,20 @@
 ## Sabr (Patience)
 
 #### [The Power of Patience (صبر) | Dr Israr Ahmed](https://www.youtube.com/watch?v=WmVzIrJz10Y)
-#### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed Bayan](https://www.youtube.com/watch?v=imR4I8xJdbM)
+#### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
 #### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 
-### Shukkar (Thankfulness) and Sabr (Patience)
+#### Sabr verses Shukkar
 * Sabr -> Allah
 * Sukkar -> Jannat
+
+***
+
+### Shukkar (Thankfulness) and Sabr (Patience)
 * __Surah 2/153__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
-* __Surah 14/7__: [And ˹remember˺ when your Lord proclaimed, ‘If you are grateful, I will certainly give you more. But if you are ungrateful, surely My punishment is severe.’”](https://quranwbw.com/14/7)
+* __Surah Ibrahim 14/7__: [And ˹remember˺ when your Lord proclaimed, ‘If you are grateful, I will certainly give you more. But if you are ungrateful, surely My punishment is severe.’”](https://quranwbw.com/14/7)
 * __Surah 27/19__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
-* __Surah 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quranwbw.com/33/35)
+* __Surah Ahzab 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quranwbw.com/33/35)
 * __Surah 39/9__: [If you disbelieve, then ˹know that˺ Allah is truly not in need of you, nor does He approve of disbelief from His servants. But if you become grateful ˹through faith˺, He will appreciate that from you. No soul burdened with sin will bear the burden of another. Then to your Lord is your return, and He will inform you of what you used to do. He certainly knows best what is ˹hidden˺ in the heart.](https://quranwbw.com/39/7)
 
 #### Hadith 

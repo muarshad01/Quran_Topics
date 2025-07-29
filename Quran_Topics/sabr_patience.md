@@ -105,17 +105,17 @@
 
 ***
 
-## (Sumayyah, Yasir, Ammar)
-* __Surah Al-Baqarah__: [Never say that those martyred in the cause of Allah are dead—in fact, they are alive! But you do not perceive it.](https://quran.com/2/154)
+## Sumayyah (Wife), Yasir (Husband), Ammar
+* __Surah Al-Baqarah 2/154__: [Never say that those martyred in the cause of Allah are dead—in fact, they are alive! But you do not perceive it.](https://quranwbw.com/2/154)
 
-#### First martyr of Ummah / First woman to be martyred for Islam.
-* `Hazrat Sumayyah bint Khayyat`
-    * Sumayyah's unwavering faith and refusal to denounce her beliefs led to her martyrdom.
-    * Sharamghaa par bhurchi maari 
-#### First male martyr for Islam.
-* She and her `husband, Hazrat Yasir`, were among the early converts to Islam and faced persecution by the non-believers in Mecca.
-    * First male martyr for Islam.
-    * 4 Camels (2 legs + 2 arms) in 4 directions
+#### First woman to be martyred-for-Islam / First martyr-of-Ummah 
+* Hazrat Sumayyah bint Khayyat
+    * Sumayyah's unwavering faith and refusal to denounce-her-beliefs led to her martyrdom.
+    * Sharamghaa par bhurchi (spearhead) mari 
+#### First male to be martyred-for-Islam
+* She and her husband, Hazrat Yasir, were among the early-converts-to-Islam and faced persecution by the non-believers in Mecca.
+    * 4-Camels (2 legs + 2 arms) in 4-directions
+
 *** 
 
 * `Hazrat Usman RA` - Chacha nay aik chatai kay undaar lapatah aur dhooni deh dhee.

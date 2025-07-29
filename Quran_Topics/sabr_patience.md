@@ -7,7 +7,6 @@
 * Apnay app ko thamna, rokna, bardashat karna, tahammal karna
 * Sabr ala Atatat.
 * Sabr the madaa. 
-* 
 
 #### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 * Zikr, Shukkar, Sabr

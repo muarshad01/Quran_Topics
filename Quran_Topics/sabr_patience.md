@@ -5,8 +5,8 @@
 #### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 
 #### Sabr verses Shukkar
-* Sabr -> Allah
-* Sukkar -> Jannat
+* Sabr say Allah milta hai
+* Sukkar say Jannat milti hai
 
 ***
 

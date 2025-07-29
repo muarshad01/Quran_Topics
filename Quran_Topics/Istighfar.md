@@ -13,6 +13,7 @@
 * __Surah Nooh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [(10) saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving. (11) He will shower you with abundant rain, (12) supply you with wealth and children, and give you gardens as well as rivers.](https://quranwbw.com/71#10-12)
     * Five Things: Gunah, Hunger Poverty, Wealth, Children, Garden,  Rivers
     * Istigfar is a constant Ibadah
+* __Surah Al-Anfaal [The Spoils of War] 08/33__: [But Allah would never punish them while you ˹O Prophet˺ were in their midst. Nor would He ever punish them if they prayed for forgiveness.](https://quranwbw.com/8#33)
 
 ***
 

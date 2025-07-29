@@ -19,7 +19,6 @@
 | Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
 | Subhana (سُبْحَانَ)||
 
-
 ***
 
 #### 7 Surahs that begin with (Sabbaha, Subhana, Yusabbihu) words:
@@ -53,9 +52,9 @@
 
 * __Surah As Saffat 37/166__: [Verily, we (angels), we are they who glorify (Allah's Praises i.e. perform prayers)](https://quranwbw.com/37#166)
 
-* __Surah An Nasr 11/3 (Fasabbih)__: []()
-* __Surah Al Haaqqa 69/52 (Fasabbih)__: []()
-* __Surah Al'Alaa 87/1 (Sabbih)__: []()
+* __Surah An Nasr 11/3 (Fasabbih)__: [](https://quranwbw.com/11/3)
+* __Surah Al Haaqqa 69/52 (Fasabbih)__: [](https://quranwbw.com/69/52)
+* __Surah Al'Alaa 87/1 (Sabbih)__: [](https://quranwbw.com/87/1)
 
 
 * __Surah Fatah 48/9 (Morning and Evening)__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)

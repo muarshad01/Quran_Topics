@@ -22,23 +22,18 @@
 
 *** 
 
-#### And Seek Help
-* __Surah Al-Baqarah 2/45__:[And seek help through patience and prayer. Indeed, it is a burden except for the humble.](https://quranwbw.com/2/45)
+* __Surah Al-Baqarah 2/45 (Seek Help)__:[And seek help through patience and prayer. Indeed, it is a burden except for the humble.](https://quranwbw.com/2/45)
 
-####  Allah SWT is TRULY with those who are patient
-* __Surah Al-Baqarah 2/153__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
+* __Surah Al-Baqarah 2/153 (Allah SWT is TRULY with those...)__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
 
 #### We will TEST You...But give GOOD News (Who patiently endure)
 * __Surah Al-Baqarah 2/155__: [We will certainly test you with a touch of fear and famine and loss of property, life, and crops. Give good news to those who patiently endure. ](https://quranwbw.com/2/155)
 
-#### Surely to Allah we Belong
 * __Surah Al-Baqarah 2/156__: [who say, when struck by a disaster, “Surely to Allah we belong and to Him we will ˹all˺ return.”](https://quranwbw.com/2/156)
 
-#### Who will receive Allah's Blessings
-* __Surah Al-Baqarah 2/157__: [They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.](https://quranwbw.com/2/157)
+* __Surah Al-Baqarah 2/157 (Who will receive Allah's Blessings...)__: [They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.](https://quranwbw.com/2/157)
 
-#### Righteousness & Charity
-* __Surah Al-Baqarah 2/177__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
+* __Surah Al-Baqarah 2/177 (Righteousness & Charity)__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
 
 ***
 
@@ -58,8 +53,7 @@
 
 ***
 
-#### Truly fortunate
-* __Surah Fussilat [] 41/35__: [But this cannot be attained except by those who are patient and who are truly fortunate.](https://quranwbw.com/41/35)
+* __Surah Fussilat [] 41/35 (Truly fortunate)__: [But this cannot be attained except by those who are patient and who are truly fortunate.](https://quranwbw.com/41/35)
 
 ***
 
@@ -70,18 +64,16 @@
 
 * __Surah Al-Qalam 68/48__: [So be patient with your Lord’s decree, and do not be like ˹Jonah,˺ the Man of the Whale, who cried out ˹to Allah˺, in total distress.](https://quranwbw.com/68/48)
 
-* __Surah Al-Qalam 68/51-52__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.” But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+* __Surah Al-Qalam 68/51-52__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
 
 ***
 
-* __Surah At-Takwir 81/22__: [And your fellow man is not insane.](https://quranwbw.com/81/22)
+* __Surah At-Takwir 81/22 (Not Insane)__: [And your fellow man is not insane.](https://quranwbw.com/81/22)
 
 ***
 
-#### Urge / Enjoin Sabr
-* __Surah Al-Asr 103/3 (Urge Sabr)__: [...and urge each other to perseverance](https://quranwbw.com/103)
+* __Surah Al-Asr 103/3 (Urge/Enjoin Sabr)__: [...and urge each other to perseverance](https://quranwbw.com/103)
 
-*** 
 ***
 
 ## Dawat-e-Haq (Sadiq & Ameen)

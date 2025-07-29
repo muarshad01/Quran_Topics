@@ -37,7 +37,7 @@
 |---|---|---|--- | ---| ---| ---|--|
 |1. | [Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | July 2025 |  |
 |2. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 29, 2025|
-|3. | [ Sabr (Patience)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
+|3. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
 |4. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025|
 |5. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 2025 |
 |6. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 28, 2025 |

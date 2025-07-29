@@ -1,5 +1,13 @@
 ## Sabr (Patience)
 
+```
+Sidq-e-Khalil(A.S.) Bhi Hai Ishq, Sabr-e-Hussain(R.A.) Bhi Hai Ishq
+Maarka'ay Wajood Mein Badar-o-Hunain Bhi Hai Ishq
+
+The truthfulness of Abraham is but a form of Love, and so is the patience of Husain—
+And so are Badr and Hunayn in the battle of existence.
+```
+
 #### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
 * Listen first 15 mins...
 * The top-most thing is Sabr (إِنَّ اللَّهَ مَعَ الصَّابِرِينَ)

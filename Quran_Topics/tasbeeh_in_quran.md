@@ -36,9 +36,7 @@
 
 * __Surah Aal i Imran 3/113 (UPRIGHT People)__:[they recite the Verses of Allah during the hours of the night, prostrating themselves in prayer](https://quranwbw.com/3#113)
 
-* __Surah Al-Araf 7/180 (Most Beautiful Names)__: [Allah has the Most Beautiful Names. So call upon Him by them](https://quranwbw.com/7#180)
 
-* __Surah Ar-Rad 13/28 (Hearts Find Rest)__: [Verily, in the remembrance of Allah do hearts find rest](https://quranwbw.com/13#28)
 
 * __Surah Ar-Rad 13/13 (The thunder glorifies His praises)__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
 

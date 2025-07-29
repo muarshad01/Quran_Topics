@@ -9,33 +9,33 @@
 #### Hadith
 * [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
 
-***
-
-### All-Hearing, All-Knowing, Truly the Accepter of Repentance, Most Merciful
-
-* __Surah Al-Baqarah 2/ 127-128__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing. Our Lord! Make us both ˹fully˺ submit to You1 and from our descendants a nation that will submit to You. Show us our rituals, and turn to us in grace. You are truly the Accepter of Repentance, Most Merciful.](https://quran.com/2/127-128)
-
-* __Surah Al-Baqarah 2/222__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.](https://quran.com/2/222)
-
-### Last Hours of Night
-
-* __Surah Aal-i-Imran 3/17__: [ who pray and beg Allah's Pardon in the last hours of the night](https://quranwbw.com/3#17)
-
 ### And Hasten towards Forgiveness
 * __Surah Aal-i-Imran 3/133-138__: [And hasten towards forgiveness from your Lord](https://quranwbw.com/3#133-138)
     * [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
 
 ***
 
-* __Surah An-Nisa 4/110__: [Whoever commits evil or wrongs themselves then seeks Allah’s forgiveness will certainly find Allah All-Forgiving, Most Merciful.](https://quran.com/4/110)
+### All-Hearing, All-Knowing, Truly the Accepter of Repentance, Most Merciful
+
+* __Surah Al-Baqarah 2/ 127-128__: [(127) And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing. (128) Our Lord! Make us both ˹fully˺ submit to You1 and from our descendants a nation that will submit to You. Show us our rituals, and turn to us in grace. You are truly the Accepter of Repentance, Most Merciful.](https://quranwbw.com/2/127-128)
+
+* __Surah Al-Baqarah 2/222__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quranwbw.com/2/222)
 
 ***
 
-* __Surah Al-Maidah 5/74__: [Will they not turn to Allah in repentance and seek His forgiveness? And Allah is All-Forgiving, Most Merciful.](https://quran.com/5/74)
+* __Surah Ale-i-Imran 3/17 (Forgiveness before dawn)__: [˹It is they˺ who are patient, sincere, obedient, and charitable, and who pray for forgiveness before dawn.](https://quranwbw.com/3#17)
 
 ***
 
-* __Surah Al-Araf 7/23__: [They replied, “Our Lord! We have wronged ourselves. If You do not forgive us and have mercy on us, we will certainly be losers.”](https://quran.com/7/23)
+* __Surah An-Nisa 4/110__: [Whoever commits evil or wrongs themselves then seeks Allah’s forgiveness will certainly find Allah All-Forgiving, Most Merciful.](https://quranwbw.com/4/110)
+
+***
+
+* __Surah Al-Maidah 5/74__: [Will they not turn to Allah in repentance and seek His forgiveness? And Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/5/74)
+
+***
+
+* __Surah Al-Araf 7/23__: [They replied, “Our Lord! We have wronged ourselves. If You do not forgive us and have mercy on us, we will certainly be losers.”](https://quranwbw.com/7/23)
 
 
 ***
@@ -66,7 +66,6 @@
 * __Surah An-Naml 27/46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment1 rather than grace?2 If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
 
 ***
-
 
 ### King Solomon Dua
 * __Surah Saad 38/35 (Forgive and Grant me a Kingdom)__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quranwbw.com/38/35)

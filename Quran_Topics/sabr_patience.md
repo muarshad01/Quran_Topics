@@ -131,6 +131,6 @@
 
 #### Khabbab ibn al-Aratt
 * Blacksmith 
-* [Khabbab Ibn Al Aratt (RA) - Under Burning Hot Coals (https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
+* [Khabbab Ibn Al Aratt (RA) - Under Burning Hot Coals](https://yaqeeninstitute.org/watch/series/khabbab-ibn-al-aratt-under-burning-hot-coals)
 
 ***

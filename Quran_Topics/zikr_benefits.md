@@ -43,7 +43,7 @@
 
 ***
 
-* __Surah Ar-Rad [The Thunder] 13/28 (Comfort of Hearts)__: [those who believe and whose hearts find comfort in the remembrance of Allah. Surely in the remembrance of Allah do hearts find comfort.](https://quranwbw.com/en/13/28)
+* __Surah Ar-Rad [The Thunder] 13/28 (Hearts find Comfort)__: [those who believe and whose hearts find comfort in the remembrance of Allah. Surely in the remembrance of Allah do hearts find comfort.](https://quranwbw.com/en/13/28)
 
 ***
 

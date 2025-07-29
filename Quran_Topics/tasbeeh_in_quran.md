@@ -16,8 +16,10 @@
 | Word | Meaning| 
 |---|---|
 | Subhana (سُبْحَانَ)||
-| Sabbaha (سَبَّحَ) |Purity has been proclaimed |
+| Sabbaha (سَبَّحَ) | Purity has been proclaimed |
 | Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
+| Fasabbih (فَسَبِّحْ) ||
+| Sabbih (سَبِّحْ) | Praise |
 
 ***
 
@@ -74,20 +76,13 @@
 * __Surah Fatah 48/9__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)
 
 ### `Sabbih` (Praise)
-* __Surah Al'Alaa__ 87/1:
+* __Surah Al'Alaa 87/1 (Sabbih)__: []()
 ```
 Glorify the Name of your Lord, the Most High, 
 ```
 
-## `Fasabbih`
-* __Surah An Nasr 11/3__: 
-```
-So glorify the Praises of your Lord, and ask for His Forgiveness. Verily, He is the One Who accepts the repentance and forgives
-```
-* __Surah Al Haaqqa 69/52__: 
-```
-So glorify the Name of your Lord, the Most Great
-```
+* __Surah An Nasr 11/3 (Fasabbih)__: []()
+* __Surah Al Haaqqa 69/52 (Fasabbih)__: []()
 
 ***
 

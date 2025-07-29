@@ -74,29 +74,31 @@
 
 ## Dawat-e-Haq (Sadiq & Ameen)
 
+#### Majnoon
 * __Surah Al-Hijr 15/6 (Majnoon)__: [They say, “O you to whom the Reminder is revealed! You must be insane!](https://quranwbw.com/15/6)
-
-* __Surah Al-Hijr 15/97 (Heart is Distressed)__: [We certainly know that your heart is truly distressed by what they say.](https://www.quranwbw.com/15/97)
-  
-* __Surah Ya-Sin 36/69 (Poet/Poetry)__: [We have not taught him poetry, nor is it fitting for him. This ˹Book˺ is only a Reminder and a clear Quran](https://quranwbw.com/36/69)
-
-#### Allah SWT will Perfect His light
-* __Surah As-Saf 61/8__: [They wish to extinguish Allah’s light with their mouths, but Allah will ˹certainly˺ perfect His light, even to the dismay of the disbelievers.](https://quranwbw.com/61/8)
 
 * __Surah Al-Qalam 68/1-7 (Not Majnoon)__: [Nũn. By the pen and what everyone writes! 2. By the grace of your Lord, you ˹O Prophet˺ are not insane. 3. You will certainly have a never-ending reward. 4. And you are truly ˹a man˺ of outstanding character. 5. Soon you and the pagans will see. 6. which of you is mad. 7. Surely your Lord ˹alone˺ knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/68/1-7)
 
 * __Surah Al-Qalam 68/51 (Majnoon)__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.”](https://quranwbw.com/68/51)
 
-* __Surah Al-Muzzamil 73/10__: [Be patient ˹O Prophet˺ with what they say, and depart from them courteously.](https://quranwbw.com/73/10)
+* __Surah Al-Qalam 68/51-52 ()__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.” But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+
+* __Surah At-Takwir 81/22 ()__: [And your fellow man is not insane.](https://quranwbw.com/81/22)
+
+
+#### Poet  
+* __Surah Ya-Sin 36/69 (Poet/Poetry)__: [We have not taught him poetry, nor is it fitting for him. This ˹Book˺ is only a Reminder and a clear Quran](https://quranwbw.com/36/69)
+
+* __Surah Al-Hijr 15/97 (Heart is Distressed)__: [We certainly know that your heart is truly distressed by what they say.](https://www.quranwbw.com/15/97)
+
+* __Surah Al-Muzzamil 73/10 (Depart Courteously)__: [Be patient ˹O Prophet˺ with what they say, and depart from them courteously.](https://quranwbw.com/73/10)
+
+* __Surah As-Saf 61/8 (Allah SWT will Perfect His light)__: [They wish to extinguish Allah’s light with their mouths, but Allah will ˹certainly˺ perfect His light, even to the dismay of the disbelievers.](https://quranwbw.com/61/8)
 
 * __Surah Al-Balad 90/17__: [and—above all—to be one of those who have faith and urge each other to perseverance and urge each other to compassion.](https://quranwbw.com/90/17)
 
+
 ***
-
-#### Majnoon
-* __Surah Al-Qalam 68/51-52__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.” But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
-* __Surah At-Takwir 81/22__: [And your fellow man1 is not insane.](https://quranwbw.com/81/22)
-
 ***
 
 ## Sumayyah (Wife), Yasir (Husband), Ammar

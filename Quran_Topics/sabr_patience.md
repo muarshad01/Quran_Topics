@@ -20,12 +20,11 @@
 
 ***
 
-### Shukkar (Thankfulness) and Sabr (Patience)
 * __Surah Al-Baqarah 2/45 (Seek Help)__:[And seek help through patience and prayer. Indeed, it is a burden except for the humble—](https://quranwbw.com/2/45)
 
 * __Surah Al-Baqarah 2/153__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
 
-* __Surah Al-Baqarah 2/155 (Surely we'll test you...)__: [We will certainly test you with a touch of fear and famine and loss of property, life, and crops. Give good news to those who patiently endure—](https://quranwbw.com/2/155)
+* __Surah Al-Baqarah 2/155 (Surely we'll TEST you...)__: [We will certainly test you with a touch of fear and famine and loss of property, life, and crops. Give good news to those who patiently endure—](https://quranwbw.com/2/155)
 
 * __Surah Al-Baqarah 2/156__: [who say, when struck by a disaster, “Surely to Allah we belong and to Him we will ˹all˺ return.”](https://quranwbw.com/2/156)
 

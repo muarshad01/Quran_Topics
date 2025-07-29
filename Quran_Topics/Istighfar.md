@@ -4,7 +4,7 @@
 
 #### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
 
-#### [Syed Istigfar](https://www.youtube.com/shorts/WaEOEiUQHL4)
+#### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)
 
 #### Hadith
 * [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari

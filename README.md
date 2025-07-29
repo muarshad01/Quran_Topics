@@ -30,6 +30,8 @@
 
 * __Surah At-Tariq 86/13-14 (Decisive Word; Don't take it lightly)__: [Surely this ˹Quran˺ is a decisive word, and is not to be taken lightly.](https://quran.com/86/13-14)
 
+* __Surah__: [](https://quran.com/82/6)
+
 ***
 ***
 

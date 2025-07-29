@@ -1,7 +1,7 @@
 ## Sabr (Patience)
 
 ```
-Sidq-e-Khalil(A.S.) Bhi Hai Ishq, Sabr-e-Hussain(R.A.) Bhi Hai Ishq
+Sidq-e-Khalil (AS) Bhi Hai Ishq, Sabr-e-Hussain(RA) Bhi Hai Ishq
 Maarka'ay Wajood Mein Badar-o-Hunain Bhi Hai Ishq
 
 The truthfulness of Abraham is but a form of Love, and so is the patience of Husain—

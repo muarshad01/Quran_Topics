@@ -40,20 +40,20 @@
 |3. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
 |4. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025|
 |5. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 2025 |
-|6. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 28, 2025 |
+|6. | [Zikr (Remembrance of Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 2025| 
+|7. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 2025 |
+|8. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 2025 | 
 
 ***
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Zikr (Remembrance of Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 2025| 
-|2. | [Istighfar (Seeking forgiveness from Allah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 2025 |
-|3. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 2025 | 
-|4. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 28, 2025 |  |
-|5. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | July 2025 |
-|6. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | July 2025 |
-|7. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-|8. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/promise.md)| July 2025 |
+|1. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 28, 2025 |  |
+|2. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 28, 2025 |
+|3. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | July 2025 |
+|4. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | July 2025 |
+|5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
+|6. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/promise.md)| July 2025 |
 
 ***
 

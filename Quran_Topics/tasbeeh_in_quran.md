@@ -50,13 +50,12 @@
 * __Surah Taha 20/42__: [Don't slacken and become weak in My Remembrance](https://quranwbw.com/20#42)
 * __Surah Taha 20/124__: [But whosoever turns away from My Reminder (i.e. neither believes in this Quran nor acts on its orders, etc.) verily, for him is a life of hardship, and We shall raise him up blind on the Day of Resurrection](https://quranwbw.com/20#124)
 
-* __Surah As Saaffaat 37/143 (Yunus AS Story)__: [Had he not been of them who glorify Allah. He would have indeed remained inside its belly (the fish) till the Day of Resurrection](https://quranwbw.com/37#143-144)
+* __Surah As Saaffaat 37/143 (Importance of Zikr)__: [Had he not been of them who glorify Allah. He would have indeed remained inside its belly (the fish) till the Day of Resurrection](https://quranwbw.com/37#143-144)
 
-* __Surah As Saffat 37/166__: [Verily, we (angels), we are they who glorify (Allah's Praises i.e. perform prayers)](https://quranwbw.com/37#166)
+* __Surah As Saffat 37/166 (Angels)__: [Verily, we (angels), we are they who glorify (Allah's Praises i.e. perform prayers)](https://quranwbw.com/37#166)
 
 
-
-* __Surah Fatah 48/9 (Morning and Evening)__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)
 * __Surah Toor 52/48 (When you rise)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
+* __Surah Fatah 48/9 (Morning and Evening)__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)
 * __Surah Al-Insan 76/25-25 (Morning and Evening)__: [˹Always˺ remember the Name of your Lord morning and evening, and prostrate before Him during part of the night, nd glorify Him long at night.](https://quranwbw.com/76/25-26)
 

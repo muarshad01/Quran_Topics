@@ -1,4 +1,5 @@
 ## Jang-e-Badr
+* 70 Kafirs were martyred...
 
 ## Jang-e-Ahud
 

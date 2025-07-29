@@ -7,8 +7,9 @@
 
 ***
 
-* __Surah Kahf 18/109__: [](https://quran.com/18/109)
-* __Surah Luqman 31/27__: [](https://quran.com/31/27)
+#### If Trees are PENS and Ocens from SEVEN Heavens becom INK
+* __Surah Kahf 18/109__: [Say, ˹O Prophet,˺ “If the ocean were ink for ˹writing˺ the Words of my Lord, it would certainly run out before the Words of my Lord were finished, even if We refilled it with its equal.”](https://quran.com/18/109)
+* __Surah Luqman 31/27__: [If all the trees on earth were pens and the ocean ˹were ink˺, refilled by seven other oceans, the Words of Allah would not be exhausted. Surely Allah is Almighty, All-Wise.](https://quran.com/31/27)
 
 ***
 

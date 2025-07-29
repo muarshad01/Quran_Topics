@@ -1,5 +1,6 @@
-## Zikr: Ahl-e-Ilm versus Ahl-e-Zikr
+## Zikr (وَلِلَّهِ الْأَسْمَاءُ الْحُسْنَىٰ فَادْعُوهُ بِهَا)
 * Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
+* __Surah Al-Araaf 7/180__: [Allah has the Most Beautiful Names. So call upon Him by them, and keep away from those who abuse His Names. They will be punished for what they used to do.](https://quranwbw.com/7/180)
 
 ***
 

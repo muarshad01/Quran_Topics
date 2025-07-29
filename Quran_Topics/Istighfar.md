@@ -40,49 +40,41 @@
 
 ***
 
-### Seek (Allah's) Forgiveness
-
-* __Surah Al-Anfaal 08/33__: [And Allah would not punish them while you (Muhammad SAW) are amongst them, nor will He punish them while they seek (Allah's) Forgiveness](https://quranwbw.com/8#33)
+* __Surah Al-Anfaal [The Spoils of War] 08/33__: [But Allah would never punish them while you ˹O Prophet˺ were in their midst. Nor would He ever punish them if they prayed for forgiveness.](https://quranwbw.com/8#33)
 
 ***
 
-### Allah SWT alone Accepts REPENTANCE and receives CHARITY
-* __Surah At-Tawbah 9/104__: [Do they not know that Allah alone accepts the repentance of His servants and receives ˹their˺ charity, and that Allah alone is the Accepter of Repentance, Most Merciful?](https://quran.com/9/104)
+* __Surah At-Tawbah 9/104 (Allah SWT alone Accepts REPENTANCE and receives CHARITY)__: [Do they not know that Allah alone accepts the repentance of His servants and receives ˹their˺ charity, and that Allah alone is the Accepter of Repentance, Most Merciful?](https://quranwbw.com/9/104)
 
 ***
 
-### A Prosperous Life Will Be Granted
+* __Surah Hud 11/03 (Prosperous Life Will Be Granted)__: [And seek your Lord’s forgiveness and turn to Him in repentance. He will grant you a good provision for an appointed term and graciously reward the doers of good. But if you turn away, then I truly fear for you the torment of a formidable Day.](https://quranwbw.com/11#3)
 
-* __Surah Hud 11/03__: [And (commanding you): "Seek the forgiveness of your Lord, and turn to Him in repentance, that He may grant you good enjoyment, for a term appointed, and bestow His abounding Grace to every owner of grace (i.e. the one who helps and serves needy and deserving, physically and with his wealth, and even with good words). But if you turn away, then I fear for you the torment of a Great Day (i.e. the Day of Resurrection)](https://quranwbw.com/11#3)
 
-### Strength and Power Will Increase
-
-* __Surah Hud 11/52__: [And O my people! Ask forgiveness of your Lord and then repent to Him, He will send you (from the sky) abundant rain, and add strength to your strength, so do not turn away as Mujrimun (criminals, disbelievers in the Oneness of Allah)](https://quranwbw.com/11#52)
+* __Surah Hud 11/52 (Strength and Power Will Increase)__: [And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”](https://quranwbw.com/11#52)
 
 ***
 
-### Parents
-
-* __Surah Al-Isra 17/24__: [And be humble with them out of mercy, and pray, “My Lord! Be merciful to them as they raised me when I was young.”](https://quran.com/17/24)
+* __Surah Al-Isra [The Night Journey] 17/24 (Parents)__: [And be humble with them out of mercy, and pray, “My Lord! Be merciful to them as they raised me when I was young.”](https://quranwbw.com/17/24)
 
 ***
 
-* __Surah Al-Anbya 21/87__: [“There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quran.com/21/87)
+* __Surah Al-Anbya 21/87 (Laaa ilaaha illaaa Anta Subhaanaka innee kuntu minaz zaalimeen)__: [And ˹remember˺ when the Man of the Whale stormed off ˹from his city˺ in a rage, thinking We would not restrain him.1 Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87)
 
 ***
 
-* __Surah An-Naml 27/46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment1 rather than grace?2 If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quran.com/27/46)
+* __Surah An-Naml 27/46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment1 rather than grace?2 If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
 
 ***
 
 
 ### King Solomon Dua
-* __Surah Saad 38/35__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quran.com/38/35)
+* __Surah Saad 38/35 (Forgive and Grant me a Kingdom)__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quranwbw.com/38/35)
 
 ***
 
 ### Never Loose Hope in Allah SWT Mercy
-* __Surah Az-Zumar 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quran.com/39/53)
+* __Surah Az-Zumar [The Groups] 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
 
 ***
 

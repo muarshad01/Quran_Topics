@@ -1,14 +1,14 @@
 https://www.youtube.com/shorts/GAdvoL34EAQ
 
-#### [The Real Purpose of Tasbeeh | Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
+#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Concentration Span Increases
 * We learn to dive into ghoor-o-fiqr
 * We learn to solve nuqta hai-e-raaz
 
 ***
 
-https://quran.com/18/109
-https://quran.com/31/27
+* https://quran.com/18/109
+* https://quran.com/31/27
 
 ***
 

@@ -72,7 +72,7 @@
 
 ***
 
-## Dawat-e-Haq (Sadiq & Ameen)
+## Prophet Muhammad PBUH Dawat-e-Haq (Sadiq & Ameen)
 
 #### Majnoon
 * __Surah Al-Hijr 15/6 (Majnoon)__: [They say, “O you to whom the Reminder is revealed! You must be insane!](https://quranwbw.com/15/6)

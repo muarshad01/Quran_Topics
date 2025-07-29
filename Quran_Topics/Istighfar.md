@@ -5,6 +5,8 @@
 * __Surah Az Zumar [The Groups] 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quran.com/39/53)
 * __Surah Yaseen 36/30__: https://quranwbw.com/36/30
 
+***
+
 #### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
 
 #### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)

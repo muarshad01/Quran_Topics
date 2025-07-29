@@ -90,9 +90,10 @@
 
 ***
 
-* __Surah Az-Zukhruf 43/36-38__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quran.com/43/36-38)
+### Devil as a Close Associate
+* __Surah Az-Zukhruf [Ornaments of Gold] 43/36-38__: [(36) And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate, (37) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (38) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/36-38)
 
-* __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quran.com/43/44)
+* __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quranwbw.com/43/44)
 
 ***
 

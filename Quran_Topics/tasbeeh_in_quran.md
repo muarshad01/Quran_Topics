@@ -16,16 +16,16 @@
 | Word | Meaning| 
 |---|---|---|
 | Subhana (سُبْحَانَ)||
-| Sabbaha (سَبَّحَ) ||
+| Sabbaha (سَبَّحَ) |(Purity has been proclaimed)|
 | Yusabbihu (يُسَبِّحُ) ||
 
 ***
 
 #### 7 Surahs that begin with (Sabbaha, Subhana, Yusabbihu) words:
 * __Al-Isra 17__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
-* __Al-Hadid 57__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
-* __Al-Hashr 59__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
-* __As-Saff 61__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
+* __Al-Hadid 57 (Sabbaha)__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
+* __Al-Hashr 59 (Sabbaha)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
+* __As-Saff 61 (Sabbaha)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
 * __Al-Jumuah 62__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
 * __At-Taghabun 64__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
 * __Al-Alaa 87__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
@@ -72,16 +72,6 @@
 
 ### Morning & Evening
 * __Surah Fatah 48/9__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)
-
-***
-
-## `Sabbaha` (Purity has been proclaimed) 
-* __Surah Al-Hadid 57/1__:
-* __Surah Al-Hashr 59/1__:
-* __Surah As-Saff 61/1__:
-```
-Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.
-```
 
 ## `Yusabbihu` (Purity is proclaimed)
 * __Surah Al-Jumu'ah 62/1__:

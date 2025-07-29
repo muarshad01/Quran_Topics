@@ -12,7 +12,11 @@
 * __Under Debt__: `Ya Zuljalal Wal Ikram`
 
 #### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
-* No body can fight that person
+* https://quranwbw.com/2/200 (فَاذْكُرُوا اللَّهَ كَذِكْرِكُمْ آبَاءَكُمْ أَوْ أَشَدَّ ذِكْرًا)
+* __Surah Anbiyaa__: [Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87-88)
+* __Surah Saaffaat [Those Drawn up in Ranks] 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
+* FoF: Friend of Friend
+* Tasbeeh walay BRAVE hotay hayn. SECRET: No body can fight that person
 
 ***
 ***

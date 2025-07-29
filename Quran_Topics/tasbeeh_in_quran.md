@@ -7,17 +7,23 @@ https://www.youtube.com/shorts/GAdvoL34EAQ
 
 ***
 
-* https://quran.com/18/109
-* https://quran.com/31/27
+* __Surah Kahf 18/109__: [](https://quran.com/18/109)
+* __Surah Luqman 31/27__: [](https://quran.com/31/27)
 
 ***
 
 * Appears in 41 verses of the Quran ???
 
 ***
+||||
+|---|---|---|
+| Subhana (سُبْحَانَ)|||
+| Sabbaha (سَبَّحَ) |||
+
+***
 
 #### SEVEN Surahs that begin with (Sabbaha, Yusabbihu, Sabbhi, Subhana) words:
-* __Al-Isra 17__: Also starts with `Subhana` which is in the infinitive form, indicating a permanent and timeless declaration of Allah's perfection. 
+* __Al-Isra 17__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
 * __Al-Hadid 57__: Starts with `sabbaha lillahi ma fis-samawati wal-ardi` (Whatever is in the heavens and on earth glorifies Allah). 
 * __Al-Hashr 59__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 
 * __As-Saff 61__: Also starts with `sabbaha lillahi ma fis-samawati wal-ardi`. 

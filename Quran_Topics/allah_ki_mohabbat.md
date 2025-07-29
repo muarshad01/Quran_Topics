@@ -1,6 +1,6 @@
 # Allah SWT Ki Mohabbat
 
-### [Sahabi Was Upset](https://www.youtube.com/shorts/2ARfP9AiVLU) - Hadith
+### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with the person at Judgement whom you loved in Dunya
 
 ***

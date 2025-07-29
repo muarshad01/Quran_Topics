@@ -1,4 +1,4 @@
-# Love of Allah SWT
+## Love of Allah SWT
 
 ### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with the person at Judgement whom you loved in Dunya
@@ -82,7 +82,7 @@
 
 ***
 
-# Allah SWT Doesn't LIKE
+## Allah SWT Doesn't LIKE
 
 * __Surah An-Nisaa 4/148 (Negative thoughts to be voiced)__: [Allah does not like negative thoughts to be voiced—except by those who have been wronged.1 Allah is All-Hearing, All-Knowing.](https://quranwbw.com/4/148)
 * __Surah An-Nisaa 4/368 (Proud and Boastful)__: [Worship Allah ˹alone˺ and associate none with Him. And be kind to parents, relatives, orphans, the poor, near and distant neighbours, close friends, ˹needy˺ travellers, and those ˹bondspeople˺ in your possession. Surely Allah does not like whoever is arrogant, boastful—](https://quranwbw.com/4/36)

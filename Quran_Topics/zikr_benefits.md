@@ -17,55 +17,50 @@
 
 ***
 
-#### Rememberance & Thankfulness
-* __Surah Al-Baqarah 2/152__: [Rremember Me; I will remember you. And thank Me, and never be ungrateful](https://quran.com/2/152)
+* __Surah Al-Baqarah 2/152 (Remember me...Be Thankful...)__: [remember Me; I will remember you. And thank Me, and never be ungrateful.](https://quranwbw.com/2/152)
 
 ***
 
-#### Standing, Sitting, and Side-potition
-* __Surah Ali 'Imran 3/191__: [˹They are˺ those who remember Allah while standing, sitting, and lying on their sides, and reflect on the creation of the heavens and the earth ˹and pray˺, “Our Lord! You have not created ˹all of˺ this without purpose. Glory be to You! Protect us from the torment of the Fire.](https://quran.com/3/191)
+#### Zikr Standing, Sitting, or Lying-down
+* __Surah Ali 'Imran 3/191__: [˹They are˺ those who remember Allah while standing, sitting, and lying on their sides, and reflect on the creation of the heavens and the earth ˹and pray˺, “Our Lord! You have not created ˹all of˺ this without purpose. Glory be to You! Protect us from the torment of the Fire.](https://quranwbw.com/3/191)
 
 ***
 
-#### Zikr after prayers: Standing, Sitting, or Lying-down
-* [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quran.com/4/103)
+#### After prayers: Zikr Standing, Sitting, or Lying-down
+* [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
 
 ***
 
-* __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
+* __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quranwbw.com/12/42)
 
 ***
 
-#### Hearts find Comfort
-* __Surah Ar-Rad 13/28__: [Surely in the remembrance of Allah do hearts find comfort.](https://quran.com/en/13/28)
+* __Surah Ar-Rad [The Thunder] 13/28 (Comfort of Hearts)__: [those who believe and whose hearts find comfort in the remembrance of Allah. Surely in the remembrance of Allah do hearts find comfort.](https://quranwbw.com/en/13/28)
 
 ***
 
-* __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quran.com/18/28)
-* __Surah Al-Kahf 18/101__: [those who turned a blind eye to My Reminder1 and could not stand listening ˹to it˺.](https://quran.com/18/101)
+* __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quranwbw.com/18/28)
+* __Surah Al-Kahf 18/101__: [those who turned a blind eye to My Reminder1 and could not stand listening ˹to it˺.](https://quranwbw.com/18/101)
 
 ***
 
-#### We'll protect it
-* __Surah Al-Hijr 15/9__: [It is certainly We Who have revealed the Reminder, and it is certainly We Who will preserve it.](https://quran.com/15/9)
+* __Surah Al-Hijr [The Rock] 15/ (We'll protect it)9__: [It is certainly We Who have revealed the Reminder, and it is certainly We Who will preserve it.](https://quranwbw.com/15/9)
 
 ***
 
-#### Shifa and Rehmat
-* __Surah Al-Isra 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quran.com/17/82)
+* __Surah Al-Isra [The Night Journey] 17/82 (Shifa and Rehmat)__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
 
 ***
 
-* __Surah Taha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quran.com/20/14)
+* __Surah Taha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
 
 ***
 
-* __Surah Al-Anbya 21/10__: [We have surely revealed to you a Book, in which there is glory for you. Will you not then understand?](https://quran.com/21/10)
+* __Surah Al-Anbya 21/10__: We have surely revealed to you a Book, in which there is glory for you. Will you not then understand?https://quranwbw.com/21/10)
 
 ***
 
-### Morning, Zuhar, Evening, Isha
-* __Surah Ar-Rum__: [So glorify Allah in the evening and in the morning. All praise is for Him in the heavens and the earth—as well as in the afternoon, and at noon.](https://quran.com/30/17-18)
+* __Surah Ar-Room 30/17-18 (Evening [Maghrib, Isha] and Morning; Afternoon & Noon)__: [(17) So glorify Allah in the evening and in the morning—(18) all praise is for Him in the heavens and the earth—as well as in the afternoon, and at noon.1 ](https://quranwbw.com/30/17-18)
 
 ***
 

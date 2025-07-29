@@ -86,41 +86,32 @@
 
 ***
 
-### Angel seek forgiveness for those on earth
-* __Surah Al Ghaafir 40/7__: [Those (angels) who bear the Throne (of Allah) and those around it glorify the praises of their Lord, and believe in Him, and ask forgiveness for those who believe (in the Oneness of Allah) (saying): "Our Lord! You comprehend all things in mercy and knowledge, so forgive those who repent and follow Your Way, and save them from the torment of the blazing Fire](https://quranwbw.com/40#7)
+* __Surah Al-Ghaafir [The Forgiver] 40/7 (Angels seek forgiveness for those on earth)__: [Those ˹angels˺ who carry the Throne and those around it glorify the praises of their Lord, have faith in Him, and seek forgiveness for the believers, ˹praying:˺ “Our Lord! You encompass everything in ˹Your˺ mercy and knowledge. So forgive those who repent and follow Your Way, and protect them from the torment of the Hellfire.](https://quranwbw.com/40#7)
 
 ***
 
-### Rain and Strength
-
-* __Surah Ash Shura 42/5__: [Nearly the heavens might rent asunder from above them (by His Majesty), and the angels glorify the praises of their Lord, and ask for forgiveness for those on the earth, verily, Allah is the Oft-Forgiving, the Most Merciful](https://quranwbw.com/42#5)
+* __Surah Ash Shura [Consultation] 42/5__: [The heavens nearly burst, one above the other, ˹in awe of Him˺. And the angels glorify the praises of their Lord, and seek forgiveness for those on earth. Surely Allah alone is the All-Forgiving, Most Merciful.](https://quranwbw.com/42#5)
 
 ***
 
-* __Surah Muhammad 47/19__: [So, know ˹well, O  Prophet,˺ that there is no god ˹worthy of worship˺ except Allah. And seek forgiveness for your shortcomings1 and for ˹the sins of˺ the believing men and women. For Allah ˹fully˺ knows your movements and places of rest ˹O people˺.](https://quranwbw.com/47/19)
+* __Surah Muhammad 47/19 (Seek Forgiveness...)__: [So, know ˹well, O  Prophet,˺ that there is no god ˹worthy of worship˺ except Allah. And seek forgiveness for your shortcomings and for ˹the sins of˺ the believing men and women. For Allah ˹fully˺ knows your movements and places of rest ˹O people˺.](https://quranwbw.com/47/19)
 
 ***
 
-### Seek forgiveness before dawn
+### Sleep Little...Forgiveness at Dawn...Spend
 
-* __Surah Adh-Dhariat 51/16-19__: [and pray for forgiveness before dawn.](https://quran.com/51/16-19)
-
-***
-
-### Rain, Children, Wealth, Gardens, and Rivers
-
-* __Surah Nooh 71/10-12__: [I said (to them): 'Ask forgiveness from your Lord; Verily, He is Oft-Forgiving. He will send rain to you in abundance. And give you increase in wealth and children, and bestow on you gardens and bestow on you rivers](https://quranwbw.com/71#10-12)
+* __Surah Adh-Dhaariat [The Winnowing Winds] 51/16-19 ()__: [(16) ˹joyfully˺ receiving what their Lord will grant them. Before this ˹reward˺ they were truly good-doers ˹in the world˺. (17) they used to sleep only little in the night, (18) and pray for forgiveness before dawn. (19) And in their wealth there was a rightful share ˹fulfilled˺ for the beggar and the poor.](https://quranwbw.com/51/16-19)
 
 ***
 
-### Seek Allah SWT Forgiveness
-
-* __Surah Al-Muzzammil 73/20__: [And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.](https://quran.com/73/20)
+* __Surah Nooh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [(10) saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving. (11) He will shower you with abundant rain, (12) supply you with wealth and children, and give you gardens as well as rivers.](https://quranwbw.com/71#10-12)
 
 ***
 
-### Hamad (Tasbeeh) and Istigfar & Taubah
+* __Surah Al-Muzzammil [The Eshrouded One] 73/20 (Seek Allah's Forgiveness)__: [And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbe.com/73/20)
 
-* __Surah An-Nasr 101/3__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quran.com/110)
+***
+
+* __Surah An-Nasr [Divine Support] 110/3 (Glorigy, Praise, and seek Forgiveness)__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110)
 
 *** 

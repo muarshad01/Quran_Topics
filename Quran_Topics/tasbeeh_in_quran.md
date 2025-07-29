@@ -1,4 +1,4 @@
-https://www.youtube.com/shorts/GAdvoL34EAQ
+#### [Allah aur Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
 
 #### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Concentration Span Increases
@@ -34,7 +34,7 @@ https://www.youtube.com/shorts/GAdvoL34EAQ
 ## Tasbeeh and Zikr
 
 #### With ABUNDANCE (Morning & Evening)
-* __Surah Aal i Imran 3/41__:[And remember your Lord much (by praising Him again and again), and glorify (Him) in the afternoon and in the morning](https://quranwbw.com/3#41)
+* __Surah Ale-i-Imran 3/41__:[And remember your Lord much (by praising Him again and again), and glorify (Him) in the afternoon and in the morning](https://quranwbw.com/3#41)
 
 #### UPRIGHT People
 * __Surah Aal i Imran 3/113__:[they recite the Verses of Allah during the hours of the night, prostrating themselves in prayer](https://quranwbw.com/3#113)
@@ -53,7 +53,7 @@ https://www.youtube.com/shorts/GAdvoL34EAQ
 
 ***
 
-* __Surah Al-Isra 17/44__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quran.com/17/41-50)
+* __Surah Al-Isra 17/44__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/41-50)
   
 ***
 
@@ -70,7 +70,7 @@ https://www.youtube.com/shorts/GAdvoL34EAQ
 ***
 
 ### Morning & Evening
-* __Surah Fatah 48/9__: [...and glorify Allah morning and evening.](https://quran.com/48/9)
+* __Surah Fatah 48/9__: [...and glorify Allah morning and evening.](https://quranwbw.com/48/9)
 
 ***
 
@@ -107,11 +107,11 @@ So glorify the Name of your Lord, the Most Great
 
 ***
 
-* __Surah Toor 52/48__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quran.com/52/48)
+* __Surah Toor 52/48__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
 
 ***
 
 ### Glorify Him long at night
-* __Surah Al-Insan 76/25-25__: [˹Always˺ remember the Name of your Lord morning and evening, and prostrate before Him during part of the night, nd glorify Him long at night.](https://quran.com/76/25-26)
+* __Surah Al-Insan 76/25-25__: [˹Always˺ remember the Name of your Lord morning and evening, and prostrate before Him during part of the night, nd glorify Him long at night.](https://quranwbw.com/76/25-26)
 
 *** 

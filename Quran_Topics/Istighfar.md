@@ -16,7 +16,7 @@
 
 ***
 
-### All-Hearing, All-Knowing, Truly the Accepter of Repentance, Most Merciful
+#### All-Hearing, All-Knowing, Truly the Accepter of Repentance, Most Merciful
 
 * __Surah Al-Baqarah 2/ 127-128__: [(127) And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing. (128) Our Lord! Make us both ˹fully˺ submit to You1 and from our descendants a nation that will submit to You. Show us our rituals, and turn to us in grace. You are truly the Accepter of Repentance, Most Merciful.](https://quranwbw.com/2/127-128)
 
@@ -37,7 +37,6 @@
 ***
 
 * __Surah Al-Araf 7/23__: [They replied, “Our Lord! We have wronged ourselves. If You do not forgive us and have mercy on us, we will certainly be losers.”](https://quranwbw.com/7/23)
-
 
 ***
 
@@ -68,12 +67,12 @@
 
 ***
 
-### King Solomon Dua
+#### King Solomon Dua
 * __Surah Saad 38/35 (Forgive and Grant me a Kingdom)__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quranwbw.com/38/35)
 
 ***
 
-### Never Loose Hope in Allah SWT Mercy
+#### Never Loose Hope in Allah SWT Mercy
 * __Surah Az-Zumar [The Groups] 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
 
 ***
@@ -90,7 +89,7 @@
 
 ***
 
-### Sleep Little...Forgiveness at Dawn...Spend
+#### Sleep Little...Forgiveness at Dawn...Spend
 
 * __Surah Adh-Dhaariat [The Winnowing Winds] 51/16-19 ()__: [(16) ˹joyfully˺ receiving what their Lord will grant them. Before this ˹reward˺ they were truly good-doers ˹in the world˺. (17) they used to sleep only little in the night, (18) and pray for forgiveness before dawn. (19) And in their wealth there was a rightful share ˹fulfilled˺ for the beggar and the poor.](https://quranwbw.com/51/16-19)
 

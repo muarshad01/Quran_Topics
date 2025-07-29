@@ -73,20 +73,17 @@
 * __Surah Al-Ahzab 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quran.com/33/35)
 
 #### zikran kaseera
-* __Surah Al-Ahzab 33/41__: [O believers! Always remember Allah often,](https://quran.com/33/41)
-* __Surah Jummah 62/10__: [And remember Allah often so you may be successful.](https://quran.com/62/10)
-
-#### Morning and Evening
-* __Surah Al-Ahzab 33/42__: [and glorify Him morning and evening.](https://quran.com/33/42)
-***
-
-#### Yunus AS
-* __Surah Yunus 37/143-144__: [Had he not been of them who glorify Allah. He would have indeed remained inside its belly (the fish) till the Day of Resurrection](https://quranwbw.com/37#143-144)
+* __Surah Al-Ahzab 33/41__: [O believers! Always remember Allah often,](https://quranwbw.com/33/41)
+* __Surah Al-Ahzab 33/42 (Glorify Him in Morning and Evening)__: [and glorify Him morning and evening.](https://quranwbw.com/33/42)
 
 ***
 
-* __Surah Sad 38/1__: [Ṣãd. By the Quran, full of reminders!](https://quran.com/38/1)
-* __Surah Sad 38/49__: [ This is ˹all˺ a reminder. And the righteous will certainly have an honourable destination](https://quran.com/38/49)
+* __Surah Yunus [Jonah] 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37#143-144)
+
+***
+
+* __Surah Saad 38/1__: [Ṣãd. By the Quran, full of reminders!](https://quranwbw.com/38/1)
+* __Surah Saad 38/49__: [This is ˹all˺ a reminder. And the righteous will certainly have an honourable destination:](https://quranwbw.com/38/49)
 
 ***
 
@@ -102,8 +99,7 @@
 
 ***
 
-#### Remember Allah a lot so that you be Successful
-* __Surah Jummah 62/10__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
+* __Surah Jummah 62/10 (Wazkurul laaha kaseeral la'allakum tuflihoon)__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
 
 ***
 

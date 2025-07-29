@@ -16,8 +16,8 @@
 | Sabbih (سَبِّحْ) | Praise |
 | Sabbaha (سَبَّحَ) | Purity has been proclaimed |
 | Fasabbih (فَسَبِّحْ) ||
-| Subhana (سُبْحَانَ)||
 | Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
+| Subhana (سُبْحَانَ)||
 
 
 ***

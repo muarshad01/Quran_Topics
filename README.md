@@ -32,6 +32,9 @@
 
 * __Surah Al-Infitaar [The Cleaving] 82/6__: [O humanity! What has emboldened you against your Lord, the Most Generous,](https://quranwbw.com/82/6)
 
+#### Is there Anyone?
+* __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quranwbw.com/54/17)
+
 ***
 ***
 

@@ -1,6 +1,8 @@
 
 #### [4-Rakat after Maghrib Nawafil | SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
 
+#### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
+
 #### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
 * Discipline (Timing, Commitment)
 * Good Chararacter
@@ -248,35 +250,30 @@
 
 ***
 
-* __Surah An-Nur 24/37__: [by men who are not distracted—either by buying or selling—from Allah’s remembrance, or performing prayer, or paying alms-tax. They fear a Day when hearts and eyes will tremble.](https://quran.com/24/37)
+* __Surah An-Nur 24/37__: [by men1 who are not distracted—either by buying or selling—from Allah’s remembrance, or performing prayer, or paying alms-tax. They fear a Day when hearts and eyes will tremble,](https://quranwbw.com/24/37)
 
-* __Surah An-Nur 24/41__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quran.com/24/41)
-  * ${\color{red}BIRDS}$
-  * ${\color{red}Each ˹instinctively˺ knows their manner of prayer and glorification.}$
-  * [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
+* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ knows their manner of prayer and glorification.; Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
 
-* __Surah An-Nur 24/56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quran.com/24/56)
+* __Surah An-Nur 24/56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quranwbw.com/24/56)
 
-* __Surah An-Nur 24/58__: [O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at THREE TIMES: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise.](https://quran.com/24/58)
-  * $\color{red}THREE TIMES$
+* __Surah An-Nur 24/58 ($\color{red}THREE Times of Permission/Privacy$)__: [O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at THREE TIMES: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise.](https://quranwbw.com/24/58)
 
 ***
 
-* __Surah An-Naml 27/3__: [˹those˺ who establish prayer, pay alms-tax, and have sure faith in the Hereafter.](https://quran.com/27/3)
+* __Surah An-Naml 27/3__: [˹those˺ who establish prayer, pay alms-tax, and have sure faith in the Hereafter.](https://quranwbw.com/27/3)
 
 ***
 
-* __Surah Al-Ankabut 29/45__: [Recite what has been revealed to you of the Book and establish prayer. \n Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. \n The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quran.com/29/45)
+* __Surah Al-Ankabut 29/45__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quranwbw.com/29/45)
 
 ***
 
-* __Surah Ar-Rum 30/31__: [˹O believers!˺ Always turn to Him ˹in repentance˺, be mindful of Him, and establish prayers. And do not be polytheists.](https://quran.com/30/31)
+* __Surah Ar-Rum 30/31__: [˹O believers!˺ Always turn to Him ˹in repentance˺, be mindful of Him, and establish prayers. And do not be polytheists—](https://quranwbw.com/30/31)
 
 ***
 
-* __Surah Luqman 31/17__: [“O my dear son! Establish prayer, encourage what is good and forbid what is evil, and endure PATIENCETLY whatever befalls you. Surely this is a resolve to aspire to.](https://quran.com/31/17)
-  * ${PATIENCE}$
-
+* __Surah Luqman 31/17 (* ${PATIENCE}$)__: [“O my dear son! Establish prayer, encourage what is good and forbid what is evil, and endure patiently whatever befalls you. Surely this is a resolve to aspire to.](https://quranwbw.com/31/17)
+  
 ***
 
 * __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)

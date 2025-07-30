@@ -207,7 +207,8 @@
     * 99 names (attributes) of Allah SWT
 * 33 x 4 = 132 = 
 * 33 x 5 = 165
-* __Surah Al-Anfaal 08/33__: [And Allah would not punish them while you (Muhammad SAW) are amongst them, nor will He punish them while they seek (Allah's) Forgiveness](https://quranwbw.com/8/33)
+* __Surah Al-Anfaal 08/33 ()__: [And Allah would not punish them while you (Muhammad SAW) are amongst them, nor will He punish them while they seek (Allah's) Forgiveness](https://quranwbw.com/8/33)
+* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)
 
 ***
 

@@ -13,11 +13,10 @@
 
 ***
 
-## Special Prayers
-
-#### [4-Rakat Nawafil after Maghrib| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
-
-#### [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+## Special Nafals
+* [4-Rakat Nawafil after Maghrib| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
+* [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+* __Surah Al-Israa (${Fatahajjad; Maqaamam Mahmoodaa}$)__: [And rise at ˹the last˺ part of the night, offering additional prayers, so your Lord may raise you to a station of praise.](https://quranwbw.com/17/79)
 
 #### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
 * __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ ~knows ~their ~manner ~of ~prayer ~and ~glorification.; ~Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)

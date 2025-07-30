@@ -1,4 +1,7 @@
 #### [Tasbeeh-e-Ism aur Tasbeeh-e-Zaat | Hamd, Tasbeeh aur Astaghfar | Allama Talib Jauhari](https://www.youtube.com/watch?v=K-VKDmgpgwo)
+* __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
+*
+
 
 #### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
 * __Surah Fath 48/9 (Honour and Respect)__: [so that you ˹believers˺ may have faith in Allah-and-His-Messenger, support and honour him, and glorify Allah morning and evening.](https://quranwbw.com/48/9)
@@ -49,8 +52,6 @@
 ***
 
 * __Surah Ar-Rad 13/13 (The Thunder: glorifies His praises)__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
-
-* __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
   
 * __Surah As Saffat 37/166 (Angels: Constantly Glorigy Allah SWT)__: [And we are indeed the ones ˹constantly˺ glorifying ˹His praise˺.”](https://quranwbw.com/37#166)
 

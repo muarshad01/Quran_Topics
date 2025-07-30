@@ -12,16 +12,16 @@
 #### ${\color{red}Shikwa ~of ~Prophet ~Muhammad ~PBUH - ~with ~Allah ~about ~his ~Ummah}$
 * __Surah Al-Furqan [The Criterion] 25/30__: [The Messenger has cried, “O my Lord! My people have indeed received this Quran with neglect.”](https://quranwbw.com/25/30)
 
-#### ${\color{red}Wisdom ~(A ~Great ~Privilege)}$
+#### ${\color{red}Wisdom ~(A ~great ~Privilege)}$
 * __Surah Al-Baqarah 2/269 (Wisdom)__: [He grants wisdom to whoever He wills. And whoever is granted wisdom is certainly blessed with a great privilege. But none will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/2/269)
 
-#### ${\color{red}Open ~Hearts ~to ~Islam}$
+#### ${\color{red}Open ~hearts ~to ~Islam}$
 * __Surah Al-Anam [The Cattle] 6/125 (Who Allah SWT wills to guide...)__: [Whoever Allah wills to guide, He opens their heart to Islam.1 But whoever He wills to leave astray, He makes their chest tight and constricted as if they were climbing up into the sky. This is how Allah dooms those who disbelieve.](https://quranwbw.com/6/125)
 
-#### ${\color{red}Quran ~puts ~a ~Barrier}$
+#### ${\color{red}Quran ~puts ~a ~barrier}$
 * __Surah Al-Isra [The Night Journey] 17/45 (Puts a Barrier)__: [When you ˹O Prophet˺ recite the Quran, We put a hidden barrier between you and those who do not believe in the Hereafter.](https://quranwbw.com/17/45)
 
-#### ${\color{red}Devil ~becomes ~Close ~Associate}$
+#### ${\color{red}Devil ~becomes ~close ~associate}$
 * __Surah Az-Zukhruf [Ornaments of Gold] 43/36-38__: [(36) And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate, (37) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (38) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/36-38)
 
 #### ${\color{red}You'll ~be ~asked ~about ~Quran}$

@@ -287,27 +287,25 @@
 
 ***
 
-* __Surah Fatir 35/18__: [No soul burdened with sin will bear the burden of another. And if a sin-burdened soul cries for help with its burden, none of it will be carried—even by a close relative. You ˹O Prophet˺ can only warn those who stand in awe of their Lord without seeing Him and establish prayer. Whoever purifies themselves, they only do so for their own good. And to Allah is the final return.](https://quran.com/35/18)
+* __Surah Fatir [The Originator] 35/18 (${\color{red}Bear the Burden}$)__: [No soul burdened with sin will bear the burden of another. And if a sin-burdened soul cries for help with its burden, none of it will be carried—even by a close relative. You ˹O Prophet˺ can only warn those who stand in awe of their Lord without seeing Him and establish prayer. Whoever purifies themselves, they only do so for their own good. And to Allah is the final return.](https://quranwbw.com/35/18)
 
-* __Surah Fatir 35/29__: [Surely those who recite the Book of Allah, establish prayer, and donate from what We have provided for them—secretly and openly—˹can˺ hope for an exchange that will never fail.](https://quran.com/35/29)
-
-***
-
-* __Surah Ghafir 55__: [So be patient ˹O Prophet˺, ˹for˺ Allah’s promise is certainly true. Seek forgiveness for your shortcomings. And glorify the praises of your Lord morning and evening.](https://quran.com/40/55)
+* __Surah Fatir [The Originator] 35/29__: [Surely those who recite the Book of Allah, establish prayer, and donate from what We have provided for them—secretly and openly—˹can˺ hope for an exchange that will never fail,](https://quranwbw.com/35/29)
 
 ***
 
-* __Surah Ash-Shura 42/38__: [who respond to their Lord, establish prayer, conduct their affairs by mutual consultation, and donate from what We have provided for them;](https://quran.com/42/38)
-  * ${\color{red}Donate}$
+* __Surah Ghafir [The Forgiver] 40/55__: [So be patient ˹O Prophet˺, ˹for˺ Allah’s promise is certainly true. Seek forgiveness for your shortcomings.1 And glorify the praises of your Lord morning and evening.](https://quranwbw.com/40/55)
 
 ***
 
-* __Surah Al-Mujadila 58/13__: [Are you afraid of spending in charity before your private consultations ˹with him˺? Since you are unable to do so, and Allah has turned to you in mercy, then ˹continue to˺ establish prayer, pay alms-tax, and obey Allah and His Messenger. And Allah is All-Aware of what you do.](https://quran.com/58/13)
+* __Surah Ash-Shura [The Consultation] 42/38 (${\color{red}Donate}$)__: [who respond to their Lord, establish prayer, conduct their affairs by mutual consultation, and donate from what We have provided for them](https://quranwbw.com/42/38)
 
 ***
 
-* __Surah Al-Jumu’ah 62/10__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quran.com/62/10)
-  * ${\color{red}Remeber ~Allah ~--> ~successful}$
+* __Surah Al-Mujadila [The Pleading Woman] 58/13__: [Are you afraid of spending in charity before your private consultations ˹with him˺? Since you are unable to do so, and Allah has turned to you in mercy, then ˹continue to˺ establish prayer, pay alms-tax, and obey Allah and His Messenger. And Allah is All-Aware of what you do.](https://quranwbw.com/58/13)
+
+***
+
+* __Surah Al-Jumuah 62/10 (${\color{red}Remeber ~Allah ~--> ~successful}$)__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
 
 ***
 

@@ -116,7 +116,7 @@
    * I am the city of knowledge and Ali AS is the door - Hadith
    * Sword of Allah SWT 
 
-* __Surah Muhammad 47/38__: [Here you are, being invited to donate ˹a little˺ in the cause of Allah. Still some of you withhold. And whoever does so, it is only to their own loss. For Allah is the Self-Sufficient, whereas you stand in need ˹of Him˺. If you ˹still˺ turn away, He will replace you with another people. And they will not be like you.](https://quranwbw.com/47/38)
+* __Surah Muhammad 47/38 (${\color{red}He ~will ~replace ~you}$)__: [Here you are, being invited to donate ˹a little˺ in the cause of Allah. Still some of you withhold. And whoever does so, it is only to their own loss. For Allah is the Self-Sufficient, whereas you stand in need ˹of Him˺. If you ˹still˺ turn away, He will replace you with another people. And they will not be like you.](https://quranwbw.com/47/38)
 * __Surah Al-Ahzaab [The Clans] 33/56 (${\color{red}Darood ~Sharif}$)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
 
 ***

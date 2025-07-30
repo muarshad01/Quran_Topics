@@ -244,13 +244,13 @@
 
 ***
 
-* __Surah Al-Mu’minun Ayat 2__: [those who humble themselves in prayer;](https://quran.com/23/2)
+* __Surah Al-Mu’minun Ayat 23/2 (${\color{red}Humility}$)__: [those who humble themselves in prayer;](https://quranwbw.com/23/2)
 
-* __Surah Al-Mu’minun Ayat 9__: [and those who are ˹properly˺ observant of their prayers.](https://quran.com/23/9)
+* __Surah Al-Mu’minun Ayat 23/9(${\color{red} Observant/Protector}$)__: [and those who are ˹properly˺ observant of their prayers.](https://quranwbw.com/23/9)
 
 ***
 
-* __Surah An-Nur 24/37__: [by men1 who are not distracted—either by buying or selling—from Allah’s remembrance, or performing prayer, or paying alms-tax. They fear a Day when hearts and eyes will tremble,](https://quranwbw.com/24/37)
+* __Surah An-Nur 24/37__: [by men who are not distracted—either by buying or selling—from Allah’s remembrance, or performing prayer, or paying alms-tax. They fear a Day when hearts and eyes will tremble,](https://quranwbw.com/24/37)
 
 * __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ knows their manner of prayer and glorification.; Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
 

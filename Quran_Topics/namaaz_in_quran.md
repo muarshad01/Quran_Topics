@@ -128,7 +128,7 @@
 
 ***
 
-* __Surah At-Taubah 9/5 (${\color{red}وَجَدتُّمُوهُمۡ وَخُذُوهُمۡ وَٱحۡصُرُوهُمۡ وَٱقۡعُدُواْ لَهُمۡ كُلَّ مَرۡصَدٖۚ}$)__: [But once the Sacred Months have passed, kill the polytheists ˹who violated their treaties˺ wherever you find them, capture them, besiege them, and lie in wait for them on every way. But if they repent, perform prayers, and pay alms-tax, then set them free. Indeed, Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/5)
+* __Surah At-Taubah 9/5 (${\color{red}phrase "حَيْثُ وَجَدتُّمُوهُمْ وَخُذُوهُمْ وَٱحْصُرُوهُمْ وَٱقْعُدُوا۟ لَهُمْ كُلَّ مَرْصَدٍۢ ۚ"}$)__: [But once the Sacred Months have passed, kill the polytheists ˹who violated their treaties˺ wherever you find them, capture them, besiege them, and lie in wait for them on every way. But if they repent, perform prayers, and pay alms-tax, then set them free. Indeed, Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/5)
 
 * __Surah At-Taubah 9/11__: [But if they repent, perform prayer, and pay alms-tax, then they are your brothers in faith. This is how We make the revelations clear for people of knowledge.](https://quranwbw.com/9/11)
 

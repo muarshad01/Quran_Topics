@@ -1,1 +1,2 @@
-
+* __Surah An Noor__: [awratin](https://quranwbw.com/24/58)
+* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)

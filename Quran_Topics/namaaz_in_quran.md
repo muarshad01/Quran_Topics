@@ -77,31 +77,24 @@
 
 ***
 
-#### Yahya AS (John)  
-* __Surah Al-Imran Ayat 3/39__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
+* __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
 
 ***
 
-## Surah An-Nisa (4)
+* __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; Impure; Toilet; Fatayammamu}$)__: [O believers! Do not approach prayer while intoxicated1 until you are aware of what you say, nor in a state of ˹full˺ impurity2—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands.3 And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
 
-#### MASAAH ~WUDU
-* __Surah An-Nisa Ayat 4/43__: [O believers! Do not approach prayer while intoxicated until you are aware of what you say, nor in a state of ˹full˺ impurity—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands. And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
+* __Surah An-Nisa Ayat 4/77 (${("فَتِيلًا"; ) ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.
+](https://quranwbw.com/4/77)
 
-* __Surah An-Nisa Ayat 4/77__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/77)
+* __Surah An-Nisa Ayat 4/101 (${\color{red}Travel, ~- ~Shorten ~your ~Prayer}$)__: [When you travel through the land, it is permissible for you to shorten the prayer1—˹especially˺ if you fear an attack by the disbelievers. Indeed, the disbelievers are your sworn enemies.](https://quranwbw.com/4/101)
 
-* __Surah An-Nisa Ayat 4/101__: [When you travel through the land, it is permissible for you to shorten the prayer—˹especially˺ if you fear an attack by the disbelievers. Indeed, the disbelievers are your sworn enemies.](https://quranwbw.com/4/101)
-* ${\color{red}Travel ~- ~Shorten-Prayer}$
+* __Surah An-Nisa 4/102 (${\color{red}~Take ~precaution}$)__: [When you ˹O Prophet˺ are ˹campaigning˺ with them and you lead them in prayer, let one group of them pray with you—while armed. When they prostrate themselves, let the other group stand guard behind them. Then the group that has not yet prayed will then join you in prayer—and let them be vigilant and armed. The disbelievers would wish to see you neglect your weapons-and-belongings, so they could launch a sweeping assault on you. But there is no blame if you lay aside your weapons when overcome by heavy rain or illness—but take precaution. Indeed, Allah has prepared a humiliating punishment for the disbelievers.](https://quranwbw.com/4/102)
 
-* __Surah An-Nisa Ayat 4/102__: [When you ˹O Prophet˺ are ˹campaigning˺ with them and you lead them in prayer, let one group of them pray with you—while armed. When they prostrate themselves, let the other group stand guard behind them. Then the group that has not yet prayed will then join you in prayer—and let them be vigilant and armed. The disbelievers would wish to see you neglect your weapons and belongings, so they could launch a sweeping assault on you. But there is no blame if you lay aside your weapons when overcome by heavy rain or illness—but take precaution. Indeed, Allah has prepared a humiliating punishment for the disbelievers.](https://quranwbw.com/4/102)
-  * ${\color{red}~take ~precaution}$
+* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
 
-* __Surah An-Nisa Ayat 4/103__: [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
-  * ${DUTY ~on ~appointed ~times}$
-  * ${Standing, ~sitting ~or ~laying}$
+* __Surah An-Nisa 4/142 ( "قَامُواْ كُسَالَىٰ يُرَآءُونَ ٱلنَّاسَ")__: [Surely the hypocrites seek to deceive Allah, but He outwits them. When they stand up for prayer, they do it half-heartedly only to be seen by people—hardly remembering Allah at all.](https://quranwbw.com/4/142)
 
-* __Surah An-Nisa Ayat 4/142__: [Surely the hypocrites seek to deceive Allah, but He outwits them. When they stand up for prayer, they do it half-heartedly only to be seen by people—hardly remembering Allah at all.](https://quranwbw.com/4/142)
-
-* __Surah An-Nisa Ayat 4/162__: [But those with solid knowledge among them and those with true faith believe in what has been revealed to you ˹O Prophet˺ and what was revealed before you—˹especially˺ those who establish prayer—and those who pay alms-tax and believe in Allah and the Last Day, to these ˹people˺ We will grant a great reward.](https://quranwbw.com/4/162)
+* __Surah An-Nisa 4/162__: [But those with solid knowledge among them and those with true faith believe in what has been revealed to you ˹O Prophet˺ and what was revealed before you—˹especially˺ those who establish prayer—and those who pay alms-tax and believe in Allah and the Last Day, to these ˹people˺ We will grant a great reward.](https://quranwbw.com/4/162)
 
 ***
 

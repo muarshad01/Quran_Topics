@@ -64,7 +64,7 @@
 * __Surah Ar-Rad 13/13 (The Thunder: glorifies His praises)__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
   
 * __Surah As Saffat 37/166 (Angels: Constantly Glorigy Allah SWT)__: [And we are indeed the ones ˹constantly˺ glorifying ˹His praise˺.”](https://quranwbw.com/37#166)
-* Habib Kya Tum nayn nahi dekha...?
-* Nighe-e-Muhammad PBUH has seen the Tasbeeh of every particle of this Universe...
+    * Habib Kya Tum nayn nahi dekha...?
+    * Nighe-e-Muhammad PBUH has seen the Tasbeeh of every particle of this Universe...
 
 ***

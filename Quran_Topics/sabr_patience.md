@@ -95,7 +95,7 @@ And so are Badr and Hunayn in the battle of existence.
 ### Faqaaloo saahirun kazzaab (Liar)
 * __Surah Al-Ghaffir [The Forgiver] 40/23-24__: [(23) Indeed, We sent Moses with Our signs and compelling proof, (24) to Pharaoh, Hamân, and Korah. But they responded: “Magician! Total liar!”](https://quranwbw.com/40/23-24)
 
-### Qaaloo saahirun aw majnoon
+### Qaaloo aahirun wa majnoon
 * __Surah Adh Dhaariyat [The Winnowing Winds] 51/52__: [Similarly, no messenger came to those before them without being told: “A magician or a madman!”](https://quranwbw.com/51/52)
 
 ***

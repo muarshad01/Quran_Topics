@@ -177,7 +177,7 @@
 
 ***
 
-* __Surah Ta-Ha 20/14 (${\color{red}{Rememberance}$)__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
+* __Surah Ta-Ha 20/14 (${\color{red}Rememberance}$)__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
 
 * __Surah Ta-Ha 20/132 (${\color{red}Order/Enjoin/Urge ~your ~Family ~to ~Pray}$)__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quranwbw.com/20/132)
 

@@ -346,12 +346,11 @@
 
 ***
 
-* __Surah Al-Ma’un 107/4__: [So woe to those ˹hypocrites˺ who pray](https://quran.com/107/4)
-* __Surah Al-Ma’un 107/5__: [yet are UNMINDFUL of their prayers;](https://quran.com/107/5)
-  * ${\color{red}UNMINDFUL}$
+* __Surah Al-Maun [Almsgiving] 107/4__: [So woe to those ˹hypocrites˺ who pray](https://quranwbw.com/107/4)
+* __Surah Al-Maun [Almsgiving] 107/5 (${\color{red}UNMINDFUL of Prayers}$)__: [yet are unmindful of their prayers;](https://quranwbw.com/107/5)
   
 ***
 
-* __Surah Al-Kawthar 108/2__: [So pray and sacrifice to your Lord ˹alone˺.](https://quran.com/108/2)
+* __Surah Al-Kawthar [Abundance] 108/2 (Pray and Sacrifice)__: [So pray and sacrifice to your Lord ˹alone˺.](https://quranwbw.com/108/2)
 
 ***

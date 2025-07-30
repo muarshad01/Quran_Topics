@@ -7,8 +7,7 @@
 
 #### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)
 * __Surah Al-ANkabut 29/45 (Tanhaa anil fahshaaa'i wal-munkar)__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quranwbw.com/29/45)
-  * Indecency -
-  * Wickedness (Mukarat) - Things having limits set-up by Allah SWT.
+  * Deter from Indecency and Wickedness - Things having limits set-up by Allah SWT.
   * There is some issue with our `Nayat-and-Ikhlas`
   * Self-monitoring (Tazkia) need to be done...
 

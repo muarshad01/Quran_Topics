@@ -83,7 +83,7 @@
 
 * __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; ~Impure; ~Toilet; ~Fatayammamu}$)__: [O believers! Do not approach prayer while intoxicated1 until you are aware of what you say, nor in a state of ˹full˺ impurity2—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands.3 And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
 
-* __Surah An-Nisa Ayat 4/77 (${("فَتِيلًا"; ) ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.
+* __Surah An-Nisa Ayat 4/77 (${(فَتِيلًا") ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.
 ](https://quranwbw.com/4/77)
 
 * __Surah An-Nisa Ayat 4/101 (${\color{red}Travel, ~- ~Shorten ~your ~Prayer}$)__: [When you travel through the land, it is permissible for you to shorten the prayer1—˹especially˺ if you fear an attack by the disbelievers. Indeed, the disbelievers are your sworn enemies.](https://quranwbw.com/4/101)
@@ -98,28 +98,24 @@
 
 ***
 
-### Surah Al-Ma’idah (5)
+* __Surah Al-Maidah 5/6 (${\color{red}Wudu}$)__: [O believers! When you rise up for prayer, wash your faces and your hands up to the elbows, wipe your heads, and wash your feet to the ankles. And if you are in a state of ˹full˺ impurity,1 then take a full bath. But if you are ill, on a journey, or have relieved yourselves, or have been intimate with your wives and cannot find water, then purify yourselves with clean earth by wiping your faces and hands.2 It is not Allah’s Will to burden you, but to purify you and complete His favour upon you, so perhaps you will be grateful.](https://quranwbw.com/5/6)
 
-* __Surah Al-Ma’idah Ayat 5/6__: [O believers! When you rise up for prayer, wash your faces and your hands up to the elbows, wipe your heads, and wash your feet to the ankles. And if you are in a state of ˹full˺ impurity, then take a full bath. But if you are ill, on a journey, or have relieved yourselves, or have been intimate with your wives and cannot find water, then purify yourselves with clean earth by wiping your faces and hands. It is not Allah’s Will to burden you, but to purify you and complete His favour upon you, so perhaps you will be grateful.](https://quran.com/5/6)
-  * ${\color{red}WUDU}$
+* __Surah Al-Maidah 5/55__: [Your only guardians are Allah, His Messenger, and fellow believers—who establish prayer and pay alms-tax with humility.
+](https://quranwbw.com/5/55)
 
-* __Surah Al-Ma’idah Ayat 5/55__: [Your only guardians are Allah, His Messenger, and fellow believers—who establish prayer and pay alms-tax with humility.](https://quran.com/5/55)
+* __Surah Al-Maidah 5/58__: [When you call to prayer, they mock it in amusement. This is because they are a people without understanding.](https://quranwbw.com/5/58)
 
-* __Surah Al-Ma’idah Ayat 5/58__: [When you call to prayer, they mock it in amusement. This is because they are a people without understanding.](https://quran.com/5/58)
+* __Surah Al-Maidah 5/91 (${\color{red}Intoxicants; ~Gambling}$)__: [Satan’s plan is to stir up hostility and hatred between you with intoxicants and gambling and to prevent you from remembering Allah and praying. Will you not then abstain?](https://quranwbw.com/5/91)
 
-* __Surah Al-Ma’idah Ayat 5/91__: [Satan’s plan is to stir up hostility-and-hatred between you with intoxicants-and-gambling and to prevent you from remembering Allah and praying. Will you not then abstain?](https://quran.com/5/91)
-
-* __Surah Al-Ma’idah Ayat 5/106__: [O believers! When death approaches any of you, call upon two just Muslim men to witness as you make a bequest; otherwise, two non-Muslims if you are afflicted with death while on a journey. If you doubt ˹their testimony˺, keep them after prayer and let them testify under oath ˹saying˺, “By Allah! We would never sell our testimony for any price, even in favour of a close relative, nor withhold the testimony of Allah. Otherwise, we would surely be sinful.”](https://quran.com/5/106)
+* __Surah Al-Maidah 5/106__: [O believers! When death approaches any of you, call upon two just Muslim men to witness as you make a bequest; otherwise, two non-Muslims if you are afflicted with death while on a journey.1 If you doubt ˹their testimony˺, keep them after prayer and let them testify under oath ˹saying˺, “By Allah! We would never sell our testimony for any price, even in favour of a close relative, nor withhold the testimony of Allah. Otherwise, we would surely be sinful.”](https://quranwbw.com/5/106)
 
 ***
 
-### Surah Al-Anam (6)
+* __Surah Al-Anam 6/72__: [establish prayer, and be mindful of Him. To Him you will all be gathered together.](https://quranwbw.com/6/72)
 
-* __Surah Al-Anam Ayat 6/72__: [establish prayer, and be mindful of Him. To Him you will all be gathered together.](https://quran.com/6/72)
+* __Surah Al-Anam 6/92 (${Guard ~prayers}$)__: [This is a blessed Book which We have revealed—confirming what came before it—so you may warn the Mother-of-Cities and everyone around it. Those who believe in the Hereafter ˹truly˺ believe in it and guard their prayers.](https://quranwbw.com/6/92)
 
-* __Surah Al-Anam Ayat 6/92__: [This is a blessed Book which We have revealed—confirming what came before it—so you may warn the Mother-of-Cities and everyone around it. Those who believe in the Hereafter ˹truly˺ believe in it and guard their prayers.](https://quran.com/6/92)
-
-* __Surah Al-Anam Ayat 6/162__: [Say, “Surely my prayer, my sacrifice, my life, and my death are all for Allah—Lord of all worlds.](https://quran.com/6/162)
+* __Surah Al-Anam 6/162__: [Say, “Surely my prayer, my sacrifice, my life, and my death are all for Allah—Lord of all worlds.](https://quranwbw.com/6/162)
 
 ***
 

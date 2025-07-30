@@ -212,8 +212,6 @@
 
 ***
 
-### Surah Ta-Ha (20)
-
 * __Surah Ta-Ha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quran.com/20/14)
   * ${REMEMBERANCE}$
 
@@ -221,26 +219,24 @@
 
 ***
 
-* __Surah Al-Anbiya Ayat 73__: [We ˹also˺ made them leaders, guiding by Our command, and inspired them to do good deeds, establish prayer, and pay alms-tax. And they were devoted to Our worship.](https://quran.com/21/73)
+* __Surah Al-Anbiya Ayat 21/73 (${\color{red}We mad them Leaders}$)__: [We ˹also˺ made them leaders, guiding by Our command, and inspired them to do good deeds, establish prayer, and pay alms-tax. And they were devoted to Our worship.](https://quranwbw.com/21/73)
 
 ***
 
-### Surah Al-Hajj (22)
+* __Surah Al-Hajj 22/25__: [Indeed, those who persist in disbelief and hinder ˹others˺ from the Way of Allah and from the Sacred Mosque1—which We have appointed for all people, residents and visitors alike—along with whoever intends to deviate by doing wrong in it,2 We will cause them to taste a painful punishment.](https://quranwbw.com/22/25)
 
-* __Surah Al-Hajj 22/25__: [Indeed, those who persist in disbelief and hinder ˹others˺ from the Way of Allah and from the Sacred Mosque—which We have appointed for all people, residents and visitors alike—along with whoever intends to deviate by doing wrong in it, We will cause them to taste a painful punishment.](https://quran.com/22/25)
+* __Surah Al-Hajj 22/35 (${\color{red}Heats ~tremble ~at ~the~remembarancde ~of ~Allah}$)__: [those whose hearts tremble at the remembrance of Allah, who patiently endure whatever may befall them, and who establish prayer and donate from what We have provided for them.](https://quranwbw.com/22/35)
 
-* __Surah Al-Hajj 22/35__: [those whose hearts tremble at the remembrance of Allah, who patiently endure whatever may befall them, and who establish prayer and donate from what We have provided for them.](https://quran.com/22/35)
-* ${\color{red}DONATE}$
+* __Surah Al-Hajj 22/40 (${monasteries, ~churches, ~synagogues, ~and ~mosques}$)__: [˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.](https://quranwbw.com/22/40)
+* Monasteries, ~churches, ~synagogues, ~and ~mosques (صَوَٰمِعُ وَبِيَعٞ وَصَلَوَٰتٞ وَمَسَٰجِدُ)
+* Monasteries - a building or buildings occupied by a community of monks living under religious vows.
+* Churches - a Christian place of worship.
+* Synagogues - a Jewish place of worship
+* Mosques - a Muslim place of worship.
 
-* __Surah Al-Hajj 22/40__: [˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.](https://quran.com/22/40)
-* ${monasteries, ~churches, ~synagogues, ~and ~mosques}$
+* __Surah Al-Hajj 22/41__: [˹They are˺ those who, if established in the land by Us, would perform prayer, pay alms-tax, encourage what is good, and forbid what is evil. And with Allah rests the outcome of all affairs.](https://quranwbw.com/22/41)
 
-* __Surah Al-Hajj 22/41__: [˹They are˺ those who, if established in the land by Us, would perform prayer, pay alms-tax, encourage what is good, and forbid what is evil. And with Allah rests the outcome of all affairs.](https://quran.com/22/41)
-  * ${outcome ~of ~all ~affairs}$
-
-* __Surah Al-Hajj 22/78__: [Strive for ˹the cause of˺ Allah in the way He deserves, for ˹it is˺ He ˹Who˺ has chosen you, and laid upon you no hardship in the religion—the way of your forefather Abraham. ˹It is Allah˺ Who named you ‘the ones who submit’ ˹in the˺ earlier ˹Scriptures˺ and in this ˹Quran˺, so that the Messenger may be a witness over you, and that you may be witnesses over humanity. So establish prayer, pay alms-tax, and hold fast to Allah. He ˹alone˺ is your GUARDIAN. What an excellent Guardian, and what an excellent Helper!](https://quran.com/22/78)
-  * ${\color{red}GUARDIAN}$
-  * ${\color{red}EXCELLEND ~GUARDIAN ~and ~EXCELLENT ~HELPER}$
+* __Surah Al-Hajj 22/78 (${\color{red}EXCELLEND ~Guardian~and ~EXCELLENT ~Helper}$)__: [Strive for ˹the cause of˺ Allah in the way He deserves, for ˹it is˺ He ˹Who˺ has chosen you, and laid upon you no hardship in the religion—the way of your forefather Abraham. ˹It is Allah˺ Who named you ‘the ones who submit’1 ˹in the˺ earlier ˹Scriptures˺ and in this ˹Quran˺, so that the Messenger may be a witness over you, and that you may be witnesses over humanity. So establish prayer, pay alms-tax, and hold fast to Allah. He ˹alone˺ is your Guardian. What an excellent Guardian, and what an excellent Helper!](https://quranwbw.com/22/78)
 
 ***
 

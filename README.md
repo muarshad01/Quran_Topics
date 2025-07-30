@@ -1,6 +1,6 @@
 |   | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
 |---|---|---|--- | ---| ---| ---|--|
-|1. | Introduction | July 2025 | :heavy_check_mark: |
+|1. | Introduction | July 2025 |  |
 
 #### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
 * __Surah An-Nahl [The Bee] 16/98 (${\color{red}Tauz: ~When ~you ~Recite ~Quran!}$)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
@@ -99,10 +99,11 @@
 
 ***
 
-|   | Topic                      | Last Updated               |
-|---|---|---|
-|0. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 2025|
-|1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 2025|
+|   | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
+|---|---|---|--- | ---| ---| ---|--|
+|1. | Introduction | July 2025 |  |
+|0. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 30, 2025|
+|1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
 |2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 |
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|

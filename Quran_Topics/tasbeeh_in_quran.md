@@ -1,8 +1,8 @@
 #### [Tasbeeh-e-Ism aur Tasbeeh-e-Zaat | Hamd, Tasbeeh aur Astaghfar | Allama Talib Jauhari](https://www.youtube.com/watch?v=K-VKDmgpgwo)
 * __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
-* __Surah Furqan 25/1__: https://quran.com/25/1
-* __Surah Al-Muminun 23/14__: https://quranwbw.com/23/14
-* __Surah Ar-Rehman 55/78__: https://quranwbw.com/55/78
+* __Surah Furqan 25/1__: [Tabaarakal lazee nazzalal Furqaana 'alaa abdihee li-yakoona lil'aalameena nazeera](https://quran.com/25/1)
+* __Surah Al-Muminun 23/14__: [fatabaarakal laahu ahsanul khaaliqeen](https://quranwbw.com/23/14)
+* __Surah Ar-Rehman 55/78__: [Tabaarak asmu Rabbika Zil Jalaali wal-ikraam](https://quranwbw.com/55/78)
 * Tasbeeh & Hamd
 * __Surah An Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110/3)
 * First Hamd, then Istighfar

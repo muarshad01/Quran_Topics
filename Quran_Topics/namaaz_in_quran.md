@@ -219,7 +219,7 @@
 
 ***
 
-* __Surah Al-Anbiya Ayat 21/73 (${\color{red}We mad them Leaders}$)__: [We ˹also˺ made them leaders, guiding by Our command, and inspired them to do good deeds, establish prayer, and pay alms-tax. And they were devoted to Our worship.](https://quranwbw.com/21/73)
+* __Surah Al-Anbiya Ayat 21/73 (${\color{red}We ~made ~them ~Leaders}$)__: [We ˹also˺ made them leaders, guiding by Our command, and inspired them to do good deeds, establish prayer, and pay alms-tax. And they were devoted to Our worship.](https://quranwbw.com/21/73)
 
 ***
 

@@ -83,7 +83,7 @@
 |1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md)| July 2025|
 |2. | [Tazkia (Purification)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
 |4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
-|5. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/amr_of_allah.md)| July 2025 |
+|5. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/amr_of_allah.md)| July 30, 2025 |
 |6. | [Sajdah (Act of prostration)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sajdah.md) | July 2025 
 
 ***

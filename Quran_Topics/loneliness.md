@@ -32,4 +32,8 @@
 
 ***
 
-[IF ALLAH WAKES YOU UP 3AM to 5AM DO THESE That Will Transform your Life!](https://www.youtube.com/watch?v=xHwgM7WQrNg)
+### [IF ALLAH WAKES YOU UP 3AM to 5AM DO THESE That Will Transform your Life!](https://www.youtube.com/watch?v=xHwgM7WQrNg)
+
+### [Why the FAQEER Tested?](https://www.youtube.com/shorts/AOZQugSF9xw)
+
+***

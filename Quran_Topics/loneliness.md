@@ -1,3 +1,13 @@
+## Hazrat Bakhtiyar Kaki
+* Faqeer par lazim hai, woh `khalq-e-khuda` say door rahey aur `kam-say-kam` loogaon say mail-jool rakhay
+
+*** 
+
+## FOCUS on `Ghor-o-Fikr`
+* Think in solitude
+
+***
+
 ## Hazrat Usman Ghani
 * Jisay `Rabb-say-pyaar` hota hai, usay `tanhai-say-unas` ho jaata hai
 

@@ -132,7 +132,7 @@
 
 * __Surah At-Taubah 9/11__: [But if they repent, perform prayer, and pay alms-tax, then they are your brothers in faith. This is how We make the revelations clear for people of knowledge.](https://quranwbw.com/9/11)
 
-* __Surah At-Taubah 9/18 (${\color{red}Truly Guided}$)__: [The mosques of Allah should only be maintained by those who believe in Allah and the Last Day, establish prayer, pay alms-tax, and fear none but Allah. It is right to hope that they will be among the ˹truly˺ guided.](https://quranwbw.com/9/18)
+* __Surah At-Taubah 9/18 (${\color{red}Truly ~Guided}$)__: [The mosques of Allah should only be maintained by those who believe in Allah and the Last Day, establish prayer, pay alms-tax, and fear none but Allah. It is right to hope that they will be among the ˹truly˺ guided.](https://quranwbw.com/9/18)
 
 * __Surah At-Taubah 9/54__: [And what prevented their donations from being accepted is that they have lost faith in Allah and His Messenger, they never come to prayer except half-heartedly, and they never donate except resentfully.](https://quranwbw.com/9/54)
 
@@ -144,13 +144,13 @@
 
 ***
 
-* __Surah Hud 11/87 (${\color{red}Shuabi AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quranwbw.com/11/87)
+* __Surah Hud 11/87 (${\color{red}Shuabi ~AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quranwbw.com/11/87)
 
 * __Surah Hud 11/114 (${\color{red}Good ~deeds ~wipe ~out ~evil ~deeds}$)__: [Establish prayer ˹O Prophet˺ at both ends of the day and in the early part of the night. Surely good deeds wipe out evil deeds. That is a reminder for the mindful.](https://quranwbw.com/11/114)
 
 ***
 
-* __Surah Ar-Rad [Thunder] 13/22 (${\color{red} Respond to Evil with Good}$)__: [And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure,1 establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:](https://quranwbw.com/13/22)
+* __Surah Ar-Rad [Thunder] 13/22 (${\color{red} Respond ~to ~Evil ~with ~Good}$)__: [And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure,1 establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:](https://quranwbw.com/13/22)
 
 ***
 

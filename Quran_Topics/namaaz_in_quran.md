@@ -27,13 +27,12 @@
 * Night 2am, Very Cold, Rain-and-Hail Storm, Snow...
 * [Sajda Ishq Hoo too..](https://www.instagram.com/kalam_e_iqbal/reel/C0lTuFet_jI/)
 
-#### [Qur’an verses about prayer](https://myislam.org/quran-verses/prayer/)
+***
 
-* Miraj, Namaz, 11th year after Nawabat (`570 + 40 + 11 = 621 AD`)
+#### Namaz was given in 621 AD
+* 11th year after Nawabat (Miraj): `570 + 40 + 11 = 621 AD`
 * Namaz-e-Khauf
-* Dajjal first day is 1-year.
-  * We need to offer prayers then 365 x 5 and not just 5 prayers.   
-
+ 
 ***
 
 ## Hadith

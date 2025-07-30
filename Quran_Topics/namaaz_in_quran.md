@@ -189,9 +189,9 @@
 
 * __Surah Al-Hajj 22/25__: [Indeed, those who persist in disbelief and hinder ˹others˺ from the Way of Allah and from the Sacred Mosque1—which We have appointed for all people, residents and visitors alike—along with whoever intends to deviate by doing wrong in it,2 We will cause them to taste a painful punishment.](https://quranwbw.com/22/25)
 
-* __Surah Al-Hajj 22/35 (${\color{red}Heats ~tremble ~at ~the~remembarancde ~of ~Allah}$)__: [those whose hearts tremble at the remembrance of Allah, who patiently endure whatever may befall them, and who establish prayer and donate from what We have provided for them.](https://quranwbw.com/22/35)
+* __Surah Al-Hajj 22/35 (${\color{red}Heats ~tremble ~at ~the ~remembarancde ~of ~Allah}$)__: [those whose hearts tremble at the remembrance of Allah, who patiently endure whatever may befall them, and who establish prayer and donate from what We have provided for them.](https://quranwbw.com/22/35)
 
-* __Surah Al-Hajj 22/40 (${monasteries, ~churches, ~synagogues, ~and ~mosques}$)__: [˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.](https://quranwbw.com/22/40)
+* __Surah Al-Hajj 22/40 (${\color{red}monasteries, ~churches, ~synagogues, ~and ~mosques}$)__: [˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.](https://quranwbw.com/22/40)
 * Monasteries, ~churches, ~synagogues, ~and ~mosques (صَوَٰمِعُ وَبِيَعٞ وَصَلَوَٰتٞ وَمَسَٰجِدُ)
   * Monasteries - a building or buildings occupied by a community of monks living under religious vows.
   * Churches - a Christian place of worship.
@@ -216,7 +216,7 @@
 
 * __Surah An-Nur 24/56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quranwbw.com/24/56)
 
-* __Surah An-Nur 24/58 ($\color{red}THREE Times of Permission/Privacy$)__: [O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at THREE TIMES: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise.](https://quranwbw.com/24/58)
+* __Surah An-Nur 24/58 ($\color{red}THREE ~Times ~of ~Permission/Privacy$)__: [O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at THREE TIMES: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise.](https://quranwbw.com/24/58)
 
 ***
 
@@ -242,7 +242,7 @@
 
 ***
 
-* __Surah Fatir [The Originator] 35/18 (${\color{red}Bear the Burden}$)__: [No soul burdened with sin will bear the burden of another. And if a sin-burdened soul cries for help with its burden, none of it will be carried—even by a close relative. You ˹O Prophet˺ can only warn those who stand in awe of their Lord without seeing Him and establish prayer. Whoever purifies themselves, they only do so for their own good. And to Allah is the final return.](https://quranwbw.com/35/18)
+* __Surah Fatir [The Originator] 35/18 (${\color{red}Bear ~the ~Burden}$)__: [No soul burdened with sin will bear the burden of another. And if a sin-burdened soul cries for help with its burden, none of it will be carried—even by a close relative. You ˹O Prophet˺ can only warn those who stand in awe of their Lord without seeing Him and establish prayer. Whoever purifies themselves, they only do so for their own good. And to Allah is the final return.](https://quranwbw.com/35/18)
 
 * __Surah Fatir [The Originator] 35/29__: [Surely those who recite the Book of Allah, establish prayer, and donate from what We have provided for them—secretly and openly—˹can˺ hope for an exchange that will never fail,](https://quranwbw.com/35/29)
 
@@ -260,7 +260,7 @@
 
 ***
 
-* __Surah Al-Jumuah 62/10 (${\color{red}Remeber ~Allah ~--> ~successful}$)__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
+* __Surah Al-Jumuah 62/10 (${\color{red}Remeber ~Allah ~-> ~successful}$)__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
 
 ***
 

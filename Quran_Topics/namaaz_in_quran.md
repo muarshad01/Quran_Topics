@@ -11,7 +11,6 @@
 * __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House1 a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham2 as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
 * Sit respectfully in a grouping...
 
-***
 
 ## Ishq Ki Namaaz
 * Night 2 am, Very Cold, Rain-and-Hail Storm, Snow...
@@ -210,7 +209,7 @@
 
 * __Surah Ta-Ha 20/14 (${Rememberance}$)__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
 
-* __Surah Ta-Ha 20/132 ($Order/Enjoin/Urge your Family to Pray}$)__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quranwbw.com/20/132)
+* __Surah Ta-Ha 20/132 (${\color{red}Order/Enjoin/Urge ~your ~Family ~to Pray}$)__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quranwbw.com/20/132)
 
 ***
 

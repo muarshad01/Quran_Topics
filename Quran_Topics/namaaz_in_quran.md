@@ -311,9 +311,9 @@
 
 ***
 
-* __Surah Al-Ma’arij 70/22 [The ascending stairways]__: [except those who pray,](https://quranwbw.com/70/22)
-* __Surah Al-Ma’arij 70/23 (${\color{red}CONSISTENT}$)__: [consistently performing their prayers;](https://quranwbw.com/70/23)
-* __Surah Al-Ma’arij 70/34(${\color{red}Observant/Protectors}$)__: [and who are ˹properly˺ observant of their prayers.](https://quranwbw.com/70/34)
+* __Surah Al-Ma’arij [The ascending stairways] 70/22 __: [except those who pray,](https://quranwbw.com/70/22)
+* __Surah Al-Ma’arij [The ascending stairways] 70/23 (${\color{red}CONSISTENT}$)__: [consistently performing their prayers;](https://quranwbw.com/70/23)
+* __Surah Al-Ma’arij [The ascending stairways] 70/34(${\color{red}Observant/Protectors}$)__: [and who are ˹properly˺ observant of their prayers.](https://quranwbw.com/70/34)
 
 ***
 

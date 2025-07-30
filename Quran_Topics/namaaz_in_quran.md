@@ -341,13 +341,12 @@
 
 ***
 
-* __Surah Al-Bayyina 98/5__: [Even though they were only commanded to worship Allah ˹alone˺ with sincere devotion to Him in all uprightness, establish prayer, and pay alms-tax. That is the upright Way.](https://quran.com/98/5)
-  ${\color{red}sincere devotion}$
+* __Surah Al-Bayyina [The Evidance] 98/5 (${\color{red}Sincere ~devotion}$)__: [even though they were only commanded to worship Allah ˹alone˺ with sincere devotion to Him in all uprightness, establish prayer, and pay alms-tax. That is the upright Way.](https://quranwbw.com/98/5)
 
 ***
 
-* __Surah Al-Maun [Almsgiving] 107/4__: [So woe to those ˹hypocrites˺ who pray](https://quranwbw.com/107/4)
-* __Surah Al-Maun [Almsgiving] 107/5 (${\color{red}Unmindful ~of ~Prayers}$)__: [yet are unmindful of their prayers;](https://quranwbw.com/107/5)
+* __Surah Al-Maun [Almsgiving -  Small Kindnesses] 107/4__: [So woe to those ˹hypocrites˺ who pray](https://quranwbw.com/107/4)
+* __Surah Al-Maun [Almsgiving - Small Kindnesses] 107/5 (${\color{red}Unmindful ~of ~Prayers}$)__: [yet are unmindful of their prayers;](https://quranwbw.com/107/5)
   
 ***
 

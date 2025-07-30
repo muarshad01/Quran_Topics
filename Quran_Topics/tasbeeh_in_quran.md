@@ -37,9 +37,9 @@
 | Sabbih (سَبِّحْ)     ||
 | Sabbaha (سَبَّحَ)    ||
 | Fasabbih (فَسَبِّحْ)  ||
-| Yusabbihu (يُسَبِّحُ) ||
+| Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
 | Subhana (سُبْحَانَ)  ||
-| Tusabbihu (تُسَبِّحُ) ||
+| Tusabbihu (تُسَبِّحُ) | Past Tense|
 
 ***
 

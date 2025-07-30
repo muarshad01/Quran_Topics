@@ -3,6 +3,10 @@
 * __Surah Furqan 25/1__: https://quran.com/25/1
 * __Surah Al-Muminun 23/14__: https://quranwbw.com/23/14
 * __Surah Ar-Rehman 55/78__: https://quranwbw.com/55/78
+* Tasbeeh & Hamd
+* __Surah An Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110/3)
+* First Hamd, then Istighfar
+* __Surah As Saffat 37/166 (Angels: Constantly Glorigy Allah SWT)__: [And we are indeed the ones ˹constantly˺ glorifying ˹His praise˺.”](https://quranwbw.com/37#166)
 
 ***
 

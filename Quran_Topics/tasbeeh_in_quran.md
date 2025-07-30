@@ -17,11 +17,12 @@
 
 | Word | Meaning| 
 |---|---|
-| Sabbih (سَبِّحْ) | Praise |
-| Sabbaha (سَبَّحَ) | Purity has been proclaimed |
-| Fasabbih (فَسَبِّحْ) ||
-| Yusabbihu (يُسَبِّحُ) | Purity is proclaimed |
-| Subhana (سُبْحَانَ)||
+| Sabbih (سَبِّحْ)     ||
+| Sabbaha (سَبَّحَ)    ||
+| Fasabbih (فَسَبِّحْ)  ||
+| Yusabbihu (يُسَبِّحُ) ||
+| Subhana (سُبْحَانَ)  ||
+| Tusabbihu (تُسَبِّحُ) ||
 
 ***
 
@@ -40,11 +41,9 @@
 
 ***
 
-* __Surah Ale-i-Imran 3/113 (Throughout the night)__:[Yet they are not all alike: there are some among the People of the Book who are upright, who recite Allah’s revelations throughout the night, prostrating ˹in prayer˺.](https://quranwbw.com/3#113)
-
 * __Surah Ar-Rad 13/13 (The Thunder: glorifies His praises)__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
 
-* __Surah Al-Isra 17/44__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
+* __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
   
 * __Surah As Saffat 37/166 (Angels: Constantly Glorigy Allah SWT)__: [And we are indeed the ones ˹constantly˺ glorifying ˹His praise˺.”](https://quranwbw.com/37#166)
 

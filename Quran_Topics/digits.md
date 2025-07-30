@@ -216,13 +216,19 @@
 * Nubawat 40th year of life
 * __Surah Baqarah 2/51 (40 Nights)__: [And ˹remember˺ when We appointed forty nights for Moses, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/51)
 * __Surah Al-Maida 5/26 (40 Years)__: [Allah replied, “Then this land is forbidden to them for forty years, during which they will wander through the land. So do not grieve for the rebellious people.”](https://quran.com/5/26)
-* __Surah Al-Araf 7/142 (40 Nights)__:[We appointed for Moses thirty nights then added another ten—completing his Lord’s term of forty nights. Moses commanded his brother Aaron, “Take my place among my people, do what is right, and do not follow the way of the corruptors.”](https://quranwbw.com/7/142)](https://quranwbw.com/7/142)
+* __Surah Al-Araf 7/142 (40 Nights)__:[We appointed for Moses thirty nights then added another ten—completing his Lord’s term of forty nights. Moses commanded his brother Aaron, “Take my place among my people, do what is right, and do not follow the way of the corruptors.”](https://quranwbw.com/7/142)](https://quranwbw.com/7/142) 
 
 ### Hazrat Musa AS - (30 + 10 = 40) nights on Koh-e-Toor
 * [We appointed for Moses thirty nights then added another ten—completing his Lord’s term of forty nights. Moses commanded his brother Aaron, “Take my place among my people, do what is right, and do not follow the way of the corruptors.”](https://quran.com/7/142)
 
 #### Bani Israel - Wander for 40 years in Sena Desert
 * [Allah replied, “Then this land is forbidden to them for 40 years, during which they will wander through the land. So do not grieve for the rebellious people.”](https://quran.com/5/26)
+
+***
+
+## Digit 41
+
+* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ knows their manner of prayer and glorification.; Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
 
 ***
 

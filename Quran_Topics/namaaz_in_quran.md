@@ -1,8 +1,8 @@
 #### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
 * Discipline (Timing, Commitment, ...)
 * Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
-* Good Chararacter
 * Sit respectfully in a grouping...
+* Good Chararacter
 * __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
 
 #### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)

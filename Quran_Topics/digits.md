@@ -132,6 +132,7 @@
    * 13x (land, memtioned in Quran) + 32x (water mentioned in Quran) = 45
    * (13/45) = 29%
    * (32/45) = 71%
+* __Surad Ar-Raad__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
 * __Surah Al-Isra (Nano Chip) 17/13__: [We have bound every human’s destiny to their neck. And on the Day of Judgment We will bring forth to each ˹person˺ a record which they will find laid open.](https://quran.com/17/13)
 * __Surah An-Nisa 4/157__: [...neither killed nor crucified him...](https://quran.com/4/157)
 

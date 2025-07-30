@@ -71,7 +71,7 @@
 
 * __Surah Al-Baqarah 2/177 (${\color{red}Righteousness}$)__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
 
-* __Surah Al-Baqarah 2/238 (${\color{red}Guard Strictly on Prayers - especially, ASR}$)__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quranwbw.com/2/238)
+* __Surah Al-Baqarah 2/238 (${\color{red}Guard ~Strictly ~on ~Prayers ~- ~especially, ~ASR}$)__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quranwbw.com/2/238)
 
 * __Surah Al-Baqarah 2/277__: [Indeed, those who believe, do good, establish prayer, and pay alms-tax will receive their reward from their Lord, and there will be no fear for them, nor will they grieve.](https://quranwbw.com/2/277)
 
@@ -81,7 +81,7 @@
 
 ***
 
-* __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; Impure; Toilet; Fatayammamu}$)__: [O believers! Do not approach prayer while intoxicated1 until you are aware of what you say, nor in a state of ˹full˺ impurity2—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands.3 And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
+* __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; ~Impure; ~Toilet; ~Fatayammamu}$)__: [O believers! Do not approach prayer while intoxicated1 until you are aware of what you say, nor in a state of ˹full˺ impurity2—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands.3 And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
 
 * __Surah An-Nisa Ayat 4/77 (${("فَتِيلًا"; ) ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.
 ](https://quranwbw.com/4/77)

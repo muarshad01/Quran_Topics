@@ -252,7 +252,7 @@
 
 * __Surah An-Nur 24/37__: [by men who are not distracted—either by buying or selling—from Allah’s remembrance, or performing prayer, or paying alms-tax. They fear a Day when hearts and eyes will tremble,](https://quranwbw.com/24/37)
 
-* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ knows their manner of prayer and glorification.; Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
+* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ ~knows ~their ~manner ~of ~prayer ~and ~glorification.; ~Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
 
 * __Surah An-Nur 24/56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quranwbw.com/24/56)
 

@@ -2,6 +2,7 @@
 * __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
 *
 
+***
 
 #### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
 * __Surah Fath 48/9 (Honour and Respect)__: [so that you ˹believers˺ may have faith in Allah-and-His-Messenger, support and honour him, and glorify Allah morning and evening.](https://quranwbw.com/48/9)

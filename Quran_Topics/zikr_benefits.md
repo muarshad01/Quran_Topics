@@ -64,6 +64,10 @@
 
 * __Surah Taha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
 
+* __Surah Taha 20/42 (Never falter in Remembering me)__: [Go forth, you and your brother, with My signs and never falter in remembering Me.](https://quranwbw.com/20#42)
+
+* __Surah Taha 20/124 (Who turns away from my reminder...)__: [But whoever turns away from My Reminder will certainly have a miserable life,1 then We will raise them up blind on the Day of Judgment.”](https://quranwbw.com/20#124)
+
 ***
 
 * __Surah Al-Anbya 21/10__: We have surely revealed to you a Book, in which there is glory for you. Will you not then understand?https://quranwbw.com/21/10)

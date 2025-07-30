@@ -347,7 +347,7 @@
 ***
 
 * __Surah Al-Maun [Almsgiving] 107/4__: [So woe to those ˹hypocrites˺ who pray](https://quranwbw.com/107/4)
-* __Surah Al-Maun [Almsgiving] 107/5 (${\color{red}Unmindful~of~Prayers}$)__: [yet are unmindful of their prayers;](https://quranwbw.com/107/5)
+* __Surah Al-Maun [Almsgiving] 107/5 (${\color{red}Unmindful ~of ~Prayers}$)__: [yet are unmindful of their prayers;](https://quranwbw.com/107/5)
   
 ***
 

@@ -1,31 +1,28 @@
+#### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
+* Discipline (Timing, Commitment, ...)
+* Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
+* Good Chararacter
+* Sit respectfully in a grouping...
+* __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
+
+#### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)
+* __Surah Al-ANkabut 29/45 (Tanhaa anil fahshaaa'i wal-munkar)__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quranwbw.com/29/45)
+  * Indecency -
+  * Wickedness (Mukarat) - Things having limits set-up by Allah SWT.
+  * There is some issue with our `Nayat-and-Ikhlas`
+  * Self-monitoring (Tazkia) need to be done...
+
+***
 
 #### [4-Rakat after Maghrib Nawafil | SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
 
+#### [Friday & Sunday Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+
 #### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
 
-#### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
-* Discipline (Timing, Commitment)
-* Good Chararacter
-* Pak-aur-Saff Rakhna, maintain yourself
-* Cleanliness: Keep that place clean: Cleanliness
-* __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House1 a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham2 as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
-* Sit respectfully in a grouping...
-
-
-#### Ishq Ki Namaaz
-* Night 2 am, Very Cold, Rain-and-Hail Storm, Snow...
+#### Ishq-Ki-Namaaz
+* Night 2am, Very Cold, Rain-and-Hail Storm, Snow...
 * [Sajda Ishq Hoo too..](https://www.instagram.com/kalam_e_iqbal/reel/C0lTuFet_jI/)
-
-***
-
-#### [Hamari Nimazein Qabool Hone KI Nishaniyan](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)
-* __Surah Al-ANkabut 29/45 (tanhaa anil fahshaaa'i wal-munkar)__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quran.com/29/45)
-  * Indecency -
-  * Wickedness (Mukarat) - Things having limits set-up by Allah SWT.
-  * There is some issue with our `Nayat and Ikhlas`
-  * Self-monitoring need to be done...
-
-***
 
 #### [Qur’an verses about prayer](https://myislam.org/quran-verses/prayer/)
 

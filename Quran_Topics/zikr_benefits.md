@@ -5,7 +5,7 @@
 ***
 
 #### [Importance of Zikr | Baba Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
-* __Surah Yunus 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
+* __Surah Yunus 37/143-144 (Nooh AS: Importance of Zikr)__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
 * __Surah Al-Isra [The night journey] 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
 
 #### [Zikar Ky Zindgi Pr Asaraat | Baba Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  

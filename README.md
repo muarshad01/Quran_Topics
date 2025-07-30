@@ -3,10 +3,10 @@
 |1. | Introduction | July 2025 | :heavy_check_mark: |
 
 #### Tauz (أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
-* __Surah An-Nahl [The Bee] 16/98 (When you Recite Quran!)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+* __Surah An-Nahl [The Bee] 16/98 (${\color{red}When ~you ~Recite ~Quran!}$)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
   
 #### Shikwa of Allah SWT - Qadar (Respect) of Allah SWT
-* __Surah Al-Hajj 22/74__: [They have not shown Allah the reverence He deserves. Surely Allah is All-Powerful, Almighty.](https://quranwbw.com/22#74)
+* __Surah Al-Hajj 22/74 (${Shikwa ~of ~Allah ~SWT ~-  Qadar(Respect) ~of ~Allah ~SWT}$)__: [They have not shown Allah the reverence He deserves. Surely Allah is All-Powerful, Almighty.](https://quranwbw.com/22#74)
 * __Surah Noah 71/13__: [What is the matter with you that you are not in awe of the Majesty of Allah,](https://quranwbw.com/71/13)
   
 #### Shikwa of Prophet Muhammad PBUH - with Allah about his Ummah

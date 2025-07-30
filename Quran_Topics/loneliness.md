@@ -1,3 +1,8 @@
+## Hazrat Usman Ghani
+* Jisay `Rabb-say-pyaar` hota hai, usay `tanhai-say-unas` ho jaata hai
+
+***
+
 ### [This Is Why Allah's Chosen Ones Are Alone – A Hidden Truth from the Quran](https://www.youtube.com/watch?v=0dDFM77e0e4)
 ### [5 Powerful Signs That You Are Truly Special to Allah 💖 | Must Watch!](https://www.youtube.com/watch?v=dnvJpVFJiCI)
 ### https://www.youtube.com/shorts/TmxuienV7p0

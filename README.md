@@ -101,7 +101,6 @@
 
 |   | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
 |---|---|---|--- | ---| ---| ---|--|
-|1. | Introduction | July 2025 |  |
 |0. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 30, 2025|
 |1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|

@@ -1,4 +1,4 @@
-### [Amar Allah Se Kya Muraad Hai? Kya Insan Allah Ki Marzi Se Gunnah Karta Hai?](https://www.youtube.com/watch?v=x_hr8kXnO5A)
+### [Amar Allah Se Kya Muraad Hai? Kya Insan Allah Ki Marzi Se Gunnah Karta Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=x_hr8kXnO5A)
 * Thw word (`kun`)
 * Amr (أمر): The command of Allah SWT
 * Amr Allah" (أمر الله)

@@ -1,4 +1,8 @@
-#### [Allah aur Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
+#### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
+* __Surah Fath 48/9 (Honour and Respect)__: [so that you ˹believers˺ may have faith in Allah-and-His-Messenger, support and honour him, and glorify Allah morning and evening.](https://quranwbw.com/48/9)
+* __Surah Al-Ahzaab 33/56__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
+* "Allahumma" (اللهم)
+* __Surah At-Taubah 9/59 (Radu)__: [If only they had been content with what Allah-and-His-Messenger had given them and said, “Allah is sufficient for us! Allah will grant us out of His bounty, and so will His Messenger. To Allah ˹alone˺ we turn with hope.”](https://quranwbw.com/9/59)
 
 #### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Concentration Span Increases

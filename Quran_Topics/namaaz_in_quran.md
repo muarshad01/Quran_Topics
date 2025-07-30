@@ -119,31 +119,26 @@
 
 ***
 
-### Surah Al-A’raf (7)
-
-* __Surah Al-A’raf Ayat 170__: [As for those who firmly abide by the Scripture and establish prayer—surely We never discount the reward of those acting righteously.](https://quran.com/7/170)
+* __Surah Al-A’raf 170__: [As for those who firmly abide by the Scripture and establish prayer—surely We never discount the reward of those acting righteously.](https://quranwbw.com/7/170)
 
 ***
 
-### Surah Al-Anfal (8)
-
-* __Surah Al-Anfal Ayat 8/3__: [˹They are˺ those who establish prayer and donate from what We have provided for them.](https://quran.com/8/3)
+* __Surah Al-Anfal 8/3__: [˹They are˺ those who establish prayer and donate from what We have provided for them.](https://quranwbw.com/8/3)
   * ${\color{red}DONATE}$
 
-* __Surah Al-Anfal Ayat 8/35__: [Their prayer at the Sacred House was nothing but whistling and clapping. So taste the punishment for your disbelief.](https://quran.com/8/35)
+* __Surah Al-Anfal 8/35__: [Their prayer at the Sacred House was nothing but whistling and clapping. So taste the punishment for your disbelief.](https://quranwbw.com/8/35)
 
 ***
 
-* __Surah At-Taubah Ayat 9/5__: [But once the Sacred Months have passed, kill the polytheists ˹who violated their treaties˺ wherever you find them, capture them, besiege them, and lie in wait for them on every way. But if they repent, perform prayers, and pay alms-tax, then set them free. Indeed, Allah is All-Forgiving, Most Merciful.](https://quran.com/9/5)
+* __Surah At-Taubah 9/5 (${\color{red}وَجَدتُّمُوهُمۡ وَخُذُوهُمۡ وَٱحۡصُرُوهُمۡ وَٱقۡعُدُواْ لَهُمۡ كُلَّ مَرۡصَدٖۚ}$)__: [But once the Sacred Months have passed, kill the polytheists ˹who violated their treaties˺ wherever you find them, capture them, besiege them, and lie in wait for them on every way. But if they repent, perform prayers, and pay alms-tax, then set them free. Indeed, Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/5)
 
-* __Surah At-Taubah Ayat 9/11__: [But if they repent, perform prayer, and pay alms-tax, then they are your brothers in faith. This is how We make the revelations clear for people of knowledge.](https://quran.com/9/11)
+* __Surah At-Taubah 9/11__: [But if they repent, perform prayer, and pay alms-tax, then they are your brothers in faith. This is how We make the revelations clear for people of knowledge.](https://quranwbw.com/9/11)
 
-* __Surah At-Taubah Ayat 9/18__: [The mosques of Allah should only be maintained by those who believe in Allah and the Last Day, establish prayer, pay alms-tax, and fear none but Allah. It is right to hope that they will be among the ˹truly˺ guided.](https://quran.com/9/18)
-  * ${\color{red}TRULY GUIDED}$ 
+* __Surah At-Taubah 9/18 (${\color{red}Truly Guided}$)__: [The mosques of Allah should only be maintained by those who believe in Allah and the Last Day, establish prayer, pay alms-tax, and fear none but Allah. It is right to hope that they will be among the ˹truly˺ guided.](https://quranwbw.com/9/18)
 
-* __Surah At-Taubah Ayat 9/54__: [And what prevented their donations from being accepted is that they have lost faith in Allah and His Messenger, they never come to prayer except half-heartedly, and they never donate except resentfully.](https://quran.com/9/54)
+* __Surah At-Taubah 9/54__: [And what prevented their donations from being accepted is that they have lost faith in Allah and His Messenger, they never come to prayer except half-heartedly, and they never donate except resentfully.](https://quranwbw.com/9/54)
 
-* __Surah At-Taubah 9/71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quran.com/9/71)
+* __Surah At-Taubah 9/71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/9/71)
 
 ***
 

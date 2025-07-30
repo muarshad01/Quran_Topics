@@ -193,8 +193,6 @@
 
 ***
 
-### Surah Al-Isra (17)
-
 * __Surah Al-Isra Ayat 17/78__: [Observe the prayer from the decline of the sun until the darkness of the night and the dawn prayer, for certainly the dawn prayer is witnessed ˹by angels˺.1](https://quran.com/17/78)
   * ${ANGELS ~are ~WITNESS ~at ~FAJR ~Ibadah}$
 
@@ -202,20 +200,17 @@
 
 ***
 
-### Surah Maryam (19)
+* __Surah Maryam 19/31__: [He has made me a blessing wherever I go, and bid me to establish prayer and give alms-tax as long as I live,](https://quranwbw.com/19/31)
 
-* __Surah Maryam 19/31__: [He has made me a blessing wherever I go, and bid me to establish prayer and give alms-tax as long as I live,](https://quran.com/19/31)
+* __Surah Maryam 19/55 (($Order/Enjoin/Urge your Family to Pray}$))__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quranwbw.com/19/55)
 
-* __Surah Maryam 19/55__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quran.com/19/55)
-
-* __Surah Maryam 19/59__: [But they were succeeded by generations who neglected prayer and followed their lusts and so will soon face the evil consequences.](https://quran.com/19/59)
+* __Surah Maryam 19/59__: [But they were succeeded by generations who neglected prayer and followed their lusts and so will soon face the evil consequences.1](https://quranwbw.com/19/59)
 
 ***
 
-* __Surah Ta-Ha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quran.com/20/14)
-  * ${REMEMBERANCE}$
+* __Surah Ta-Ha 20/14 (${Rememberance}$)__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
 
-* __Surah Ta-Ha 20/132__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quran.com/20/132)
+* __Surah Ta-Ha 20/132 ($Order/Enjoin/Urge your Family to Pray}$)__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quranwbw.com/20/132)
 
 ***
 
@@ -229,10 +224,10 @@
 
 * __Surah Al-Hajj 22/40 (${monasteries, ~churches, ~synagogues, ~and ~mosques}$)__: [˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.](https://quranwbw.com/22/40)
 * Monasteries, ~churches, ~synagogues, ~and ~mosques (صَوَٰمِعُ وَبِيَعٞ وَصَلَوَٰتٞ وَمَسَٰجِدُ)
-* Monasteries - a building or buildings occupied by a community of monks living under religious vows.
-* Churches - a Christian place of worship.
-* Synagogues - a Jewish place of worship
-* Mosques - a Muslim place of worship.
+  * Monasteries - a building or buildings occupied by a community of monks living under religious vows.
+  * Churches - a Christian place of worship.
+  * Synagogues - a Jewish place of worship
+  * Mosques - a Muslim place of worship.
 
 * __Surah Al-Hajj 22/41__: [˹They are˺ those who, if established in the land by Us, would perform prayer, pay alms-tax, encourage what is good, and forbid what is evil. And with Allah rests the outcome of all affairs.](https://quranwbw.com/22/41)
 

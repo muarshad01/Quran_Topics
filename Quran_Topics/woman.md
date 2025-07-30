@@ -1,7 +1,7 @@
 * __Surah An Noor 24/58 (Aurat: Woman)__: [awratin](https://quranwbw.com/24/58)
 
 
-* __Surah Maryam 19/55 (($Order/Enjoin/Urge your Family to Pray}$))__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quranwbw.com/19/55)
+* __Surah Maryam 19/55 (${\color{red}Order/Enjoin/Urge your Family to Pray}$)__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quranwbw.com/19/55)
 
 * __Surah Ta-Ha 20/132 (${\color{red}Order, Enjoin, Urge ~your ~family ~to ~Pray}$)__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quranwbw.com/20/132)
 

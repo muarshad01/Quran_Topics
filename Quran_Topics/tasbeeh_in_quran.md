@@ -6,8 +6,8 @@
 
 #### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Concentration Span Increases
-* We learn to dive into ghoor-o-fiqr
-* We learn to solve nuqta hai-e-raaz
+* We learn to dive into __ghor-o-fiqr__
+* We learn to solve __nuqta-hai-e-raaz__
 
 #### If Trees are PENS and Ocens from SEVEN Heavens becom INK
 * __Surah Kahf 18/109__: [Say, ˹O Prophet,˺ “If the ocean were ink for ˹writing˺ the Words of my Lord, it would certainly run out before the Words of my Lord were finished, even if We refilled it with its equal.”](https://quran.com/18/109)
@@ -50,10 +50,6 @@
 
 * __Surah Al-Isra 17/44__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/41-50)
   
-* __Surah Taha 20/14__: [Perform As-Salat for My Remembrance](https://quranwbw.com/20#14)
-* __Surah Taha 20/42__: [Don't slacken and become weak in My Remembrance](https://quranwbw.com/20#42)
-* __Surah Taha 20/124__: [But whosoever turns away from My Reminder (i.e. neither believes in this Quran nor acts on its orders, etc.) verily, for him is a life of hardship, and We shall raise him up blind on the Day of Resurrection](https://quranwbw.com/20#124)
-
 * __Surah As Saaffaat 37/143 (Importance of Zikr)__: [Had he not been of them who glorify Allah. He would have indeed remained inside its belly (the fish) till the Day of Resurrection](https://quranwbw.com/37#143-144)
 
 * __Surah As Saffat 37/166 (Angels)__: [Verily, we (angels), we are they who glorify (Allah's Praises i.e. perform prayers)](https://quranwbw.com/37#166)

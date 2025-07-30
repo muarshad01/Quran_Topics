@@ -8,11 +8,6 @@ The truthfulness of Abraham is but a form of Love, and so is the patience of Hus
 And so are Badr and Hunayn in the battle of existence.
 ```
 
-#### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
-* Listen first 15 mins...
-* The top-most thing is Sabr (إِنَّ اللَّهَ مَعَ الصَّابِرِينَ)
-* Apnay app ko thamna, rokna, bardashat karna, tahamual karna
-
 #### [Ibadat, Ikhlaaq aur Hikmato Mein Sab Se Afzal Kya Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=CUH5yaawgLc)
 * Zikr, Shukkar, Sabr
 * Sabr say Allah milta hai. إِنَّ اللَّهَ مَعَ الصَّابِرِينَ. It is the the best thing.
@@ -21,6 +16,11 @@ And so are Badr and Hunayn in the battle of existence.
 * Fasting (Sabr): The Prophet Muhammad ﷺ said, "Allah says: 'Fasting is for Me and I shall reward for it'"
 * Hanuman Temple: People go to ask for son... (They lost their Imann due to being Impatient!!!) 
 * __Surah 42/49-50__: [(49) To Allah ˹alone˺ belongs the kingdom of the heavens and the earth. He creates whatever He wills. He blesses whoever He wills with daughters, and blesses whoever He wills with sons, (50) or grants both, sons and daughters, ˹to whoever He wills˺, and leaves whoever He wills infertile. He is indeed All-Knowing, Most Capable.](https://quran.com/42/49-50)
+
+#### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
+* Listen first 15 mins...
+* The top-most thing is Sabr (إِنَّ اللَّهَ مَعَ الصَّابِرِينَ)
+* Apnay app ko thamna, rokna, bardashat karna, tahamual karna
 
 ***
 

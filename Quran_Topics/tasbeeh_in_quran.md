@@ -4,11 +4,15 @@
 * "Allahumma" (اللهم)
 * __Surah At-Taubah 9/59 (Radu)__: [If only they had been content with what Allah-and-His-Messenger had given them and said, “Allah is sufficient for us! Allah will grant us out of His bounty, and so will His Messenger. To Allah ˹alone˺ we turn with hope.”](https://quranwbw.com/9/59)
 
+***
+
 #### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Quran apnay ahkamat kay zariey, hamary dil ko moernah chachata hay, Akharat aur Rabb ki Taraf
 * We learn to concentract our thoughs: Concentration Span broadens
 * We learn to dive into __Ghor-o-Fiqr__
 * We learn to solve __Nuqta-hai-e-Raaz__
+
+***
 
 #### If Trees are PENS and Ocens from SEVEN Heavens becom INK
 * __Surah Kahf 18/109__: [Say, ˹O Prophet,˺ “If the ocean were ink for ˹writing˺ the Words of my Lord, it would certainly run out before the Words of my Lord were finished, even if We refilled it with its equal.”](https://quran.com/18/109)

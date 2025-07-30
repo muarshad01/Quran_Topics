@@ -152,8 +152,6 @@
 
 ***
 
-### Surah At-Taubah (9)
-
 * __Surah At-Taubah Ayat 9/5__: [But once the Sacred Months have passed, kill the polytheists ˹who violated their treaties˺ wherever you find them, capture them, besiege them, and lie in wait for them on every way. But if they repent, perform prayers, and pay alms-tax, then set them free. Indeed, Allah is All-Forgiving, Most Merciful.](https://quran.com/9/5)
 
 * __Surah At-Taubah Ayat 9/11__: [But if they repent, perform prayer, and pay alms-tax, then they are your brothers in faith. This is how We make the revelations clear for people of knowledge.](https://quran.com/9/11)
@@ -163,32 +161,29 @@
 
 * __Surah At-Taubah Ayat 9/54__: [And what prevented their donations from being accepted is that they have lost faith in Allah and His Messenger, they never come to prayer except half-heartedly, and they never donate except resentfully.](https://quran.com/9/54)
 
-* __Surah At-Taubah Ayat 9/71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quran.com/9/71)
+* __Surah At-Taubah 9/71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quran.com/9/71)
 
 ***
 
-* __Surah Yunus Ayat 10/87__: [We revealed to Moses and his brother, “Appoint houses for your people in Egypt. Turn these houses into places of worship, establish prayer, and give good news to the believers!”](https://quran.com/10/87)
+* __Surah Yunus 10/87__: [We revealed to Moses and his brother, “Appoint houses for your people in Egypt. Turn these houses into places of worship, establish prayer, and give good news to the believers!”](https://quranwbw.com/10/87)
 
 ***
 
-* __Surah Hud Ayat 11/87__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quran.com/11/87)
-  * ${\color{red}SHUAIB AS}$
+* __Surah Hud 11/87 (${\color{red}Shuabi AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quranwbw.com/11/87)
 
-* __Surah Hud Ayat 11/114__: [Establish prayer ˹O Prophet˺ at both ends of the day and in the early part of the night. Surely good deeds wipe out evil deeds. That is a reminder for the mindful.](https://quran.com/11/114)
-
-***
-
-* __Surah Ar-Ra’d Ayat 22__: [And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure, establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:](https://quran.com/13/22)
+* __Surah Hud 11/114 (${\color{red}Good ~deeds ~wipe ~out ~evil ~deeds}$)__: [Establish prayer ˹O Prophet˺ at both ends of the day and in the early part of the night. Surely good deeds wipe out evil deeds. That is a reminder for the mindful.](https://quranwbw.com/11/114)
 
 ***
 
-### Surah Ibrahim (14)
+* __Surah Ar-Rad [Thunder] 13/22 (${\color{red} Respond to Evil with Good}$)__: [And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure,1 establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:](https://quranwbw.com/13/22)
 
-* __Surah Ibrahim Ayat 14/31__: [Tell My believing servants to establish prayer and donate from what We have provided for them—openly and secretly—before the arrival of a Day in which there will be no ransom or friendly connections.](https://quran.com/14/31)
+***
 
-* __Surah Ibrahim Ayat 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quran.com/14/37)
+* __Surah Ibrahim 14/31__: [Tell My believing servants to establish prayer and donate from what We have provided for them—openly and secretly—before the arrival of a Day in which there will be no ransom or friendly connections.](https://quranwbw.com/14/31)
 
-* __Surah Ibrahim Ayat 14/40__: [My Lord! Make me and those ˹believers˺ of my descendants keep up prayer. Our Lord! Accept my prayers.](https://quran.com/14/40)
+* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quranwbw.com/14/37)
+
+* __Surah Ibrahim 14/40__: [My Lord! Make me and those ˹believers˺ of my descendants keep up prayer. Our Lord! Accept my prayers.](https://quranwbw.com/14/40)
 
 ***
 

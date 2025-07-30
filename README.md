@@ -5,11 +5,11 @@
 #### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
 * __Surah An-Nahl [The Bee] 16/98 (${\color{red}Tauz: ~When ~you ~Recite ~Quran!}$)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
 
-#### ${\color{red}Shikwa ~of ~Allah ~SWT ~-  ~Respect ~of ~Allah ~SWT}$
+#### ${\color{red}Disappointment ~of ~Allah ~SWT: ~-  ~Respect ~of ~Allah ~SWT}$
 * __Surah Al-Hajj 22/74__: [They have not shown Allah the reverence He deserves. Surely Allah is All-Powerful, Almighty.](https://quranwbw.com/22#74)
 * __Surah Noah 71/13__: [What is the matter with you that you are not in awe of the Majesty of Allah,](https://quranwbw.com/71/13)
   
-#### ${\color{red}Shikwa ~of ~Prophet ~Muhammad ~PBUH ~with ~Allah ~about ~his ~Ummah}$
+#### ${\color{red}Disappointment ~of ~Prophet ~Muhammad ~PBUH ~with ~Allah ~about ~his ~Ummah}$
 * __Surah Al-Furqan [The Criterion] 25/30__: [The Messenger has cried, “O my Lord! My people have indeed received this Quran with neglect.”](https://quranwbw.com/25/30)
 
 #### ${\color{red}Wisdom ~(A ~great ~Privilege)}$

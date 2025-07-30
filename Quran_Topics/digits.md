@@ -223,6 +223,11 @@
 
 ***
 
+## Digit 44
+* https://quranwbw.com/17/44
+
+***
+
 ## Digit 53
 https://quran.com/39/53
 

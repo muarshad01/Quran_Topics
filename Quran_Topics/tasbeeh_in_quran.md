@@ -50,8 +50,6 @@
 
 * __Surah Al-Isra 17/44__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/41-50)
   
-* __Surah As Saaffaat 37/143 (Importance of Zikr)__: [Had he not been of them who glorify Allah. He would have indeed remained inside its belly (the fish) till the Day of Resurrection](https://quranwbw.com/37#143-144)
-
 * __Surah As Saffat 37/166 (Angels)__: [Verily, we (angels), we are they who glorify (Allah's Praises i.e. perform prayers)](https://quranwbw.com/37#166)
 
 

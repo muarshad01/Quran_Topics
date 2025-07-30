@@ -113,7 +113,7 @@
 
 * __Surah Al-Anam 6/72__: [establish prayer, and be mindful of Him. To Him you will all be gathered together.](https://quranwbw.com/6/72)
 
-* __Surah Al-Anam 6/92 (${Guard ~prayers}$)__: [This is a blessed Book which We have revealed—confirming what came before it—so you may warn the Mother-of-Cities and everyone around it. Those who believe in the Hereafter ˹truly˺ believe in it and guard their prayers.](https://quranwbw.com/6/92)
+* __Surah Al-Anam 6/92 (${\color{red}Guard ~prayers}$)__: [This is a blessed Book which We have revealed—confirming what came before it—so you may warn the Mother-of-Cities and everyone around it. Those who believe in the Hereafter ˹truly˺ believe in it and guard their prayers.](https://quranwbw.com/6/92)
 
 * __Surah Al-Anam 6/162__: [Say, “Surely my prayer, my sacrifice, my life, and my death are all for Allah—Lord of all worlds.](https://quranwbw.com/6/162)
 

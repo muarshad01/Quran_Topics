@@ -311,33 +311,29 @@
 
 ***
 
-* __Surah Al-Ma’arij 70/22__: [except those who pray,](https://quran.com/70/22)
-
-* __Surah Al-Ma’arij 70/23__: [CONSISTENTLY performing their prayers](https://quran.com/70/23)
-  * ${\color{red}CONSISTENTLY}$
-
-* __Surah Al-Ma’arij 70/34__: [and who are ˹properly˺ observant of their prayers.](https://quran.com/70/34)
+* __Surah Al-Ma’arij 70/22 [The ascending stairways]__: [except those who pray,](https://quranwbw.com/70/22)
+* __Surah Al-Ma’arij 70/23 (${\color{red}CONSISTENT}$)__: [consistently performing their prayers;](https://quranwbw.com/70/23)
+* __Surah Al-Ma’arij 70/34(${\color{red}Observant/Protectors}$)__: [and who are ˹properly˺ observant of their prayers.](https://quranwbw.com/70/34)
 
 ***
 
-* __Surah Al-Muzzammil 73/20__: [Surely your Lord knows that you ˹O Prophet˺ stand ˹in prayer˺ for nearly two-thirds of the night, or ˹sometimes˺ half of it, or a third, as do some of those with you. Allah ˹alone˺ keeps a ˹precise˺ measure of the day and night. He knows that you ˹believers˺ are unable to endure this, and has turned to you in mercy.1 So recite ˹in prayer˺ whatever you can from the Quran. He knows that some of you will be sick, some will be travelling throughout the land seeking Allah’s bounty, and some fighting in the cause of Allah. So recite whatever you can from it. And ˹continue to˺ perform ˹regular˺ prayers, pay alms-tax, and lend to Allah a good loan. Whatever good you send forth for yourselves, you will find it with Allah far better and more rewarding.3 And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.](https://quran.com/73/20)
+* __Surah Al-Muzzammil [The enshrouded one] 73/20__: [Surely your Lord knows that you ˹O Prophet˺ stand ˹in prayer˺ for nearly two-thirds of the night, or ˹sometimes˺ half of it, or a third, as do some of those with you. Allah ˹alone˺ keeps a ˹precise˺ measure of the day and night. He knows that you ˹believers˺ are unable to endure this, and has turned to you in mercy.1 So recite ˹in prayer˺ whatever you can from the Quran. He knows that some of you will be sick, some will be travelling throughout the land seeking Allah’s bounty, and some fighting in the cause of Allah. So recite whatever you can from it. And ˹continue to˺ perform ˹regular˺ prayers, pay alms-tax, and lend to Allah a good loan.2 Whatever good you send forth for yourselves, you will find it with Allah far better and more rewarding.3 And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/73/20)
 
 ***
 
-* __Surah Al-Muddaththir 74/43__: [They will reply, “We were not of those who prayed,(https://quran.com/74/43)
+* __Surah Al-Muddaththir [The Cloaked One] 74/43__: [They will reply, “We were not of those who prayed,](https://quranwbw.com/74/43)
 
 ***
 
-* __Surah Al-Qiyamah 75/31__: [This denier neither believed nor prayed,](https://quran.com/75/31)
-
+* __Surah Al-Qiyamah [The Resurrection] 75/31__: [This denier neither believed nor prayed,](https://quranwbw.com/75/31)
 
 ***
 
-* __Surah Al-Ala 87/15__: [remember the Name of their Lord, and pray.](https://quran.com/87/15)
+* __Surah Al-Alaa [The most high] 87/15__: [remember the Name of their Lord, and pray.](https://quranwbw.com/87/15)
 
 *** 
 
-* __Surah Al-Alaq 96/10__: [a servant ˹of Ours˺ from praying?](https://quran.com/96/10)
+* __Surah Al-Alaq [The Clot] 96/10__: [a servant ˹of Ours˺ from praying?1](https://quranwbw.com/96/10)
 
 ***
 

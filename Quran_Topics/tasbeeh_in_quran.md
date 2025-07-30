@@ -48,13 +48,4 @@
   
 * __Surah As Saffat 37/166 (Angels Constantly Glorigy Allah SWT)__: [And we are indeed the ones ˹constantly˺ glorifying ˹His praise˺.”](https://quranwbw.com/37#166)
 
-
-#### When, What Time?
-* __Surah Ale-i-Imran 3/41 (Morning and Evening)__:[Zachariah said, “My Lord! Grant me a sign.” He said, “Your sign is that you will not ˹be able to˺ speak to people for three days except through gestures. Remember your Lord often and glorify ˹Him˺ morning and evening.”](https://quranwbw.com/3#41)
-
-* __Surah Fatah 48/9 (Morning and Evening)__: [so that you ˹believers˺ may have faith in Allah and His Messenger, support and honour him, and glorify Allah morning and evening.](https://quranwbw.com/48/9)
-
-* __Surah Toor 52/48 (When you rise)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
-
-* __Surah Al-Insan 76/25-25 (Morning, Evening, Night)__: [(25) ˹Always˺ remember the Name of your Lord morning and evening,(26) and prostrate before Him during part of the night, and glorify Him long-at-night.](https://quranwbw.com/76/25-26)
-
+***

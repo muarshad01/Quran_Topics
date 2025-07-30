@@ -52,37 +52,30 @@
 
 ## Surah Al-Baqarah (2)
 
-* __Surah Al-Baqarah 2/3__: [Who believe in the UNSEEN, ESTABLISH prayer, and DONATE from what We have provided for them.](https://quranwbw.com/2/3)
+* __Surah Al-Baqarah 2/3__: [who believe in the unseen,1 establish prayer, and donate from what We have provided for them,](https://quranwbw.com/2/3)
 
-* __Surah Al-Baqarah 2/43__: [Establish prayer, pay alms-tax, and bow-down with those who bow-down.](https://quranwbw.com/2/43)
+* __Surah Al-Baqarah 2/43__: [Establish prayer, pay alms-tax,1 and bow down with those who bow down.](https://quranwbw.com/2/43)
 
-#### Seek HELP; Burden EXCEPT Humble
-* __Surah Al-Baqarah 2/45__: [And seek HELP through patience and prayer. Indeed, it is a burden except for the humble.](https://quranwbw.com/2/45)
+* __Surah Al-Baqarah 2/45 (Burden EXCEPT on Humble)__: [And seek help through patience and prayer. Indeed, it is a burden except for the humble—](https://quranwbw.com/2/45)
 
-#### COVENANT of Bani Israel
-* __Surah Al-Baqarah 2/83__: [And ˹remember˺ when We took a COVENANT from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.](https://quranwbw.com/2/83)
+* __Surah Al-Baqarah 2/83 (Covenant of Bani Israel)__: [And ˹remember˺ when We took a covenant from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.](https://quranwbw.com/2/83)
  
 * __Surah Al-Baqarah 2/110__: [Establish prayer, and pay alms-tax. Whatever good you send forth for yourselves, you will ˹certainly˺ find ˹its reward˺ with Allah. Surely Allah is All-Seeing of what you do.](https://quranwbw.com/2/110)
 
 #### COVENANT of Ibrahim and Ismail AS
-* __Surah Al-Baqarah 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
+* __Surah Al-Baqarah 2/125__: [And ˹remember˺ when We made the Sacred House1 a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham2 as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
 
-#### Seek HELP; Be Patient
-* __Surah Al-Baqarah 2/153__: [O believers! Seek COMFORT in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
+* __Surah Al-Baqarah 2/153 (Allah SWT is with Sabareen)__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
 
 * __Surah Al-Baqarah 2/157__: [They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.](https://quranwbw.com/2/157)
 
-#### Righteousness
-* __Surah Al-Baqarah 2/177__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
+* __Surah Al-Baqarah 2/177 (${\color{red}Righteousness}$)__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
 
-#### Guard Strictly on Prayers
-* __Surah Al-Baqarah 2/238__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quranwbw.com/2/238)
+* __Surah Al-Baqarah 2/238 (${\color{red}Guard Strictly on Prayers - especially, ASR}$)__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quranwbw.com/2/238)
 
-* __Surah Al-Baqarah 2/277__: [Indeed, those who believe, do good, establish prayer, and pay alms-tax will receive their reward from their Lord, and there will be no FEAR for them, nor will they GRIEVE.](https://quranwbw.com/2/277)
+* __Surah Al-Baqarah 2/277__: [Indeed, those who believe, do good, establish prayer, and pay alms-tax will receive their reward from their Lord, and there will be no fear for them, nor will they grieve.](https://quranwbw.com/2/277)
 
 ***
-
-## Surah Al-Imran (3)
 
 #### Yahya AS (John)  
 * __Surah Al-Imran Ayat 3/39__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)

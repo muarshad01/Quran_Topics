@@ -42,7 +42,7 @@
 
 ***
 
-### Chemicals (DOES)
+### Chemicals (DOES) are balanced in our Brain:
 * D: Dopamine 
 * E: Endorphin 
 * O: Oxytocin
@@ -83,8 +83,7 @@
 
 * __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; ~Impure; ~Toilet; ~Fatayammamu}$)__: [O believers! Do not approach prayer while intoxicated1 until you are aware of what you say, nor in a state of ˹full˺ impurity2—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands.3 And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
 
-* __Surah An-Nisa Ayat 4/77 (${(فَتِيلًا") ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.
-](https://quranwbw.com/4/77)
+* __Surah An-Nisa Ayat 4/77 (${(فَتِيلًا") ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/77)
 
 * __Surah An-Nisa Ayat 4/101 (${\color{red}Travel, ~- ~Shorten ~your ~Prayer}$)__: [When you travel through the land, it is permissible for you to shorten the prayer1—˹especially˺ if you fear an attack by the disbelievers. Indeed, the disbelievers are your sworn enemies.](https://quranwbw.com/4/101)
 

@@ -1,3 +1,5 @@
+#### [Tasbeeh-e-Ism aur Tasbeeh-e-Zaat | Hamd, Tasbeeh aur Astaghfar | Allama Talib Jauhari](https://www.youtube.com/watch?v=K-VKDmgpgwo)
+
 #### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
 * __Surah Fath 48/9 (Honour and Respect)__: [so that you ˹believers˺ may have faith in Allah-and-His-Messenger, support and honour him, and glorify Allah morning and evening.](https://quranwbw.com/48/9)
 * __Surah Al-Ahzaab 33/56__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)

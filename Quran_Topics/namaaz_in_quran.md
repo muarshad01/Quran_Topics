@@ -201,7 +201,7 @@
 
 * __Surah Maryam 19/31__: [He has made me a blessing wherever I go, and bid me to establish prayer and give alms-tax as long as I live,](https://quranwbw.com/19/31)
 
-* __Surah Maryam 19/55 (($Order/Enjoin/Urge your Family to Pray}$))__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quranwbw.com/19/55)
+* __Surah Maryam 19/55 (($Order, Enjoin, Urge ~your ~Family ~to ~Pray}$))__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quranwbw.com/19/55)
 
 * __Surah Maryam 19/59__: [But they were succeeded by generations who neglected prayer and followed their lusts and so will soon face the evil consequences.1](https://quranwbw.com/19/59)
 

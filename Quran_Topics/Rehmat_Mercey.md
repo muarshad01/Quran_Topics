@@ -22,17 +22,17 @@
 
 * __Surah Al-Imran 3/8__: [˹They say,˺ “Our Lord! Do not let our hearts deviate after you have guided us. Grant us Your mercy. You are indeed the Giver ˹of all bounties˺.](https://quranwbw.com/3/8)
 * __Surah Al-Imran 3/74__: [He chooses whoever He wills to receive His mercy. And Allah is the Lord of infinite bounty.](https://quranwbw.com/3/74)
-* __Surah Al-Imran 3/107__: [](https://quranwbw.com/3/107)
-* __Surah Al-Imran 3/132__: [](https://quranwbw.com/3/132)
-* __Surah Al-Imran 3/157__: [](https://quranwbw.com/3/157)
-* __Surah Al-Imran 3/159__: [](https://quranwbw.com/3/159)
+* __Surah Al-Imran 3/107__: [As for the bright-faced, they will be in Allah’s mercy, where they will remain forever.](https://quranwbw.com/3/107)
+* __Surah Al-Imran 3/132__: [Obey Allah and the Messenger, so you may be shown mercy.](https://quranwbw.com/3/132)
+* __Surah Al-Imran 3/157__: [Should you be martyred or die in the cause of Allah, then His forgiveness and mercy are far better than whatever ˹wealth˺ those ˹who stay behind˺ accumulate.](https://quranwbw.com/3/157)
+* __Surah Al-Imran 3/159__: [It is out of Allah’s mercy that you ˹O Prophet˺ have been lenient with them. Had you been cruel or hard-hearted, they would have certainly abandoned you. So pardon them, ask Allah’s forgiveness for them, and consult with them in ˹conducting˺ matters. Once you make a decision, put your trust in Allah. Surely Allah loves those who trust in Him.](https://quranwbw.com/3/159)
 
 ***
 
-* __Surah An-Nisa 83__: [](https://quranwbw.com/4/83)
-* __Surah An-Nisa 96__: [](https://quranwbw.com/4/96)
-* __Surah An-Nisa 113__: [](https://quranwbw.com/4/113)
-* __Surah An-Nisa 175__: [](https://quranwbw.com/4/175)
+* __Surah An-Nisa 83__: [And when they hear news of security or fear,1 they publicize it. Had they referred it to the Messenger or their authorities, those with sound judgment among them would have validated it. Had it not been for Allah’s grace and mercy, you would have followed Satan—except for a few.](https://quranwbw.com/4/83)
+* __Surah An-Nisa 96__: [far superior ranks, forgiveness, and mercy from Him. And Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/4/96)
+* __Surah An-Nisa 113__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
+* __Surah An-Nisa 175__: [There is no good in most of their secret talks—except those encouraging charity, kindness, or reconciliation between people. And whoever does this seeking Allah’s pleasure, We will grant them a great reward.](https://quranwbw.com/4/175)
 
 ***
 

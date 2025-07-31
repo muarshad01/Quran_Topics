@@ -36,14 +36,14 @@
 
 ***
 
-* __Surah Al-Anam 12__: [](https://quranwbw.com/6/12)
-* __Surah Al-Anam 16__: [](https://quranwbw.com/6/16)
-* __Surah Al-Anam 6/54__: [](https://quranwbw.com/6/54)
-* __Surah Al-Anam 133__: [](https://quranwbw.com/6/133)
-* __Surah Al-Anam 147__: [](https://quranwbw.com/6/147)
-* __Surah Al-Anam 154__: [](https://quranwbw.com/6/154)
-* __Surah Al-Anam 155__: [](https://quranwbw.com/6/155)
-* __Surah Al-Anam 157__: [](https://quranwbw.com/6/157)
+* __Surah Al-Anam 12__: [Ask ˹them, O  Prophet˺, “To whom belongs everything in the heavens and the earth?” Say, “To Allah!” He has taken upon Himself to be Merciful. He will certainly gather ˹all of˺ you together for the Day of Judgment—about which there is no doubt. But those who have ruined themselves will never believe.](https://quranwbw.com/6/12)
+* __Surah Al-Anam 16__: [Whoever is spared the torment of that Day will have certainly been shown Allah’s mercy. And that is the absolute triumph.](https://quranwbw.com/6/16)
+* __Surah Al-Anam 6/54__: [When the believers in Our revelations come to you, say, “Peace be upon you! Your Lord has taken upon Himself to be Merciful. Whoever among you commits evil ignorantly ˹or recklessly˺ then repents afterwards and mends their ways, then Allah is truly All-Forgiving, Most Merciful.”](https://quranwbw.com/6/54)
+* __Surah Al-Anam 133__: [Your Lord is the Self-Sufficient, Full of Mercy. If He wills, He can do away with you and replace you with whoever He wills, just as He produced you from the offspring of other people.](https://quranwbw.com/6/133)
+* __Surah Al-Anam 147__: [But if they deny you ˹O Prophet˺, say, “Your Lord is infinite in mercy, yet His punishment will not be averted from the wicked people.”](https://quranwbw.com/6/147)
+* __Surah Al-Anam 154__: [Additionally, We gave Moses the Scripture, completing the favour upon those who do good, detailing everything, and as a guide and a mercy, so perhaps they would be certain of the meeting with their Lord.](https://quranwbw.com/6/154)
+* __Surah Al-Anam 155__: [This is a blessed Book We have revealed. So follow it and be mindful ˹of Allah˺, so you may be shown mercy.](https://quranwbw.com/6/155)
+* __Surah Al-Anam 157__: [Say, “I truly fear—if I were to disobey my Lord—the torment of a tremendous Day.”](https://quranwbw.com/6/157)
 
 ***
 

@@ -14,13 +14,34 @@
 * __Surah Nahl 16/80-83__: [(80) And Allah has made your homes a place to rest, and has given you tents from the hide of animals, light to handle when you travel and when you camp. And out of their wool, fur, and hair He has given you furnishings and goods for a while. (81) And Allah has provided you shade out of what He created, and has given you shelter in the mountains. He has also provided you with clothes protecting you from the heat ˹and cold˺, and armour shielding you in battle. This is how He perfects His favour upon you, so perhaps you will ˹fully˺ submit ˹to Him˺. (82) But if they turn away, then your duty ˹O Prophet˺ is only to deliver ˹the message˺ clearly. (83) They are aware of Allah’s favours, but still deny them. And most of them are ˹truly˺ ungrateful.](https://quran.com/16/80-83)
 * __Surah An-Nisaa 4/69 ()__: [And whoever obeys Allah and the Messenger will be in the company of those blessed by Allah: the prophets, the people of truth, the martyrs, and the righteous—what honourable company!](https://quranwbw.com/4/69)
 
-#### Mankind (linnaasi):
+##### Mankind (linnaasi):
 * __Surah 114 (Allah)__: [Rabb, Malk, Ihah](https://quranwbw.com/114)
 * __Surah 2/185 (Quran)__: [unzila feehil Qur'aanu hudal linnaasi](https://quranwbw.com/2/185)
 * __Surah 34/28 (Muhammad PBUH)__: [Wa-maaa arsalnaaka illaa kaaffatal linnaasi ](https://quranwbw.com/34/28)
 
 ***
-#### [Shukr ka mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
+
+#### [Shukr ka Mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
+* __Surah Al-Maaida (Anbia: Issa & Maryma AS (They both ate food))__: [kaanaa yaa-kulaanit ta'aam ](https://quranwbw.com/5/75)
+* __Surah Ibrahim 14/34__: [Indeed humankind is truly unfair, ˹totally˺ ungrateful.](https://quranwbw.com/14/34)
+* __Surah An-Nahl 16/78__: [And Allah brought you out of the wombs of your mothers while you knew nothing, and gave you hearing, sight, and intellect so perhaps you would be thankful.](https://quran.com/16/78)
+* Your purpose of creation is: Offer Shukria
+* __Surah An-Nahl 16/120-121__: [(120) Indeed, Abraham was a model of excellence: devoted to Allah, ˹perfectly˺ upright—not a polytheist— (121) ˹utterly˺ grateful for Allah’s favours. ˹So˺ He chose him and guided him to the Straight Path.](https://quran.com/16/120-121)
+* __Surah Al-Isra 17/3 (Noah)__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3)
+* __Surah Saba 34/13__: [Only˺ a few of My servants are ˹truly˺ grateful.](https://quranwbw.com/34/13)
+* `Tumhara-aur-Allah(SWT) Ka Rishta Faqat Shukar-Ka-Rishta Hai`
+* __Surah Al-Waqiah 56/68__: [(68) Have you considered the water you drink? (69) Is it you who bring it down from the clouds, or is it We Who do so? (70) If We willed, We could make it salty. Will you not then give thanks?](https://quran.com/56/68)
+* __Surah Al-Insaan 76/12__: [and reward them for their perseverance with a Garden ˹in Paradise˺ and ˹garments of˺ silk.](https://quranwbw.com/76/12)
+* __Surah Al-Insaan 76/22__: [Your striving has been appreciated.”](https://quranwbw.com/76/22)
+* __Surah Al-Insaan 76/7-9__: [(7)(8)(9)](https://quranwbw.com/76/7-9)
+
+##### "Najzi" (نَجْزِي)
+* __Surah As-Saaffaat 37__: [Noh](https://quranwbw.com/37/79-81)
+* __Surah As-Saaffaat 37__: [Ibrahim](https://quranwbw.com/37/109-111)
+* __Surah As-Saaffaat 37__: [Musa & Haroon](https://quranwbw.com/37/120)
+
+***
+
 
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)
 #### [Har Waqt Allah Ka Shukar Karo | Dr. Israr Ahmed](https://www.youtube.com/watch?v=kcdzaICAscA)

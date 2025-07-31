@@ -1,5 +1,7 @@
 ### A'oodhu billahi min ash-shaytaan-ir-rajeem ( أعوذُ بِٱللَّهِ مِنَ ٱلشَّيۡطَٰنِ ٱلرَّجِيمِ)
 ### [The laughter of devil and the answer of ALLAH | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
+### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
+
 ***
 
 #### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)

@@ -46,6 +46,8 @@
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)
 #### [Har Waqt Allah Ka Shukar Karo | Dr. Israr Ahmed](https://www.youtube.com/watch?v=kcdzaICAscA)
 
+***
+
 #### [Prophet Daud (David) AS, Thankfulness | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=njOVrXuYMXY)
 * `Ijz, Inkisari, aur Zauf ka iqrar`
 

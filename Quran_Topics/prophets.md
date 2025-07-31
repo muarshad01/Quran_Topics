@@ -38,3 +38,10 @@
     * [Shan-e-Risalat | Allama Talib Johri](https://www.youtube.com/watch?v=JGeKW928Lyg)
     * [Waqya e Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 ***
+
+## Hazrat Ali AS
+* [ALI (A S) ka Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
+* [4 imam aur 12 imam mein fark | Allama Talib Johri](https://www.youtube.com/watch?v=PJluYdeRJY8)
+
+
+***

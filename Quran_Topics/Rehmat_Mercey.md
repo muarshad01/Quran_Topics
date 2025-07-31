@@ -1,12 +1,13 @@
 #### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
 #### [How we know about Allah SWT Rehmat | SSA Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
 #### [Allah's Mercy in Quran](https://myislam.org/quran-verses/allahs-mercy/)
-#### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Muhammad ﷺ | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY)
+#### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY)
+### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
 
 ***
 
 ## Rehmat
-* __Surah Al-Anam 6/54__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
+* __Surah Al-Anam 6/54 (${\color{red}(كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ الرَّحْمَةَ)}$)__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
 
 ***
 

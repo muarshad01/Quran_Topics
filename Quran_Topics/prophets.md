@@ -4,6 +4,7 @@
 ***
 
 *  1 - Adam
+    *  [Hazrat Adam | Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
 *  2 - Idris (Enoch): https://quranwbw.com/21/85
 *  3 - [__Nuh (Noah)__](https://quranwbw.com/21/76): Surah 71; 17/3 (abdan shakooraa); 
 *  4 -  Hud (Heber)
@@ -31,5 +32,5 @@
 * * __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
 * 25 -  __Isa (Jesus)__: 
 * 26 -  __Muhammad PBUH__: Surah 47
-
+    * [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
 ***

@@ -38,7 +38,7 @@
 
 ***
 
-* __Surah Ale-i-Imran 3/17 (Forgiveness before dawn)__: [˹It is they˺ who are patient, sincere, obedient, and charitable, and who pray for forgiveness before dawn.](https://quranwbw.com/3#17)
+* __Surah Ale-i-Imran 3/17 (${\color{red}Forgiveness ~before ~Dawn}$)__: [˹It is they˺ who are patient, sincere, obedient, and charitable, and who pray for forgiveness before dawn.](https://quranwbw.com/3#17)
 
 ***
 
@@ -62,10 +62,10 @@
 
 ***
 
-* __Surah Hud 11/03 (Prosperous Life Will Be Granted)__: [And seek your Lord’s forgiveness and turn to Him in repentance. He will grant you a good provision for an appointed term and graciously reward the doers of good. But if you turn away, then I truly fear for you the torment of a formidable Day.](https://quranwbw.com/11#3)
+* __Surah Hud 11/03 (${\color{red}Prosperous ~Life ~will ~be ~Granted}$)__: [And seek your Lord’s forgiveness and turn to Him in repentance. He will grant you a good provision for an appointed term and graciously reward the doers of good. But if you turn away, then I truly fear for you the torment of a formidable Day.](https://quranwbw.com/11#3)
 
 
-* __Surah Hud 11/52 (Strength and Power Will Increase)__: [And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”](https://quranwbw.com/11#52)
+* __Surah Hud 11/52 (${\color{red}{Strength and Power Will Increase}$)__: [And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”](https://quranwbw.com/11#52)
 
 ***
 
@@ -73,21 +73,20 @@
 
 ***
 
-* __Surah Al-Anbya 21/87 (Laaa ilaaha illaaa Anta Subhaanaka innee kuntu minaz zaalimeen)__: [And ˹remember˺ when the Man of the Whale stormed off ˹from his city˺ in a rage, thinking We would not restrain him.1 Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87)
+* __Surah Al-Anbya 21/87 (Laaa ilaaha illaaa Anta Subhaanaka innee kuntu minaz zaalimeen)__: [And ˹remember˺ when the Man of the Whale stormed off ˹from his city˺ in a rage, thinking We would not restrain him. Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87)
 
 ***
 
-* __Surah An-Naml 27/46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment1 rather than grace?2 If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
+* __Surah An-Naml 27/46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment rather than grace? If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
 
 ***
 
 #### King Solomon Dua
-* __Surah Saad 38/35 (Forgive and Grant me a Kingdom)__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quranwbw.com/38/35)
+* __Surah Saad 38/35 (Forgive me and Grant me a Kingdom)__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quranwbw.com/38/35)
 
 ***
 
-#### Never Loose Hope in Allah SWT Mercy
-* __Surah Az-Zumar [The Groups] 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
+* __Surah Az-Zumar [The Groups] 39/53 (${\color{red}Never ~Loose ~Hope ~in ~Allah ~SWT ~Mercy}$)__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins. He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
 
 ***
 
@@ -109,7 +108,7 @@
 
 ***
 
-* __Surah Nooh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [(10) saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving. (11) He will shower you with abundant rain, (12) supply you with wealth and children, and give you gardens as well as rivers.](https://quranwbw.com/71#10-12)
+* __Surah Nooh 71/10-12 (${\color{red}Rain, ~Wealth, ~Children, ~Gardens, ~and ~Rivers}$)__: [(10) saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving. (11) He will shower you with abundant rain, (12) supply you with wealth and children, and give you gardens as well as rivers.](https://quranwbw.com/71#10-12)
 
 ***
 

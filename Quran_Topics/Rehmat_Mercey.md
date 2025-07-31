@@ -75,10 +75,10 @@
 
 ***
 
-* __Surah Yunus 21__: [](https://quranwbw.com/10/21)
-* __Surah Yunus 57__: [](https://quranwbw.com/10/57)
-* __Surah Yunus 58__: [](https://quranwbw.com/10/58)
-* __Surah Yunus 86__: [](https://quranwbw.com/10/86)
+* __Surah Yunus 21__: [When We give people a taste of mercy after being afflicted with a hardship, they swiftly devise plots against Our revelations! Say, ˹O Prophet,˺ “Allah is swifter in devising ˹punishment˺. Surely Our messenger-angels record whatever you devise.”](https://quranwbw.com/10/21)
+* __Surah Yunus 57__: [O humanity! Indeed, there has come to you a warning from your Lord, a cure for what is in the hearts, a guide, and a mercy for the believers.](https://quranwbw.com/10/57)
+* __Surah Yunus 58__: [Say, ˹O Prophet,˺ “In Allah’s grace and mercy let them rejoice. That is far better than whatever ˹wealth˺ they amass.”](https://quranwbw.com/10/58)
+* __Surah Yunus 86__: [and deliver us by Your mercy from the disbelieving people.”](https://quranwbw.com/10/86)
 
 ***
 
@@ -178,17 +178,17 @@
 
 *** 
 
-* __Surah Al-Ankabut 21__: [](https://quranwbw.com/29/21)
-* __Surah Al-Ankabut 23__: [](https://quranwbw.com/29/23)
-* __Surah Al-Ankabut 51__: [](https://quranwbw.com/29/51)
+* __Surah Al-Ankabut 21__: [He punishes whoever He wills, and shows mercy to whoever He wills. And you will ˹all˺ be returned to Him.](https://quranwbw.com/29/21)
+* __Surah Al-Ankabut 23__: [As for those who disbelieve in Allah’s signs and the meeting with Him, it is they who will have no hope in His mercy.1 And it is they who will suffer a painful punishment.](https://quranwbw.com/29/23)
+* __Surah Al-Ankabut 51__: [Is it not enough for them that We have sent down to you the Book, ˹which is˺ recited to them. Surely in this ˹Quran˺ is a mercy and reminder for people who believe.](https://quranwbw.com/29/51)
 
 *** 
 
-* __Surah Ar-Rum 21__: [](https://quranwbw.com/30/21)
-* __Surah Ar-Rum 33__: [](https://quranwbw.com/30/33)
-* __Surah Ar-Rum 36__: [](https://quranwbw.com/30/36)
-* __Surah Ar-Rum 46__: [](https://quranwbw.com/30/46)
-* __Surah Ar-Rum 50__: [](https://quranwbw.com/30/50)
+* __Surah Ar-Rum 21__: [And one of His signs is that He created for you spouses from among yourselves so that you may find comfort in them. And He has placed between you compassion and mercy. Surely in this are signs for people who reflect.](https://quranwbw.com/30/21)
+* __Surah Ar-Rum 33__: [When people are touched with hardship, they cry out to their Lord, turning to Him ˹alone˺. But as soon as He gives them a taste of His mercy, a group of them associates ˹others˺ with their Lord ˹in worship˺,](https://quranwbw.com/30/33)
+* __Surah Ar-Rum 36__: [If We give people a taste of mercy, they become prideful ˹because˺ of it. But if they are afflicted with an evil for what their hands have done, they instantly fall into despair.](https://quranwbw.com/30/36)
+* __Surah Ar-Rum 46__: [And one of His signs is that He sends the winds, ushering in good news ˹of rain˺ so that He may give you a taste of His mercy, and that ships may sail by His command, and that you may seek His bounty, and perhaps you will be grateful.](https://quranwbw.com/30/46)
+* __Surah Ar-Rum 50__: [See then the impact of Allah’s mercy: how He gives life to the earth after its death! Surely That ˹same God˺ can raise the dead. For He is Most Capable of everything.](https://quranwbw.com/30/50)
 
 *** 
 
@@ -196,9 +196,9 @@
 
 ***
 
-* __Surah Al-Ahzab 17__: [](https://quranwbw.com/33/17)
-* __Surah Al-Ahzab 24__: [](https://quranwbw.com/33/24)
-* __Surah Al-Ahzab 73__: [](https://quranwbw.com/33/73)
+* __Surah Al-Ahzab 17__: [Ask ˹them, O  Prophet˺, “Who can put you out of Allah’s reach if He intends to harm you or show you mercy?” They can never find any protector or helper besides Allah.](https://quranwbw.com/33/17)
+* __Surah Al-Ahzab 24__: [˹It all happened˺ so Allah may reward the faithful for their faithfulness, and punish the hypocrites if He wills or turn to them ˹in mercy˺. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/33/24)
+* __Surah Al-Ahzab 73__: [so that Allah will punish hypocrite men and women and polytheistic men and women, and Allah will turn in mercy to believing men and women. For Allah is All-Forgiving, Most Merciful.1 ](https://quranwbw.com/33/73)
 
 ***
 
@@ -216,14 +216,14 @@
 
 *** 
 
-* __Surah Az-Zumar 9__: [](https://quranwbw.com/39/9)
-* __Surah Az-Zumar 38__: [](https://quranwbw.com/39/38)
-* __Surah Az-Zumar 53__: [](https://quranwbw.com/39/53)
+* __Surah Az-Zumar 9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
+* __Surah Az-Zumar 38__: [If you ask them ˹O Prophet˺ who created the heavens and the earth, they will certainly say, “Allah!” Ask ˹them˺, “Consider then whatever ˹idols˺ you invoke besides Allah: if it was Allah’s Will to harm me, could they undo that harm? Or if He willed ˹some˺ mercy for me, could they withhold His mercy?” Say, “Allah is sufficient for me. In Him ˹alone˺ the faithful put their trust.”](https://quranwbw.com/39/38)
+* __Surah Az-Zumar 53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
 
 *** 
 
-* __Surah Ghafir 7__: [](https://quranwbw.com/40/7)
-* __Surah Ghafir 9__: [](https://quranwbw.com/40/9)
+* __Surah Ghafir 7__: [Those ˹angels˺ who carry the Throne and those around it glorify the praises of their Lord, have faith in Him, and seek forgiveness for the believers, ˹praying:˺ “Our Lord! You encompass everything in ˹Your˺ mercy and knowledge. So forgive those who repent and follow Your Way, and protect them from the torment of the Hellfire.](https://quranwbw.com/40/7)
+* __Surah Ghafir 9__: [And protect them from ˹the consequences of their˺ evil deeds. For whoever You protect from the evil of their deeds on that Day will have been shown Your mercy. That is ˹truly˺ the ultimate triumph.”](https://quranwbw.com/40/9)
 
 *** 
 
@@ -231,8 +231,8 @@
 
 ***
 
-* __Surah Ash-Shura 8__: [](https://quranwbw.com/42/8)
-* __Surah Ash-Shura 48__: [](https://quranwbw.com/42/48)
+* __Surah Ash-Shura 8__: [Had Allah willed, He could have easily made all ˹humanity˺ into a single community ˹of believers˺. But He admits into His mercy whoever He wills. And the wrongdoers will have no protector or helper.](https://quranwbw.com/42/8)
+* __Surah Ash-Shura 48__: [But if they turn away, We have not sent you ˹O Prophet˺ as a keeper over them. Your duty is only to deliver ˹the message˺. And indeed, when We let someone taste a mercy from Us, they become prideful ˹because˺ of it. But when afflicted with evil because of what their hands have done, then one becomes totally ungrateful.](https://quranwbw.com/42/48)
 
 ***
 

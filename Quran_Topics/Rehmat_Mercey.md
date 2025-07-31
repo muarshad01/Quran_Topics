@@ -64,14 +64,14 @@
 
 ***
 
-* __Surah At-Taubah 21__: [](https://quranwbw.com/9/21)
-* __Surah At-Taubah 61__: [](https://quranwbw.com/9/61)
-* __Surah At-Taubah 71__: [](https://quranwbw.com/9/71)
-* __Surah At-Taubah 99__: [](https://quranwbw.com/9/99)
-* __Surah At-Taubah 102__: [](https://quranwbw.com/9/102)
-* __Surah At-Taubah 106__: [](https://quranwbw.com/9/106)
-* __Surah At-Taubah 117__: [](https://quranwbw.com/9/117)
-* __Surah At-Taubah 118__: [](https://quranwbw.com/9/118)
+* __Surah At-Taubah 21__: [Their Lord gives them good news of His mercy, pleasure, and Gardens with everlasting bliss,](https://quranwbw.com/9/21)
+* __Surah At-Taubah 61__: [And there are others who hurt the Prophet by saying, “He listens to anyone.” Say, ˹O Prophet,˺ “He listens to what is best for you. He believes in Allah, has faith in the believers, and is a mercy for those who believe among you.” Those who hurt Allah’s Messenger will suffer a painful punishment.](https://quranwbw.com/9/61)
+* __Surah At-Taubah 71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/9/71)
+* __Surah At-Taubah 99__: [However, among the nomadic Arabs are those who believe in Allah and the Last Day, and consider what they donate as a means of coming closer to Allah and ˹receiving˺ the prayers of the Messenger. It will certainly bring them closer. Allah will admit them into His mercy. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/99)
+* __Surah At-Taubah 102__: [Some others have confessed their wrongdoing: they have mixed goodness with evil.1 It is right to hope that Allah will turn to them in mercy. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/102)
+* __Surah At-Taubah 106__: [And some others are left for Allah’s decision, either to punish them or turn to them in mercy.1 And Allah is All-Knowing, All-Wise.](https://quranwbw.com/9/106)
+* __Surah At-Taubah 117__: [Allah has certainly turned in mercy to the Prophet1 as well as the Emigrants and the Helpers who stood by him in the time of hardship, after the hearts of a group of them had almost faltered. He then accepted their repentance. Surely He is Ever Gracious and Most Merciful to them.](https://quranwbw.com/9/117)
+* __Surah At-Taubah 118__: [And ˹Allah has also turned in mercy to˺ the three who had remained behind, ˹whose guilt distressed them˺ until the earth, despite its vastness, seemed to close in on them, and their souls were torn in anguish. They knew there was no refuge from Allah except in Him. Then He turned to them in mercy so that they might repent. Surely Allah ˹alone˺ is the Accepter of Repentance, Most Merciful.](https://quranwbw.com/9/118)
 
 ***
 

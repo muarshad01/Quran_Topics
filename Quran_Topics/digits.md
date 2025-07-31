@@ -258,6 +258,17 @@ https://quran.com/39/53
 
 ***
 
+## Digit 66
+
+***
+
+## Digit 70
+
+* __Surah Al-Araaf __: [Moses chose seventy men from among his people for Our appointment and, when they were seized by an earthquake,1 he cried, “My Lord! Had You willed, You could have destroyed them long ago, and me as well. Will You destroy us for what the foolish among us have done? This is only a test from You—by which You allow whoever you will to stray and guide whoever You will. You are our Guardian. So forgive us and have mercy on us. You are the best forgiver.](https://quranwbw.com/7/155)
+* __Surah At-Tawba__: [˹It does not matter˺ whether you ˹O Prophet˺ pray for them to be forgiven or not. Even if you pray for their forgiveness seventy times, Allah will never forgive them. That is because they have lost faith in Allah and His Messenger. And Allah does not guide the rebellious people.](https://quranwbw.com/9/80)
+
+***
+
 ## Digit (71)
 
 * __Surah Maryam 19/71__: [There is none of you who will not pass over it.1 ˹This is˺ a decree your Lord must fulfil.](https://quranwbw.com/19/71)

@@ -205,13 +205,13 @@
 
 *** 
 
-* __Surah Ya-Sin 44__: [](https://quranwbw.com/36/44)
-* __Surah Ya-Sin 45__: [](https://quranwbw.com/36/45)
+* __Surah Ya-Sin 44__: [except by mercy from Us, allowing them enjoyment for a ˹little˺ while.](https://quranwbw.com/36/44)
+* __Surah Ya-Sin 45__: [˹Still they turn away˺ when it is said to them, “Beware of what is ahead of you ˹in the Hereafter˺ and what is behind you ˹of destroyed nations˺ so you may be shown mercy.”](https://quranwbw.com/36/45)
 
 *** 
 
-* __Surah Sad Ayat 9__: [](https://quranwbw.com/38/9)
-* __Surah Sad Ayat 43__: [](https://quranwbw.com/38/43)
+* __Surah Sad Ayat 9__: [Or ˹is it because˺ they possess the treasuries of the mercy of your Lord—the Almighty, the Giver ˹of all bounties˺.](https://quranwbw.com/38/9)
+* __Surah Sad Ayat 43__: [And We gave him back his family, twice as many, as a mercy from Us and a lesson for people of reason.](https://quranwbw.com/38/43)
 
 *** 
 

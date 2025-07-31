@@ -3,8 +3,10 @@
 
 ***
 
-*  1 - Adam
-    *  [Hazrat Adam | Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
+*  1 - Adam AS
+    *  [Hazrat Adam AS| Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
+    *  [Wali | Allama Talib Johri](https://www.youtube.com/watch?v=oOTbwJLMq70)
+    *  [Ya Allah Meri Mushkil Ko Asaan Bana Dy | Allama Talib Johri](https://www.youtube.com/watch?v=61WdVfx933Y)
 *  2 - Idris (Enoch): https://quranwbw.com/21/85
 *  3 - [__Nuh (Noah)__](https://quranwbw.com/21/76): Surah 71; 17/3 (abdan shakooraa); 
 *  4 -  Hud (Heber)

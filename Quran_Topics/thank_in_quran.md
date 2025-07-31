@@ -48,12 +48,13 @@
 * __Surah Al-Anam__: https://quran.com/6/74-90
 * __Surah Luqman__: https://quranwbw.com/31/12
 
-#### [Har Waqt Allah Ka Shukar Karo | Dr Israr Ahmed](https://www.youtube.com/watch?v=kcdzaICAscA)
-
 ***
 
 #### [Prophet Daud (David) AS, Thankfulness | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=njOVrXuYMXY)
-* `Ijz, Inkisari, aur Zauf ka iqrar`
+* __Surah Saba 34/13__: https://quran.com/34/13
+  * My tongue..., My forehead...,
+  * Mayn terey shukar ka haqq kaisay ada karon...Ah daud...abb tu nay shukar ka haqq ada kar diya hai.
+  * Ijz, Inkisari, aur Zauf ka iqrar
 
 ***
 

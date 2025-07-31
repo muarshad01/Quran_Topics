@@ -65,7 +65,7 @@
 * __Surah Hud 11/03 (${\color{red}Prosperous ~Life ~will ~be ~Granted}$)__: [And seek your Lord’s forgiveness and turn to Him in repentance. He will grant you a good provision for an appointed term and graciously reward the doers of good. But if you turn away, then I truly fear for you the torment of a formidable Day.](https://quranwbw.com/11#3)
 
 
-* __Surah Hud 11/52 (${\color{red}{Strength ~and ~Power ~will Increase}$)__: [And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”](https://quranwbw.com/11#52)
+* __Surah Hud 11/52 (${\color{red}Strength ~and ~Power ~will Increase}$)__: [And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”](https://quranwbw.com/11#52)
 
 ***
 

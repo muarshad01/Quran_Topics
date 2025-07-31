@@ -47,20 +47,20 @@
 
 ***
 
-* __Surah Al-A'raf 23__: [](https://quranwbw.com/7/23)
-* __Surah Al-A'raf 49__: [](https://quranwbw.com/7/49)
-* __Surah Al-A'raf 52__: [](https://quranwbw.com/7/52)
-* __Surah Al-A'raf 56__: [](https://quranwbw.com/7/56)
-* __Surah Al-A'raf 57__: [](https://quranwbw.com/7/57)
-* __Surah Al-A'raf 63__: [](https://quranwbw.com/7/63)
-* __Surah Al-A'raf 72__: [](https://quranwbw.com/7/72)
-* __Surah Al-A'raf 149__: [](https://quranwbw.com/7/149)
-* __Surah Al-A'raf 151__: [](https://quranwbw.com/7/151)
-* __Surah Al-A'raf 154__: [](https://quranwbw.com/7/154)
-* __Surah Al-A'raf 155__: [](https://quranwbw.com/7/155)
-* __Surah Al-A'raf 156__: [](https://quranwbw.com/7/156)
-* __Surah Al-A'raf 203__: [](https://quranwbw.com/7/203)
-* __Surah Al-A'raf 204__: [](https://quranwbw.com/7/204)
+* __Surah Al-A'raf 23__: [They replied, “Our Lord! We have wronged ourselves. If You do not forgive us and have mercy on us, we will certainly be losers.”](https://quranwbw.com/7/23)
+* __Surah Al-A'raf 49__: [Are these ˹humble believers˺ the ones you swore would never be shown Allah’s mercy?” ˹Finally, those on the heights will be told:˺ “Enter Paradise! There will be no fear for you, nor will you grieve.”](https://quranwbw.com/7/49)
+* __Surah Al-A'raf 52__: [We have certainly brought them a Book which We explained with knowledge—a guide and mercy for those who believe.](https://quranwbw.com/7/52)
+* __Surah Al-A'raf 56__: [Do not spread corruption in the land after it has been set in order. And call upon Him with hope and fear. Indeed, Allah’s mercy is always close to the good-doers.](https://quranwbw.com/7/56)
+* __Surah Al-A'raf 57__: [He is the One Who sends the winds ushering in His mercy. When they bear heavy clouds, We drive them to a lifeless land and then cause rain to fall, producing every type of fruit. Similarly, We will bring the dead to life, so perhaps you will be mindful.](https://quranwbw.com/7/57)
+* __Surah Al-A'raf 63__: [Do you find it astonishing that a reminder should come to you from your Lord through one of your own, warning you, so you may beware and perhaps be shown mercy?”](https://quranwbw.com/7/63)
+* __Surah Al-A'raf 72__: [So We saved him and those with him by Our mercy and uprooted those who denied Our signs. They were not believers.](https://quranwbw.com/7/72)
+* __Surah Al-A'raf 149__: [Later, when they were filled with remorse and realized they had gone astray, they cried, “If our Lord does not have mercy on us and forgive us, we will certainly be losers.”](https://quranwbw.com/7/149)
+* __Surah Al-A'raf 151__: [Moses prayed, “My Lord! Forgive me and my brother! And admit us into Your mercy. You are the Most Merciful of the merciful.”](https://quranwbw.com/7/151)
+* __Surah Al-A'raf 154__: [When Moses’ anger subsided, he took up the Tablets whose text contained guidance and mercy for those who stand in awe of their Lord.](https://quranwbw.com/7/154)
+* __Surah Al-A'raf 155__: [Moses chose seventy men from among his people for Our appointment and, when they were seized by an earthquake,1 he cried, “My Lord! Had You willed, You could have destroyed them long ago, and me as well. Will You destroy us for what the foolish among us have done? This is only a test from You—by which You allow whoever you will to stray and guide whoever You will. You are our Guardian. So forgive us and have mercy on us. You are the best forgiver.](https://quranwbw.com/7/155)
+* __Surah Al-A'raf 156__: [Ordain for us what is good in this life and the next. Indeed, we have turned to You ˹in repentance˺.” Allah replied, “I will inflict My torment on whoever I will. But My mercy encompasses everything. I will ordain mercy for those who shun evil, pay alms-tax, and believe in Our revelations.](https://quranwbw.com/7/156)
+* __Surah Al-A'raf 203__: [If you ˹O Prophet˺ do not bring them a sign ˹which they demanded˺, they ask, “Why do you not make it yourself?” Say, “I only follow what is revealed to me from my Lord. This ˹Quran˺ is an insight from your Lord—a guide and a mercy for those who believe.”](https://quranwbw.com/7/203)
+* __Surah Al-A'raf 204__: [When the Quran is recited, listen to it attentively and be silent, so you may be shown mercy.](https://quranwbw.com/7/204)
 
 ***
 

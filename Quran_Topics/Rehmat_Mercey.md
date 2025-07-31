@@ -6,8 +6,8 @@
 
 ***
 
-## Rehmat
-* __Surah Al-Anam 6/54 (${\color{red}(كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ الرَّحْمَةَ)}$)__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
+## Rehmat (كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ الرَّحْمَةَ)
+* __Surah Al-Anam 6/54__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
 
 ***
 

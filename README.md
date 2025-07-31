@@ -46,7 +46,7 @@
 |1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | July 29, 2025 |
 |2. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 29, 2025|
 |3. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
-|4. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 29, 2025 |
+|4. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 30, 2025 |
 |5. | [Zikr (Remembrance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 29, 2025| 
 |6. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 29, 2025 | 
 |7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | July 29, 2025 |

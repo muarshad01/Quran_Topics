@@ -42,9 +42,13 @@
 
 ***
 
-
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)
-#### [Har Waqt Allah Ka Shukar Karo | Dr. Israr Ahmed](https://www.youtube.com/watch?v=kcdzaICAscA)
+* Shukar aik jazba hai (Jazba-e-Tashakar)
+* Fitrat-ki-sehat-ki alamat hai
+* __Surah Al-Anam__: https://quran.com/6/74-90
+* __Surah Luqman__: https://quranwbw.com/31/12
+
+#### [Har Waqt Allah Ka Shukar Karo | Dr Israr Ahmed](https://www.youtube.com/watch?v=kcdzaICAscA)
 
 ***
 

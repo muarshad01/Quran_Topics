@@ -113,14 +113,14 @@
 
 *** 
 
-* __Surah Al-Isra 8__: [](https://quranwbw.com/17/8)
-* __Surah Al-Isra 24__: [](https://quranwbw.com/17/24)
-* __Surah Al-Isra 28__: [](https://quranwbw.com/17/28)
-* __Surah Al-Isra 54__: [](https://quranwbw.com/17/54)
-* __Surah Al-Isra 57__: [](https://quranwbw.com/17/57)
-* __Surah Al-Isra 82__: [](https://quranwbw.com/17/82)
-* __Surah Al-Isra 87__: [](https://quranwbw.com/17/87)
-* __Surah Al-Isra 100__: [](https://quranwbw.com/17/100)
+* __Surah Al-Isra 8__: [Perhaps your Lord will have mercy on you ˹if you repent˺, but if you return ˹to sin˺, We will return ˹to punishment˺. And We have made Hell a ˹permanent˺ confinement for the disbelievers.”](https://quranwbw.com/17/8)
+* __Surah Al-Isra 24__: [And be humble with them out of mercy, and pray, “My Lord! Be merciful to them as they raised me when I was young.”](https://quranwbw.com/17/24)
+* __Surah Al-Isra 28__: [But if you must turn them down ˹because you lack the means to give˺—while hoping to receive your Lord’s bounty—then ˹at least˺ give them a kind word.](https://quranwbw.com/17/28)
+* __Surah Al-Isra 54__: [Your Lord knows you best. He may have mercy on you if He wills, or punish you if He wills. We have not sent you ˹O Prophet˺ as a keeper over them.](https://quranwbw.com/17/54)
+* __Surah Al-Isra 57__: [˹Even˺ the closest ˹to Allah˺ of those invoked would be seeking a way to their Lord, hoping for His mercy, and fearing His punishment. Indeed, your Lord’s torment is fearsome.](https://quranwbw.com/17/57)
+* __Surah Al-Isra 82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
+* __Surah Al-Isra 87__: [had it not been for the mercy of your Lord. Indeed, His favour upon you is immense.](https://quranwbw.com/17/87)
+* __Surah Al-Isra 100__: [Say ˹to them, O  Prophet˺, “Even if you were to possess the ˹infinite˺ treasuries of my Lord’s mercy, then you would certainly withhold ˹them˺, fearing they would run out—for humankind is ever stingy!”](https://quranwbw.com/17/100)
 
 ***
 

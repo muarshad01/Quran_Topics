@@ -133,41 +133,41 @@
 
 *** 
 
-* __Surah Maryam Ayat 2__: [](https://quranwbw.com/19/2)
-* __Surah Maryam Ayat 21__: [](https://quranwbw.com/19/21)
-* __Surah Maryam Ayat 50__: [](https://quranwbw.com/19/50)
-* __Surah Maryam Ayat 53__: [](https://quranwbw.com/19/53)
+* __Surah Maryam Ayat 2__: [˹This is˺ a reminder of your Lord’s mercy to His servant Zachariah,](https://quranwbw.com/19/2)
+* __Surah Maryam Ayat 21__: [He replied, “So will it be! Your Lord says, ‘It is easy for Me. And so will We make him a sign for humanity and a mercy from Us.’ It is a matter ˹already˺ decreed.”](https://quranwbw.com/19/21)
+* __Surah Maryam Ayat 50__: [We showered them with Our mercy, and blessed them with honourable mention.](https://quranwbw.com/19/50)
+* __Surah Maryam Ayat 53__: [And We appointed for him—out of Our grace—his brother, Aaron, as a prophet.](https://quranwbw.com/19/53)
 
 *** 
 
-* __Surah Al-Anbiya 75__: [](https://quranwbw.com/21/75)
-* __Surah Al-Anbiya 84__: [](https://quranwbw.com/21/84)
-* __Surah Al-Anbiya 86__: [](https://quranwbw.com/21/86)
-* __Surah Al-Anbiya 107__: [](https://quranwbw.com/21/107)
+* __Surah Al-Anbiya 75__: [And We admitted him into Our mercy, ˹for˺ he was truly one of the righteous.](https://quranwbw.com/21/75)
+* __Surah Al-Anbiya 84__: [So We answered his prayer and removed his adversity, and gave him back his family, twice as many, as a mercy from Us and a lesson for the ˹devoted˺ worshippers.](https://quranwbw.com/21/84)
+* __Surah Al-Anbiya 86__: [We admitted them into Our mercy, for they were truly of the righteous.](https://quranwbw.com/21/86)
+* __Surah Al-Anbiya 107__: [We have sent you ˹O Prophet˺ only as a mercy for the whole world.](https://quranwbw.com/21/107)
 
 *** 
 
-* __Surah Al-Mu'minun 75__: [](https://quranwbw.com/23/75)
-* __Surah Al-Mu'minun 109__: [](https://quranwbw.com/23/109)
-* __Surah Al-Mu'minun 118__: [](https://quranwbw.com/23/118)
+* __Surah Al-Mu'minun 75__: [˹Even˺ if We had mercy on them and removed their affliction,1 they would still persist in their transgression, wandering blindly.](https://quranwbw.com/23/75)
+* __Surah Al-Mu'minun 109__: [Indeed, there was a group of My servants who used to pray, ‘Our Lord! We have believed, so forgive us and have mercy on us, for You are the best of those who show mercy,’](https://quranwbw.com/23/109)
+* __Surah Al-Mu'minun 118__: [Say, ˹O Prophet,˺ “My Lord! Forgive and have mercy, for You are the best of those who show mercy.”](https://quranwbw.com/23/118)
 
 *** 
 
-* __Surah An-Nur 10__: [](https://quranwbw.com/24/10)
-* __Surah An-Nur 14__: [](https://quranwbw.com/24/14)
-* __Surah An-Nur 20__: [](https://quranwbw.com/24/20)
+* __Surah An-Nur 10__: [˹You would have suffered,˺ had it not been for Allah’s grace and mercy upon you, and had Allah not been Accepting of Repentance, All-Wise.](https://quranwbw.com/24/10)
+* __Surah An-Nur 14__: [Had it not been for Allah’s grace and mercy upon you in this world and the Hereafter, you would have certainly been touched with a tremendous punishment for what you plunged into—](https://quranwbw.com/24/14)
+* __Surah An-Nur 20__: [˹You would have suffered,˺ had it not been for Allah’s grace and mercy upon you, and had Allah not been Ever Gracious, Most Merciful.](https://quranwbw.com/24/20)
 * __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
-* __Surah An-Nur 56__: [](https://quranwbw.com/24/56)
+* __Surah An-Nur 56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quranwbw.com/24/56)
 
 *** 
 
-* __Surah Al-Furqan Ayat 48__: [](https://quranwbw.com/25/48)
+* __Surah Al-Furqan Ayat 48__: [And He is the One Who sends the winds ushering in His mercy, and We send down pure rain from the sky,](https://quranwbw.com/25/48)
 
 *** 
-* __Surah An-Naml 19__: [](https://quranwbw.com/27/19)
-* __Surah An-Naml 46__: [](https://quranwbw.com/27/46)
-* __Surah An-Naml 63__: [](https://quranwbw.com/27/63)
-* __Surah An-Naml 77__: [](https://quranwbw.com/27/77)
+* __Surah An-Naml 19__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
+* __Surah An-Naml 46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment1 rather than grace?2 If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
+* __Surah An-Naml 63__: [Or ˹ask them,˺ “Who guides you in the darkness of the land and sea,1 and sends the winds ushering in His mercy?2 Is it another god besides Allah? Exalted is Allah above what they associate ˹with Him˺!](https://quranwbw.com/27/63)
+* __Surah An-Naml 77__: [And it is truly a guide and mercy for the believers.](https://quranwbw.com/27/77)
 
 *** 
 

@@ -1,3 +1,7 @@
+### [Shukar kiya hai | Allama Talib Johri](https://www.youtube.com/watch?v=3-AbnR0XkTA)
+
+***
+
 * Sukhar -> Jannat
 * Sabr -> Allah
 

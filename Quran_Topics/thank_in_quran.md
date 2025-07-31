@@ -1,11 +1,9 @@
-### [Shukar kiya hai | Allama Talib Johri](https://www.youtube.com/watch?v=3-AbnR0XkTA)
-
-***
-
 * Sukhar -> Jannat
 * Sabr -> Allah
 
 ***
+
+### [Shukar kiya hai | Allama Talib Johri](https://www.youtube.com/watch?v=3-AbnR0XkTA)
 
 ### [Prophet Daud (David) AS, Thankfulness | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=njOVrXuYMXY)
 * `Ijz, Inkisari, aur Zauf ka iqrar`
@@ -40,19 +38,18 @@
 
 ***
 
+* __Surah Al-Baqarah 2/152__: []()
+* __Surah Al-Baqarah 2/172__: []()
+* __Surah Al-A'raf 7/10__: []()
+* __Surah 10/60__: []()
+* __Surah 12/38__: []()
+* __Surah Al-Ibrahim 14/7__: []() 
+* __Surah Al-An'am 16/78__ : []()
+* __Surah 23/78__: []()
+* __Surah 32/9__: []()
+* __Surah 34/13__: []()
+* __Surah 40/61__: []()
+* __Surah 56/70__: []()
+* __Surah 67/23__: []()
 
-Surah Al-Baqarah (2:152):
-.
-"Therefore, remember Me; I will remember you. And be grateful to Me and do not deny Me". This verse underscores the reciprocal relationship between remembering Allah, being grateful to Him, and His remembrance of you. 
-Surah Al-Ibrahim (14:7):
-.
-"And [remember] when your Lord proclaimed, 'If you are grateful, I will surely increase you [in favor]; but if you deny, indeed, My punishment is severe'". This verse explicitly states that gratitude leads to more blessings, while ingratitude incurs severe punishment. 
-Surah Al-An'am (16:78):
-.
-"When God brought you out of your mother's womb, you were empty of knowledge. But He gave you eyes and ears and hearts, in order that you may give thanks to Him". This verse points to the inherent purpose of our senses and intellect being to recognize and thank Allah for His creation and provisions. 
-Surah Al-Baqarah (2:172):
-.
-"O you who believe, eat from the good things we provided for you, and be thankful to God, if you do worship Him alone". This verse encourages enjoying lawful provisions and being thankful to Allah while worshipping Him alone. 
-Surah Al-A'raf (7:10):
-.
-This verse, along with others like 10:60, 12:38, 23:78, 32:9, 34:13, 40:61, 56:70, and 67:23, speaks to the general ingratitude of mankind for the numerous blessings provided by Allah. 
+*** 

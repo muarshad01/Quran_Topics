@@ -35,4 +35,6 @@
 * 25 -  __Isa (Jesus)__: 
 * 26 -  __Muhammad PBUH__: Surah 47
     * [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
+    * [Shan-e-Risalat | Allama Talib Johri](https://www.youtube.com/watch?v=JGeKW928Lyg)
+    * [Waqya e Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 ***

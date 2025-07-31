@@ -5,6 +5,21 @@
 ***
 
 #### [Shukar kiya hai? | Allama Talib Johri](https://www.youtube.com/watch?v=3-AbnR0XkTA)
+
+* __Surah Hajj 22/65__: [Do you not see that Allah has subjected to you1 whatever is in the earth as well as the ships ˹that˺ sail through the sea by His command? He keeps the sky from falling down on the earth except by His permission. Surely Allah is Ever Gracious and Most Merciful to humanity.](https://quranwbw.com/22/65)
+* __Surah Luqman 31/20__: [Have you not seen that Allah has subjected for you whatever is in the heavens and whatever is on the earth, and has lavished His favours upon you, both seen and unseen? ˹Still˺ there are some who dispute about Allah without knowledge, or guidance, or an enlightening scripture.](https://quranwbw.com/31/20)
+* __Surah Fatir 35/3__: [O humanity! Remember Allah’s favours upon you. Is there any creator other than Allah who provides for you from the heavens and the earth? There is no god ˹worthy of worship˺ except Him. How can you then be deluded ˹from the truth˺?](https://quranwbw.com/35/3)
+* __Surah Nahl 16/71-72__: [(71) And Allah has favoured some of you over others in provision. But those who have been much favoured would not share their wealth with those ˹bondspeople˺ in their possession, making them their equals.1 Do they then deny Allah’s favours? (72) And Allah has made for you spouses of your own kind, and given you through your spouses children and grandchildren.1 And He has granted you good, lawful provisions. Are they then faithful to falsehood and ungrateful for Allah’s favours?](https://quran.com/16/71-72)
+
+* __Surah Nahl 16/80-83__: [(80) And Allah has made your homes a place to rest, and has given you tents from the hide of animals, light to handle when you travel and when you camp. And out of their wool, fur, and hair He has given you furnishings and goods for a while. (81) And Allah has provided you shade out of what He created, and has given you shelter in the mountains. He has also provided you with clothes protecting you from the heat ˹and cold˺, and armour shielding you in battle. This is how He perfects His favour upon you, so perhaps you will ˹fully˺ submit ˹to Him˺. (82) But if they turn away, then your duty ˹O Prophet˺ is only to deliver ˹the message˺ clearly. (83) They are aware of Allah’s favours, but still deny them. And most of them are ˹truly˺ ungrateful.](https://quran.com/16/80-83)
+__Surah An-Nisaa 4/69 ()__: [And whoever obeys Allah and the Messenger will be in the company of those blessed by Allah: the prophets, the people of truth, the martyrs, and the righteous—what honourable company!](https://quranwbw.com/4/69)
+
+#### Mankind (linnaasi):
+* __Surah 114 (Allah)__: [Rabb, Malk, Ihah]https://quranwbw.com/114
+* __Surah 2/185 (Quran)__: [unzila feehil Qur'aanu hudal linnaasi](https://quranwbw.com/2/185)
+* __Surah 34/28 (Muhammad PBUH)__: [Wa-maaa arsalnaaka illaa kaaffatal linnaasi ](https://quranwbw.com/34/28)
+
+***
 #### [Shukr ka mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
 
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)

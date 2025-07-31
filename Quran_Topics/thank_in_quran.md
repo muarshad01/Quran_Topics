@@ -15,7 +15,7 @@
 __Surah An-Nisaa 4/69 ()__: [And whoever obeys Allah and the Messenger will be in the company of those blessed by Allah: the prophets, the people of truth, the martyrs, and the righteous—what honourable company!](https://quranwbw.com/4/69)
 
 #### Mankind (linnaasi):
-* __Surah 114 (Allah)__: [Rabb, Malk, Ihah]https://quranwbw.com/114
+* __Surah 114 (Allah)__: [Rabb, Malk, Ihah](https://quranwbw.com/114)
 * __Surah 2/185 (Quran)__: [unzila feehil Qur'aanu hudal linnaasi](https://quranwbw.com/2/185)
 * __Surah 34/28 (Muhammad PBUH)__: [Wa-maaa arsalnaaka illaa kaaffatal linnaasi ](https://quranwbw.com/34/28)
 

@@ -51,14 +51,14 @@
 |6. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 29, 2025 | 
 |7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | July 29, 2025 |
 |8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 30, 2025 |
-|9. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025|
+|9. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 28, 2025 |  |
+|10. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | July 2025|
 
 
 ***
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 28, 2025 |  |
 |2. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 28, 2025 |
 |3. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | July 2025 |
 |5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |

@@ -38,7 +38,7 @@
 
 ***
 
-* __Surah Ale-i-Imran 3/17 (${\color{red}Forgiveness ~before ~Dawn}$)__: [˹It is they˺ who are patient, sincere, obedient, and charitable, and who pray for forgiveness before dawn.](https://quranwbw.com/3#17)
+* __Surah Ale-i-Imran 3/17 (${\color{red}Forgiveness ~before ~Dawn}$)__: [˹It is they˺ who are patient, sincere, obedient, and charitable, and who pray for forgiveness before dawn.](https://quranwbw.com/3/17)
 
 ***
 

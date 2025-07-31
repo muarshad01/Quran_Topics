@@ -117,9 +117,9 @@
 |12. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
 |13. | [Animal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/animals.md) | July 2025|
 |14. | [Gates](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md) |July 2025|
-|15. | [Anfiqu..]() |July 2025|
-|16. | [Haqq]() |July 2025|
-|17. | [Jannah]()  |July 2025|
+|15. | [Anfiqu..](...) |July 2025|
+|16. | [Haqq](...) |July 2025|
+|17. | [Jannah](...)  |July 2025|
 |18. | [Solomon...](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
 |19. | [Awabeen ()](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)  |July 2025|
 |20. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/momin.md)  |July 28, 2025|
@@ -134,6 +134,7 @@
 |29.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
 |30.| [Muharram](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muharram.md) | July 2025|
 |31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|
+|32.| [Munafiq (...)] | July 2025|
 
 ***
 

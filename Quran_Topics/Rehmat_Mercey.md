@@ -1,5 +1,5 @@
-#### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan ul Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
-#### [How we know about Allah SWT Rehmat | Syed Sarfaraz A Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
+#### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
+#### [How we know about Allah SWT Rehmat | SSA Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
 #### [Allah's Mercy in Quran](https://myislam.org/quran-verses/allahs-mercy/)
 
 ***

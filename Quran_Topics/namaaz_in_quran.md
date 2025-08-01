@@ -16,6 +16,8 @@
 ## Special Nafals
 * [4-Rakat Nawafil after Maghrib| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
 * [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+* [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
+* [Jummah Ke Din Ki Ahmiyat (Ilm Ki Baarish) | SSA Shah](https://www.youtube.com/watch?v=iHTNHcZc-CI)
 * __Surah Al-Israa (${Fatahajjad; Maqaamam Mahmoodaa}$)__: [And rise at ˹the last˺ part of the night, offering additional prayers, so your Lord may raise you to a station of praise.](https://quranwbw.com/17/79)
 
 #### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)

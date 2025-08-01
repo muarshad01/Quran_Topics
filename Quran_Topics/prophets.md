@@ -48,3 +48,6 @@
 ***
 
 https://quranwbw.com/31/12
+
+### Khidir
+https://quranwbw.com/18/65

@@ -1,3 +1,8 @@
+# [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
+* Jab Insaan, kisi-bhi-andaaz-mayn Rabb ki taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh woo Zikr hai.
+
+***
+
 ## Zikr (وَلِلَّهِ الْأَسْمَاءُ الْحُسْنَىٰ فَادْعُوهُ بِهَا)
 * Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
 * __Surah Al-Araaf 7/180 (Most Beautiful Names)__: [Allah has the Most Beautiful Names. So call upon Him by them, and keep away from those who abuse His Names. They will be punished for what they used to do.](https://quranwbw.com/7/180)

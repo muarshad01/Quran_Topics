@@ -91,10 +91,11 @@
 |---|---|---|
 |1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md)| July 28, 2025|
 |2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets.md)| July 2025|
-|3. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ibrahim_AS.md)| July 2025|
-|4. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)| July 2025|
-|5. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
-|6. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md)| July 28, 2025|
+|3. | [Abraham](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ibrahim_AS.md)| July 2025|
+|4. | [Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
+|5. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md)| July 2025|
+|6. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
+|7. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md)| July 28, 2025|
 
 ***
 
@@ -103,7 +104,7 @@
 |0. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 30, 2025|
 |1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
-|2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 |
+|2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
 |4. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
 |5. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
@@ -120,7 +121,6 @@
 |15. | [Anfiqu..](...) |July 2025|
 |16. | [Haqq](...) |July 2025|
 |17. | [Jannah](...)  |July 2025|
-|18. | [Solomon...](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  |July 2025|
 |19. | [Awabeen ()](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)  |July 2025|
 |20. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/momin.md)  |July 28, 2025|
 |21. | [Creation in 6 days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/creation_6_days.md) | July 2025|

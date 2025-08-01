@@ -56,6 +56,14 @@
 
 ***
 
+### [Duniya Allah Ka Inaam Hai | Aasal Mein Dyniya Hi Deen Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=REKkql6UtuE)
+* Na Tarek-e-Dunya na Gharaq-e-Dunya
+* Solomon AS
+* Abdul Rehman Bin Auf
+  
+***
+
+
 * __Surah Al-Baqarah 2/152/__: [remember Me; I will remember you. And thank Me, and never be ungrateful.](https://quranwbw.com/2/152) 
 * __Surah Al-Baqarah 2/172/__: [O believers! Eat from the good things We have provided for you. And give thanks to Allah if you ˹truly˺ worship Him ˹alone˺.](https://quranwbw.com/2/172)
 

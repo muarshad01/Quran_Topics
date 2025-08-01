@@ -6,6 +6,8 @@
   
 * __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.1” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
 
+* https://quranwbw.com/18/24
+* 
 * __Surah Al-Kahf 18/28__: [without adding, “if Allah so wills!” But if you forget, then remember your Lord, and say, “I trust my Lord will guide me to what is more right than this.”](https://quran.com/18/24)
 
 * __Surah Al-Kahf 18/63__: [He replied, “Do you remember when we rested by the rock? ˹That is when˺ I forgot the fish. None made me forget to mention this except Satan. And the fish made its way into the sea miraculously.”](https://quran.com/18/63)

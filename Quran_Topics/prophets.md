@@ -30,6 +30,7 @@
 * 21 -  Alyasa (Elisha)
 * 22 -  Yunus (Jonah)
 * 23 -  [Zakariya (Zachariah)](https://quranwbw.com/21/89)
+      * __Surah Maryam 19/4 (Zakaria AS Dua)__: saying, “My Lord! Surely my bones have become brittle, and grey hair has spread across my head, but I have never been disappointed in my prayer to You, my Lord!
 * 24 -  Yahya (John the Baptist)
 * * __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
 * 25 -  __Isa (Jesus)__: 

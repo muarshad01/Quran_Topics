@@ -38,6 +38,9 @@
 #### Is there Anyone?
 * __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quranwbw.com/54/17)
 
+
+* __Surah Al-Alaa 87/6__: [We will have you recite ˹the Quran, O  Prophet,˺ so you will not forget ˹any of it˺,(]https://quranwbw.com/87/6)
+
 ***
 ***
 

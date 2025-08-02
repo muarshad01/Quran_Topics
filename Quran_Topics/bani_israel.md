@@ -265,6 +265,7 @@
 
 ## [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
 * https://quranwbw.com/62/6
+* https://quranwbw.com/2/91
 
 ***
   

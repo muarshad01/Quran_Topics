@@ -269,6 +269,10 @@
 * 600,000 people of Bani Israel left with prophet Moses
 
 ***
+
+## [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
+
+***
   
 #### Muslims
 * You can't change a word in Quran

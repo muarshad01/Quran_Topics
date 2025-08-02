@@ -263,6 +263,11 @@
 
 ***
 
+## [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
+* https://quranwbw.com/2/50
+
+***
+
 ## [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
 * https://quranwbw.com/62/6
 * https://quranwbw.com/2/91
@@ -270,9 +275,11 @@
 
 ***
 
-## [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
+## [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon]()
+* 
 
 ***
+
   
 #### Muslims
 * You can't change a word in Quran

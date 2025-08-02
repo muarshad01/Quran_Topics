@@ -262,6 +262,11 @@
 * https://quranwbw.com/20/85-98
 
 ***
+
+## [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
+* https://quranwbw.com/62/6
+
+***
   
 #### Muslims
 * You can't change a word in Quran

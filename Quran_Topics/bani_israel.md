@@ -255,6 +255,13 @@
 * 6 tribes fought against 6 other tribes
 * Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
 * __Surah Al-Qasas Ayat 15__: [˹One day˺ he entered the city unnoticed by its people. There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
+
+***
+
+## [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
+* https://quranwbw.com/20/85-98
+
+***
   
 #### Muslims
 * You can't change a word in Quran

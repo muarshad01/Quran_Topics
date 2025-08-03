@@ -67,8 +67,6 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 (2:124)
 ١٢٤  وَإِذِ ابْتَلَىٰ إِبْرَاهِيمَ رَبُّهُ بِكَلِمَاتٍ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّي جَاعِلُكَ لِلنَّاسِ إِمَامًا ۖ قَالَ وَمِنْ ذُرِّيَّتِي ۖ قَالَ لَا يَنَالُ عَهْدِي الظَّالِمِينَ
 
-124  And [mention, O Muhammad], when Abraham was tried by his Lord with commands and he fulfilled them. [Allah] said, “Indeed, I will make you a leader for the people.” [Abraham] said, “And of my descendants?” [Allah] said, “My covenant does not include the wrongdoers.
-
 * __Surah Al-Baqarah 2/124 (${Iman of Naas}$)__: [˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”](https://quranwbw.com/2/124)
   * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them". It is a combination of the conjunction "fa" (ف), meaning "and", and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed", with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
 
@@ -87,8 +85,8 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٢٦  وَإِذْ قَالَ إِبْرَاهِيمُ رَبِّ اجْعَلْ هَٰذَا بَلَدًا آمِنًا وَارْزُقْ أَهْلَهُ مِنَ الثَّمَرَاتِ مَنْ آمَنَ مِنْهُمْ بِاللَّهِ وَالْيَوْمِ الْآخِرِ ۖ قَالَ وَمَنْ كَفَرَ فَأُمَتِّعُهُ قَلِيلًا ثُمَّ أَضْطَرُّهُ إِلَىٰ عَذَابِ النَّارِ ۖ وَبِئْسَ الْمَصِيرُ
 
-126  And [mention] when Abraham said, “My Lord, make this a secure city and provide its people with fruits – whoever of them believes in Allah and the Last Day.” [Allah] said. “And whoever disbelieves – I will grant him enjoyment for a little; then I will force him to the punishment of the Fire, and wretched is the destination.
-
+* __Surah Al-Baqarah 2/126__: [And ˹remember˺ when Abraham said, “My Lord, make this city ˹of Mecca˺ secure and provide fruits to its people—those among them who believe in Allah and the Last Day.” He answered, “As for those who disbelieve, I will let them enjoy themselves for a little while, then I will condemn them to the torment of the Fire. What an evil destination!”](https://quranwbw.com/2/126)
+  
 ***
 
 (2:127)

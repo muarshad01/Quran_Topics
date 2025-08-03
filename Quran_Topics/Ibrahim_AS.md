@@ -2,6 +2,16 @@
 
 ***
 
+### [Hazrat Ibrahim AS K Kitny Bety Thy? | Mout Kay Waqat Kia Nasehat Ki? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=o3mX6_nP4rw)
+* Prophet Abraham had 7 sons:
+* From Sara (son Ishaq)
+* From Hajra (son Ismail)
+* From Ketura (5 other sons)
+* Ishaq had son Yaqub (Jacob)[Israeil (Abdullah); Isra means - servant; eil - Allah]. Jacob had 12 sons.
+* __Surah Al-Baqarah 2/132 (${\color{red}Die ~only ~as ~a ~Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
+
+***
+
 ### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
 * __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
 * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.

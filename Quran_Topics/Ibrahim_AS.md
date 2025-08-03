@@ -1,6 +1,13 @@
+### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
+* __Surah Al-Baqarah (${\color{red}Are you better knowing or Allah SWT is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
+
+***
+
 [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
 * Jail superintendent of baghdad
+
 ***
+
 
 #### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat](https://www.youtube.com/watch?v=Kv6J4owCWYM)
 * __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)

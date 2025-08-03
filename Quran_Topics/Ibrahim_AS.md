@@ -109,7 +109,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٣٢  وَوَصَّىٰ بِهَا إِبْرَاهِيمُ بَنِيهِ وَيَعْقُوبُ يَا بَنِيَّ إِنَّ اللَّهَ اصْطَفَىٰ لَكُمُ الدِّينَ فَلَا تَمُوتُنَّ إِلَّا وَأَنْتُمْ مُسْلِمُونَ
 
-* __Surah Al-Baqarah 2/132 (${\color{red} Die only as a Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
+* __Surah Al-Baqarah 2/132 (${\color{red}Die ~only ~as ~a ~Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
   
 ***
 

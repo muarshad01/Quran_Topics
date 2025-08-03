@@ -11,6 +11,12 @@
 
 ***
 
+### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
+* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
+* Vulture, Hen, Crow, Peacock 
+
+***
+
 [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
 * Jail superintendent of baghdad
 
@@ -18,12 +24,6 @@
 
 #### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat](https://www.youtube.com/watch?v=Kv6J4owCWYM)
 * __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)
-
-***
-
-### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
-* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
-* Vulture, Hen, Crow, Peacock 
 
 ***
 

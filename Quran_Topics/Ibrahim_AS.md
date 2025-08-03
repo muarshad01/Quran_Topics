@@ -66,7 +66,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 ***
 
 * His Father (Azar)
-* Wife Sara and Hajra
+* Wife Sara (Ishaq), Hajra (Ismail), and Keturah (5/6 other sons)
 * Was Thrown in Fire by Namrood
 * Was ordered to Leave Ismael and Hajra in Makkah
 * Was ordered to Slaughter his Son

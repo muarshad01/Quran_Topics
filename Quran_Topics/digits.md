@@ -248,7 +248,7 @@ https://quran.com/39/53
 
 ## Digit 59
 * Keys of Unseen
-* https://quranwbw.com/6/59
+* [Leafs fall with His knowlege]https://quranwbw.com/6/59
 
 ***
 
@@ -306,3 +306,4 @@ https://quran.com/39/53
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+

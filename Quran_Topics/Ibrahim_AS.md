@@ -1,3 +1,6 @@
+[Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
+* Jail superintendent of baghdad
+***
 
 #### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat](https://www.youtube.com/watch?v=Kv6J4owCWYM)
 * __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)

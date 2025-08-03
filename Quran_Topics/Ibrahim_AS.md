@@ -1,4 +1,4 @@
-### [Hazrat Ibrahim Ka Imtehan Ka Waqia](https://www.youtube.com/shorts/HS9EZ-NTqns)
+### [Hazrat Ibrahim Ka Imtehan Ka Waqia | Mufti Muneer Akhoon](https://www.youtube.com/shorts/HS9EZ-NTqns)
 * Allah SWT asked Angel that go and test Ibrahim AS, "He will sacrifice his everything on my name"
 * You're taking my Mehboob's name, read it once more. 
 * I'll even give my everything on His name even Myself
@@ -8,7 +8,7 @@
 
 ***
 
-### [Hazrat ibrahim ka waqia | khlil Ullah | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=WnjnwARuoXA)
+### [Hazrat ibrahim ka waqia | khlil Ullah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=WnjnwARuoXA)
 ```
 سُبْحانَ ذِي الْمُلْكِ وَالْمَلَكُوتِ سُبْحانَ ذِي الْعِزَّةِ وَالْعَظَمَةِ وَالْهَيْبَةِ وَالْقُدْرَةِ وَالْكِبْرِياءِ وَالْجَبَرُوْتِ سُبْحانَ الْمَلِكِ الْحَيِّ الَّذِيْ لا يَنامُ وَلا يَمُوتُسُبُّوْحٌ قُدُّوْسٌ رَبُّنا وَرَبُّ المْلائِكَةِ وَالرُّوْحِ اللَّهُمَّ أَجِرْنا مِنَ النّارِ يا مُجيرُ يا مُجيرُ يا مُجيرُ
 ```

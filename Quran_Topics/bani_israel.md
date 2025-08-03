@@ -258,6 +258,10 @@
 
 ***
 
+## [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+
+***
+
 ## [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
 * https://quranwbw.com/20/85-98
 

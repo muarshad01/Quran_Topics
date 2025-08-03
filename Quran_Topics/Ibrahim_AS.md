@@ -70,13 +70,17 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 124  And [mention, O Muhammad], when Abraham was tried by his Lord with commands and he fulfilled them. [Allah] said, “Indeed, I will make you a leader for the people.” [Abraham] said, “And of my descendants?” [Allah] said, “My covenant does not include the wrongdoers.
 
+* __Surah Al-Baqarah 2/124 (${Iman of Naas}$)__: [˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”](https://quranwbw.com/2/124)
+  * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them". It is a combination of the conjunction "fa" (ف), meaning "and", and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed", with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
+
 ***
 
 (2:125)
 
 ١٢٥  وَإِذْ جَعَلْنَا الْبَيْتَ مَثَابَةً لِلنَّاسِ وَأَمْنًا وَاتَّخِذُوا مِنْ مَقَامِ إِبْرَاهِيمَ مُصَلًّى ۖ وَعَهِدْنَا إِلَىٰ إِبْرَاهِيمَ وَإِسْمَاعِيلَ أَنْ طَهِّرَا بَيْتِيَ لِلطَّائِفِينَ وَالْعَاكِفِينَ وَالرُّكَّعِ السُّجُودِ
 
-125  And [mention] when We made the House a place of return for the people and [a place of] security. And take, [O believers], from the standing place of Abraham a place of prayer. And We charged Abraham and Ishmael, [saying], “Purify My House for those who perform Tawaf and those who are staying [there] for worship and those who bow and prostrate [in prayer]
+* __Surah Al-Baqarah 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
+  * The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering
 
 ***
 

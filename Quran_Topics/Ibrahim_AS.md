@@ -3,7 +3,7 @@
 ***
 
 ### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
-* __Surah Al-Baqarah 2/260 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
+* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
 * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
 * Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
 
@@ -61,6 +61,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 * Was Thrown in Fire by Namrood
 * Was ordered to Leave Ismael and Hajra in Makkah
 * Was ordered to Slaughter his Son
+* The `city of Ur, located in present-day southern Iraq`, is traditionally considered the birthplace of the biblical Abraham (Ibrahim in Arabic)
 
 ***
 
@@ -109,15 +110,15 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٣٢  وَوَصَّىٰ بِهَا إِبْرَاهِيمُ بَنِيهِ وَيَعْقُوبُ يَا بَنِيَّ إِنَّ اللَّهَ اصْطَفَىٰ لَكُمُ الدِّينَ فَلَا تَمُوتُنَّ إِلَّا وَأَنْتُمْ مُسْلِمُونَ
 
-132  And Abraham instructed his sons [to do the same] and [so did] Jacob, [saying], “O my sons, indeed Allah has chosen for you this religion, so do not die except while you are Muslims.
-
+* __Surah Al-Baqarah 2/132 (${\color{red} Die only as a Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
+  
 ***
 
 (2:133)
 
 ١٣٣  أَمْ كُنْتُمْ شُهَدَاءَ إِذْ حَضَرَ يَعْقُوبَ الْمَوْتُ إِذْ قَالَ لِبَنِيهِ مَا تَعْبُدُونَ مِنْ بَعْدِي قَالُوا نَعْبُدُ إِلَٰهَكَ وَإِلَٰهَ آبَائِكَ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ إِلَٰهًا وَاحِدًا وَنَحْنُ لَهُ مُسْلِمُونَ
 
-133  Or were you witnesses when death approached Jacob, when he said to his sons, “What will you worship after me?” They said, “We will worship your God and the God of your fathers, Abraham and Ishmael and Isaac – one God. And we are Muslims [in submission] to Him.
+* __Surah Al-Baqarah 2/133__: [Or did you witness when death came to Jacob? He asked his children, “Who will you worship after my passing?” They replied, “We will ˹continue to˺ worship your God, the God of your forefathers—Abraham, Ishmael, and Isaac—the One God. And to Him we ˹all˺ submit.”](https://quranwbw.com/2/133)
 
 ***
 
@@ -125,7 +126,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٣٥  وَقَالُوا كُونُوا هُودًا أَوْ نَصَارَىٰ تَهْتَدُوا ۗ قُلْ بَلْ مِلَّةَ إِبْرَاهِيمَ حَنِيفًا ۖ وَمَا كَانَ مِنَ الْمُشْرِكِينَ
 
-135  They say, “Be Jews or Christians [so] you will be guided.” Say, “Rather, [we follow] the religion of Abraham, inclining toward truth, and he was not of the polytheists.
+* __Surah Al-Baqarah 2/135__: [The Jews and Christians each say, “Follow our faith to be ˹rightly˺ guided.” Say, ˹O Prophet,˺ “No! We follow the faith of Abraham, the upright—who was not a polytheist.”](https://quranwbw.com/2/135)
 
 ***
 
@@ -133,15 +134,16 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٣٦  قُولُوا آمَنَّا بِاللَّهِ وَمَا أُنْزِلَ إِلَيْنَا وَمَا أُنْزِلَ إِلَىٰ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ وَيَعْقُوبَ وَالْأَسْبَاطِ وَمَا أُوتِيَ مُوسَىٰ وَعِيسَىٰ وَمَا أُوتِيَ النَّبِيُّونَ مِنْ رَبِّهِمْ لَا نُفَرِّقُ بَيْنَ أَحَدٍ مِنْهُمْ وَنَحْنُ لَهُ مُسْلِمُونَ
 
-136  Say, [O believers], “We have believed in Allah and what has been revealed to us and what has been revealed to Abraham and Ishmael and Isaac and Jacob and the Descendants and what was given to Moses and Jesus and what was given to the prophets from their Lord. We make no distinction between any of them, and we are Muslims [in submission] to Him.
-
+* __Surah Al-Baqarah 2/136__: [Say, ˹O believers,˺ “We believe in Allah and what has been revealed to us; and what was revealed to Abraham, Ishmael, Isaac, Jacob, and his descendants; and what was given to Moses, Jesus, and other prophets from their Lord. We make no distinction between any of them. And to Allah we all submit.”](https://quranwbw.com/2/136)
 ***
 
 (2:140)
 
 ١٤٠  أَمْ تَقُولُونَ إِنَّ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ وَيَعْقُوبَ وَالْأَسْبَاطَ كَانُوا هُودًا أَوْ نَصَارَىٰ ۗ قُلْ أَأَنْتُمْ أَعْلَمُ أَمِ اللَّهُ ۗ وَمَنْ أَظْلَمُ مِمَّنْ كَتَمَ شَهَادَةً عِنْدَهُ مِنَ اللَّهِ ۗ وَمَا اللَّهُ بِغَافِلٍ عَمَّا تَعْمَلُونَ
 
-140  Or do you say that Abraham and Ishmael and Isaac and Jacob and the Descendants were Jews or Christians? Say, “Are you more knowing or is Allah?” And who is more unjust than one who conceals a testimony he has from Allah? And Allah is not unaware of what you do.
+* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
+* Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
+* Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
 
 ***
 
@@ -149,7 +151,8 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٢٥٨  أَلَمْ تَرَ إِلَى الَّذِي حَاجَّ إِبْرَاهِيمَ فِي رَبِّهِ أَنْ آتَاهُ اللَّهُ الْمُلْكَ إِذْ قَالَ إِبْرَاهِيمُ رَبِّيَ الَّذِي يُحْيِي وَيُمِيتُ قَالَ أَنَا أُحْيِي وَأُمِيتُ ۖ قَالَ إِبْرَاهِيمُ فَإِنَّ اللَّهَ يَأْتِي بِالشَّمْسِ مِنَ الْمَشْرِقِ فَأْتِ بِهَا مِنَ الْمَغْرِبِ فَبُهِتَ الَّذِي كَفَرَ ۗ وَاللَّهُ لَا يَهْدِي الْقَوْمَ الظَّالِمِينَ
 
-258  Have you not considered the one who argued with Abraham about his Lord [merely] because Allah had given him kingship? When Abraham said, “My Lord is the one who gives life and causes death,” he said, “I give life and cause death.” Abraham said, “Indeed, Allah brings up the sun from the east, so bring it up from the west.” So the disbeliever was overwhelmed [by astonishment], and Allah does not guide the wrongdoing people.
+* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quranwbw.com/2/258)
+  * More broadly, the word بهت (bahata) is the root of "Fabuhita" and it signifies to be bewildered, stunned, or dumbfounded. 
 
 ***
 
@@ -157,8 +160,9 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٢٦٠  وَإِذْ قَالَ إِبْرَاهِيمُ رَبِّ أَرِنِي كَيْفَ تُحْيِي الْمَوْتَىٰ ۖ قَالَ أَوَلَمْ تُؤْمِنْ ۖ قَالَ بَلَىٰ وَلَٰكِنْ لِيَطْمَئِنَّ قَلْبِي ۖ قَالَ فَخُذْ أَرْبَعَةً مِنَ الطَّيْرِ فَصُرْهُنَّ إِلَيْكَ ثُمَّ اجْعَلْ عَلَىٰ كُلِّ جَبَلٍ مِنْهُنَّ جُزْءًا ثُمَّ ادْعُهُنَّ يَأْتِينَكَ سَعْيًا ۚ وَاعْلَمْ أَنَّ اللَّهَ عَزِيزٌ حَكِيمٌ
 
-260  And [mention] when Abraham said, “My Lord, show me how You give life to the dead.” [Allah] said, “Have you not believed?” He said, “Yes, but [I ask] only that my heart may be satisfied.” [Allah] said, “Take four birds and commit them to yourself. Then [after slaughtering them] put on each hill a portion of them; then call them – they will come [flying] to you in haste. And know that Allah is Exalted in Might and Wise.
-
+* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
+* Vulture, Hen, Crow, Peacock
+  
 ***
 
 (3:33)

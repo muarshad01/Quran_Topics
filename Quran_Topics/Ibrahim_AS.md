@@ -225,7 +225,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٥٤  أَمْ يَحْسُدُونَ النَّاسَ عَلَىٰ مَا آتَاهُمُ اللَّهُ مِنْ فَضْلِهِ ۖ فَقَدْ آتَيْنَا آلَ إِبْرَاهِيمَ الْكِتَابَ وَالْحِكْمَةَ وَآتَيْنَاهُمْ مُلْكًا عَظِيمًا
 
-54  Or do they envy people for what Allah has given them of His bounty? But we had already given the family of Abraham the Scripture and wisdom and conferred upon them a great kingdom.
+* __Surah An-Nisaa 4/54 (${Book, Wisdom, Great Authority}$)__: [Or do they envy the people for Allah’s bounties? Indeed, We have given the descendants of Abraham the Book and wisdom, along with great authority.](https://quranwbw.com/4/54)
 
 ***
 
@@ -233,7 +233,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٢٥  وَمَنْ أَحْسَنُ دِينًا مِمَّنْ أَسْلَمَ وَجْهَهُ لِلَّهِ وَهُوَ مُحْسِنٌ وَاتَّبَعَ مِلَّةَ إِبْرَاهِيمَ حَنِيفًا ۗ وَاتَّخَذَ اللَّهُ إِبْرَاهِيمَ خَلِيلًا
 
-125  And who is better in religion than one who submits himself to Allah while being a doer of good and follows the religion of Abraham, inclining toward truth? And Allah took Abraham as an intimate friend.
+* __Surah An-Nisaa 4/125 (${\color{red}Allah ~chose `Abraham ~as ~a ~close ~friend}$)__: [And who is better in faith than those who ˹fully˺ submit themselves to Allah, do good, and follow the Way of Abraham, the upright? Allah chose Abraham as a close friend.](https://quranwbw.com/4/125)
 
 ***
 
@@ -241,7 +241,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٦٣  إِنَّا أَوْحَيْنَا إِلَيْكَ كَمَا أَوْحَيْنَا إِلَىٰ نُوحٍ وَالنَّبِيِّينَ مِنْ بَعْدِهِ ۚ وَأَوْحَيْنَا إِلَىٰ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ وَيَعْقُوبَ وَالْأَسْبَاطِ وَعِيسَىٰ وَأَيُّوبَ وَيُونُسَ وَهَارُونَ وَسُلَيْمَانَ ۚ وَآتَيْنَا دَاوُودَ زَبُورًا
 
-163  Indeed, We have revealed to you, [O Muhammad], as We revealed to Noah (Nuh) and the prophets after him. And we revealed to Abraham, Ishmael, Isaac, Jacob, the Descendants, Jesus, Job, Jonah, Aaron, and Solomon, and to David We gave the book [of Psalms].
+* __Surah An-Nisaa 4/163 (${\color{red}And ~to ~David ~We ~gave ~the ~Psalms}$)__: [Indeed, We have sent revelation to you ˹O Prophet˺ as We sent revelation to Noah and the prophets after him. We also sent revelation to Abraham, Ishmael, Isaac, Jacob, and his descendants, ˹as well as˺ Jesus, Job, Jonah, Aaron, and Solomon. And to David We gave the Psalms.](https://quranwbw.com/4/163)
 
 ***
 
@@ -249,15 +249,15 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧٤  وَإِذْ قَالَ إِبْرَاهِيمُ لِأَبِيهِ آزَرَ أَتَتَّخِذُ أَصْنَامًا آلِهَةً ۖ إِنِّي أَرَاكَ وَقَوْمَكَ فِي ضَلَالٍ مُبِينٍ
 
-74  And [mention, O Muhammad], when Abraham said to his father Azar, “Do you take idols as deities? Indeed, I see you and your people to be in manifest error.
-
+* __Surah Al-Anaam 6/74 (${\color{red}Father: ~Azar}$)__: [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
+  
 ***
 
 (6:75)
 
 ٧٥  وَكَذَٰلِكَ نُرِي إِبْرَاهِيمَ مَلَكُوتَ السَّمَاوَاتِ وَالْأَرْضِ وَلِيَكُونَ مِنَ الْمُوقِنِينَ
 
-75  And thus did We show Abraham the realm of the heavens and the earth that he would be among the certain [in faith]
+* __Surah Al-Anaam 6/75 (${\color{red}We ~showed ~him... ~wonders...}$)__: [We also showed Abraham the wonders of the heavens and the earth, so he would be sure in faith.](https://quranwbw.com/6/75)
 
 ***
 
@@ -265,7 +265,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٨٣  وَتِلْكَ حُجَّتُنَا آتَيْنَاهَا إِبْرَاهِيمَ عَلَىٰ قَوْمِهِ ۚ نَرْفَعُ دَرَجَاتٍ مَنْ نَشَاءُ ۗ إِنَّ رَبَّكَ حَكِيمٌ عَلِيمٌ
 
-83  And that was Our [conclusive] argument which We gave Abraham against his people. We raise by degrees whom We will. Indeed, your Lord is Wise and Knowing.
+* __Surah Al-Anaam 6/83 (${\color{red}We ~elevate ~in ~Ranks...}$)__: [This was the argument We gave Abraham against his people. We elevate in rank whoever We please. Surely your Lord is All-Wise, All-Knowing.](https://quranwbw.com/6/83)
 
 ***
 
@@ -273,8 +273,8 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٦١  قُلْ إِنَّنِي هَدَانِي رَبِّي إِلَىٰ صِرَاطٍ مُسْتَقِيمٍ دِينًا قِيَمًا مِلَّةَ إِبْرَاهِيمَ حَنِيفًا ۚ وَمَا كَانَ مِنَ الْمُشْرِكِينَ
 
-161  Say, “Indeed, my Lord has guided me to a straight path – a correct religion – the way of Abraham, inclining toward truth. And he was not among those who associated others with Allah.
-
+* __Surah Al-Anaam 6/161__: [Say, ˹O Prophet,˺ “Surely my Lord has guided me to the Straight Path, a perfect way, the faith of Abraham, the upright, who was not one of the polytheists.”](https://quranwbw.com/6/161)
+  
 ***
 
 (9:70)

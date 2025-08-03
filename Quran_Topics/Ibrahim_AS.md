@@ -1,3 +1,13 @@
+### [Hazrat Ibrahim Ka Imtehan Ka Waqia](https://www.youtube.com/shorts/HS9EZ-NTqns)
+* Allah SWT asked Angel that go and test Ibrahim AS, "He will sacrifice his everything on my name"
+* You're taking my Mehboob's name, read it once more. 
+* I'll even give my everything on His name even Myself
+#### At death time
+* Kaun sa Aisa Mehboob ha jo Mehboob ki Jaan-Lay-Ga
+* Kaun sa Aisa Mehboo Ha Jo Mehboo Say Milna-Nahi Chachay-Gaa
+
+***
+
 ### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
 ### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
 ### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)

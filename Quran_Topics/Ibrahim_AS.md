@@ -8,6 +8,18 @@
 
 ***
 
+### [Hazrat ibrahim ka waqia | khlil Ullah | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=WnjnwARuoXA)
+```
+سُبْحانَ ذِي الْمُلْكِ وَالْمَلَكُوتِ سُبْحانَ ذِي الْعِزَّةِ وَالْعَظَمَةِ وَالْهَيْبَةِ وَالْقُدْرَةِ وَالْكِبْرِياءِ وَالْجَبَرُوْتِ سُبْحانَ الْمَلِكِ الْحَيِّ الَّذِيْ لا يَنامُ وَلا يَمُوتُسُبُّوْحٌ قُدُّوْسٌ رَبُّنا وَرَبُّ المْلائِكَةِ وَالرُّوْحِ اللَّهُمَّ أَجِرْنا مِنَ النّارِ يا مُجيرُ يا مُجيرُ يا مُجيرُ
+```
+
+```
+Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.  Exalted is the Master, the Living, the one who neither sleeps nor dies.  All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.  O Allāh, grant us refuge from the Hellfire.  O Granter of refuge, O Granter of refuge, O Granter of refuge.
+```
+
+***
+
+
 ### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
 ### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
 ### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)

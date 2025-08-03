@@ -3,6 +3,7 @@
 ***
 
 ### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
+* https://quranwbw.com/6/59
 
 *** 
 

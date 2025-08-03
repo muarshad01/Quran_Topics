@@ -1,3 +1,10 @@
+
+### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
+* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
+* Vulture, Hen, Crow, Peacock 
+
+***
+
 ### [Hazrat Ibrahim Ka Imtehan Ka Waqia | Mufti Muneer Akhoon](https://www.youtube.com/shorts/HS9EZ-NTqns)
 * Allah SWT asked Angel that go and test Ibrahim AS, "He will sacrifice his everything on my name"
 * You're taking my Mehboob's name, read it once more. 

@@ -32,3 +32,6 @@
 9. `Raab Talah has gifted us that Amr` and we run this world through that. Subhan Allah!!
 
 ***
+
+
+* __Surah Hud 11/76__: [˹The angels said,˺ “O Abraham! Plead no more! Your Lord’s decree has already come, and they will certainly be afflicted with a punishment that cannot be averted!”](https://quranwbw.com/11/76)

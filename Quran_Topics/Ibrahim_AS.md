@@ -4,9 +4,9 @@
 
 ***
 
-* Wife Sara and Hajra
 * His Father (Azar)
-* Was Thrown in Fire
+* Wife Sara and Hajra
+* Was Thrown in Fire by Namrood
 * Was ordered to Leave Ismael and Hajra in Makkah
 * Was ordered to Slaughter his Son
 

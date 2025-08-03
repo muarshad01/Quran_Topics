@@ -16,6 +16,8 @@
 *  8 -  [Ismail (Ishmael)](https://quranwbw.com/21/85)
 *  9 -  [Ishaq (Isaac)](https://quranwbw.com/21/72)
 * 10 -  [Yaqub (Jacob) [Israel]](https://quranwbw.com/21/72)
+* __Surah Al-Baqarah 2/133__: [Or did you witness when death came to Jacob? He asked his children, “Who will you worship after my passing?” They replied, “We will ˹continue to˺ worship your God, the God of your forefathers—Abraham, Ishmael, and Isaac—the One God. And to Him we ˹all˺ submit.”](https://quranwbw.com/2/133)
+
 * 11 -  Yusuf (Joseph)
 * 12 -  Shu’aib (Jethro)
       * __Surah Hud 11/87 (${\color{red}Shuabi ~AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quranwbw.com/11/87)

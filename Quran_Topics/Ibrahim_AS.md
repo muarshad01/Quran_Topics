@@ -14,7 +14,7 @@
 ```
 
 ```
-* Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.  Exalted is the Master, the Living, the one who neither sleeps nor dies.  All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.  O Allāh, grant us refuge from the Hellfire.  O Granter of refuge, O Granter of refuge, O Granter of refuge.
+Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.  Exalted is the Master, the Living, the one who neither sleeps nor dies.  All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.  O Allāh, grant us refuge from the Hellfire.  O Granter of refuge, O Granter of refuge, O Granter of refuge.
 ```
 
 ***

@@ -1,4 +1,3 @@
-
 ### [Hospitality of Hazrat Ibrahim](https://www.youtube.com/shorts/lhXScYPa4TY)
 
 ***

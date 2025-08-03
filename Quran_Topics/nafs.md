@@ -38,3 +38,5 @@
 * __Surah Al-Muddaththir 74/38-48__: [Every soul will be detained for what it has done,](https://quran.com/74/38-48)
 
 ***
+
+https://quranwbw.com/2/130

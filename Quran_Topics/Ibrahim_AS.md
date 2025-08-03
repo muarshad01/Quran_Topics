@@ -281,7 +281,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧٠  أَلَمْ يَأْتِهِمْ نَبَأُ الَّذِينَ مِنْ قَبْلِهِمْ قَوْمِ نُوحٍ وَعَادٍ وَثَمُودَ وَقَوْمِ إِبْرَاهِيمَ وَأَصْحَابِ مَدْيَنَ وَالْمُؤْتَفِكَاتِ ۚ أَتَتْهُمْ رُسُلُهُمْ بِالْبَيِّنَاتِ ۖ فَمَا كَانَ اللَّهُ لِيَظْلِمَهُمْ وَلَٰكِنْ كَانُوا أَنْفُسَهُمْ يَظْلِمُونَ
 
-70  Has there not reached them the news of those before them – the people of Noah (Nuh) and [the tribes of] ‘Aad and Thamud and the people of Abraham and the companions of Madyan and the towns overturned? Their messengers came to them with clear proofs. And Allah would never have wronged them, but they were wronging themselves
+* __Surah At-Tawba 9/70__: [Have they not received the stories of those ˹destroyed˺ before them: the people of Noah, ’Âd, and Thamûd, the people of Abraham, the residents of Midian, and the overturned cities ˹of Lot˺? Their messengers came to them with clear proofs. Allah would have never wronged them, but it was they who wronged themselves.](https://quranwbw.com/9/70)
 
 ***
 
@@ -289,7 +289,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١١٤  وَمَا كَانَ اسْتِغْفَارُ إِبْرَاهِيمَ لِأَبِيهِ إِلَّا عَنْ مَوْعِدَةٍ وَعَدَهَا إِيَّاهُ فَلَمَّا تَبَيَّنَ لَهُ أَنَّهُ عَدُوٌّ لِلَّهِ تَبَرَّأَ مِنْهُ ۚ إِنَّ إِبْرَاهِيمَ لَأَوَّاهٌ حَلِيمٌ
 
-114  And the request of forgiveness of Abraham for his father was only because of a promise he had made to him. But when it became apparent to Abraham that his father was an enemy to Allah, he disassociated himself from him. Indeed was Abraham compassionate and patient.
+* __Surah At-Tawba 9/114__: [As for Abraham’s prayer for his father’s forgiveness, it was only in fulfilment of a promise he had made to him. But when it became clear to Abraham that his father was an enemy of Allah, he broke ties with him.1 Abraham was truly tender-hearted, forbearing.](https://quranwbw.com/9/114)
 
 ***
 
@@ -297,7 +297,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٦٩  وَلَقَدْ جَاءَتْ رُسُلُنَا إِبْرَاهِيمَ بِالْبُشْرَىٰ قَالُوا سَلَامًا ۖ قَالَ سَلَامٌ ۖ فَمَا لَبِثَ أَنْ جَاءَ بِعِجْلٍ حَنِيذٍ
 
-69  And certainly did Our messengers come to Abraham with good tidings; they said, “Peace.” He said, “Peace,” and did not delay in bringing [them] a roasted calf.
+* __Surah Hud 11/69__: [And surely Our messenger-angels came to Abraham with good news ˹of a son˺. They greeted ˹him with˺, “Peace!” And he replied, “Peace ˹be upon you˺!” Then it was not long before he brought ˹them˺ a ˹fat,˺ roasted calf.](https://quranwbw.com/11/69)
 
 ***
 
@@ -305,7 +305,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧٤  فَلَمَّا ذَهَبَ عَنْ إِبْرَاهِيمَ الرَّوْعُ وَجَاءَتْهُ الْبُشْرَىٰ يُجَادِلُنَا فِي قَوْمِ لُوطٍ
 
-74  And when the fright had left Abraham and the good tidings had reached him, he began to argue with Us concerning the people of Lot.
+* __Surah Hud 11/74__: [Then after the fear had left Abraham, and the good news had reached him, he began to plead with Us for the people of Lot.](https://quranwbw.com/11/74)
 
 ***
 
@@ -313,7 +313,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧٥  إِنَّ إِبْرَاهِيمَ لَحَلِيمٌ أَوَّاهٌ مُنِيبٌ
 
-75  Indeed, Abraham was forbearing, grieving and [frequently] returning [to Allah].
+* __Surah Hud 11/75__: [Truly, Abraham was forbearing, tender-hearted, and ever turning ˹to his Lord˺.](https://quranwbw.com/11/75)
 
 ***
 
@@ -321,7 +321,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧٦  يَا إِبْرَاهِيمُ أَعْرِضْ عَنْ هَٰذَا ۖ إِنَّهُ قَدْ جَاءَ أَمْرُ رَبِّكَ ۖ وَإِنَّهُمْ آتِيهِمْ عَذَابٌ غَيْرُ مَرْدُودٍ
 
-76  [The angels said], “O Abraham, give up this [plea]. Indeed, the command of your Lord has come, and indeed, there will reach them a punishment that cannot be repelled.”
+* __Surah Hud 11/76__: [˹The angels said,˺ “O Abraham! Plead no more! Your Lord’s decree has already come, and they will certainly be afflicted with a punishment that cannot be averted!”](https://quranwbw.com/11/76)
 
 ***
 

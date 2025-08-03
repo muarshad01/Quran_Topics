@@ -16,7 +16,6 @@
 
 ***
 
-
 #### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat](https://www.youtube.com/watch?v=Kv6J4owCWYM)
 * __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)
 
@@ -169,7 +168,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٣٣  إِنَّ اللَّهَ اصْطَفَىٰ آدَمَ وَنُوحًا وَآلَ إِبْرَاهِيمَ وَآلَ عِمْرَانَ عَلَى الْعَالَمِينَ
 
-33  Indeed, Allah chose Adam and Noah (Nuh) and the family of Abraham and the family of ‘Imran over the worlds –
+* __Surah Ale-i-Imran 3/33 (${\color{red}Allah SWT Chose: Adam, Noah, Abraham..., Imran...}$)__: [Indeed, Allah chose Adam, Noah, the family of Abraham, and the family of ’Imrân above all people ˹of their time˺.](https://quranwbw.com/3/33)
 
 ***
 
@@ -177,7 +176,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٦٥  يَا أَهْلَ الْكِتَابِ لِمَ تُحَاجُّونَ فِي إِبْرَاهِيمَ وَمَا أُنْزِلَتِ التَّوْرَاةُ وَالْإِنْجِيلُ إِلَّا مِنْ بَعْدِهِ ۚ أَفَلَا تَعْقِلُونَ
 
-65  O People of the Scripture, why do you argue about Abraham while the Torah and the Gospel were not revealed until after him? Then will you not reason?
+* __Surah Ale-i-Imran 3/65__: [O People of the Book! Why do you argue about Abraham, while the Torah and the Gospel were not revealed until long after him? Do you not understand?](https://quranwbw.com/3/65)
 
 ***
 
@@ -185,7 +184,8 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٦٧  مَا كَانَ إِبْرَاهِيمُ يَهُودِيًّا وَلَا نَصْرَانِيًّا وَلَٰكِنْ كَانَ حَنِيفًا مُسْلِمًا وَمَا كَانَ مِنَ الْمُشْرِكِينَ
 
-67  Abraham was neither a Jew nor a Christian, but he was one inclining toward truth, a Muslim [submitting to Allah]. And he was not of the polytheists.
+* __Surah Ale-i-Imran 3/67__: [Abraham was neither a Jew nor a Christian; he submitted in all uprightness1 and was not a polytheist.](https://quranwbw.com/3/67)
+
 
 ***
 
@@ -193,7 +193,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٦٨  إِنَّ أَوْلَى النَّاسِ بِإِبْرَاهِيمَ لَلَّذِينَ اتَّبَعُوهُ وَهَٰذَا النَّبِيُّ وَالَّذِينَ آمَنُوا ۗ وَاللَّهُ وَلِيُّ الْمُؤْمِنِينَ
 
-68  Indeed, the most worthy of Abraham among the people are those who followed him [in submission to Allah] and this prophet, and those who believe [in his message]. And Allah is the ally of the believers.
+* __Surah Ale-i-Imran 3/68__: [Indeed, those who have the best claim to Abraham are his followers, this Prophet, and the believers. And Allah is the Guardian of those who believe.](https://quranwbw.com/3/68)
 
 ***
 
@@ -201,15 +201,15 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٨٤  قُلْ آمَنَّا بِاللَّهِ وَمَا أُنْزِلَ عَلَيْنَا وَمَا أُنْزِلَ عَلَىٰ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ وَيَعْقُوبَ وَالْأَسْبَاطِ وَمَا أُوتِيَ مُوسَىٰ وَعِيسَىٰ وَالنَّبِيُّونَ مِنْ رَبِّهِمْ لَا نُفَرِّقُ بَيْنَ أَحَدٍ مِنْهُمْ وَنَحْنُ لَهُ مُسْلِمُونَ
 
-84  Say, “We have believed in Allah and in what was revealed to us and what was revealed to Abraham, Ishmael, Isaac, Jacob, and the Descendants, and in what was given to Moses and Jesus and to the prophets from their Lord. We make no distinction between any of them, and we are Muslims [submitting] to Him.
-
+* __Surah Ale-i-Imran 3/84__: [Say, ˹O Prophet,˺ “We believe in Allah and what has been revealed to us and what was revealed to Abraham, Ishmael, Isaac, Jacob, and his descendants; and what was given to Moses, Jesus, and other prophets from their Lord—we make no distinction between any of them, and to Him we ˹fully˺ submit.”](https://quranwbw.com/3/84)
+ 
 ***
 
 (3:95)
 
 ٩٥  قُلْ صَدَقَ اللَّهُ ۗ فَاتَّبِعُوا مِلَّةَ إِبْرَاهِيمَ حَنِيفًا وَمَا كَانَ مِنَ الْمُشْرِكِينَ
 
-95  Say, “Allah has told the truth. So follow the religion of Abraham, inclining toward truth; and he was not of the polytheists
+* __Surah Ale-i-Imran 3/95__: [Say, ˹O Prophet,˺ “Allah has declared the truth. So follow the Way of Abraham, the upright—who was not a polytheist.”](https://quranwbw.com/3/95)
 
 ***
 
@@ -217,7 +217,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٩٧  فِيهِ آيَاتٌ بَيِّنَاتٌ مَقَامُ إِبْرَاهِيمَ ۖ وَمَنْ دَخَلَهُ كَانَ آمِنًا ۗ وَلِلَّهِ عَلَى النَّاسِ حِجُّ الْبَيْتِ مَنِ اسْتَطَاعَ إِلَيْهِ سَبِيلًا ۚ وَمَنْ كَفَرَ فَإِنَّ اللَّهَ غَنِيٌّ عَنِ الْعَالَمِينَ
 
-97  In it are clear signs [such as] the standing place of Abraham. And whoever enters it shall be safe. And [due] to Allah from the people is a pilgrimage to the House – for whoever is able to find thereto a way. But whoever disbelieves – then indeed, Allah is free from need of the worlds.
+* __Surah Ale-i-Imran 3/97__: [In it are clear signs and the standing-place of Abraham. Whoever enters it should be safe. Pilgrimage to this House is an obligation by Allah upon whoever is able among the people.1 And whoever disbelieves, then surely Allah is not in need of ˹any of His˺ creation.](https://quranwbw.com/3/97)
 
 ***
 

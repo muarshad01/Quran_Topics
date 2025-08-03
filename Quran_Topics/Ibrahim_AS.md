@@ -93,7 +93,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٢٧  وَإِذْ يَرْفَعُ إِبْرَاهِيمُ الْقَوَاعِدَ مِنَ الْبَيْتِ وَإِسْمَاعِيلُ رَبَّنَا تَقَبَّلْ مِنَّا ۖ إِنَّكَ أَنْتَ السَّمِيعُ الْعَلِيمُ
 
-127  And [mention] when Abraham was raising the foundations of the House and [with him] Ishmael, [saying], “Our Lord, accept [this] from us. Indeed You are the Hearing, the Knowing.
+* __Surah Al-Baqarah 2/127__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.] (https://quranwbw.com/2/127)
 
 ***
 
@@ -101,7 +101,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٣٠  وَمَنْ يَرْغَبُ عَنْ مِلَّةِ إِبْرَاهِيمَ إِلَّا مَنْ سَفِهَ نَفْسَهُ ۚ وَلَقَدِ اصْطَفَيْنَاهُ فِي الدُّنْيَا ۖ وَإِنَّهُ فِي الْآخِرَةِ لَمِنَ الصَّالِحِينَ
 
-130  And who would be averse to the religion of Abraham except one who makes a fool of himself. And We had chosen him in this world, and indeed he, in the Hereafter, will be among the righteous.
+* __Surah Al-Baqarah 2/130 (${\color{red}We ~certainly ~chose ~him ~in ~this ~life}$)__: [And who would reject the faith of Abraham except a fool! We certainly chose him in this life, and in the Hereafter he will surely be among the righteous.](https://quranwbw.com/2/130)
 
 ***
 

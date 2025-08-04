@@ -1,14 +1,18 @@
+#### Abrahamm Father 
+* __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
 
-#### Abrahamm Father (Azar)
-* __Surah Al-Anaam 6/74__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
-#### Wife Sara (Ishaq), Hajra (Ismail), and Keturah (5/6 other sons)
+#### Abraham
+* Three Wives: Sara (Ishaq), Hajra (Ismail), and Keturah (5/6 other sons)
+
 #### Argument with King Namrood
 * __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quranwbw.com/2/258)
+
 #### Was ordered to Leave Ismael-and-Hajra in Makkah
 * While the Quran does not explicitly detail every aspect of this event, several verses allude to it and its significance:
 * __Surah Al-Baqarah 2/127-129__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.](https://quranwbw.com/2/127-129)
 * __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quranwbw.com/14/37)
-#### [Was ordered to Slaughter his Son in Dream]
+
+#### Was ordered to Slaughter his Son in Dream
 * [(101) So We gave him good news of a forbearing son...](https://quranwbw.com/37/101-113)
 
 #### Birth Place of Ibrahim

@@ -2,6 +2,10 @@
 
 ***
 
+### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna ChahiyeH? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
+
+***
+
 ### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
 * https://quranwbw.com/6/59
 

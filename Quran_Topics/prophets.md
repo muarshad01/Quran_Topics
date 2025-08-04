@@ -13,6 +13,7 @@
 *  5 -  Saleh (Methusaleh)
 *  6 -  Lut (Lot): https://quranwbw.com/21/74
 *  7 -  [__Ibrahim (Abraham)__](https://quranwbw.com/21/69): Surah 14/52
+*  * __Surah 38 (men of strength and insight.)__: [And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.](https://quranwbw.com/38/45)
 *  8 -  [Ismail (Ishmael)](https://quranwbw.com/21/85)
 *  9 -  [Ishaq (Isaac)](https://quranwbw.com/21/72)
 * 10 -  [Yaqub (Jacob) [Israel]](https://quranwbw.com/21/72)

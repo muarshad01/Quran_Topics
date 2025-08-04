@@ -3,6 +3,11 @@
 
 ***
 
+#### CovENANT of Prophets???
+* __Surah 33/7__: [And ˹remember˺ when We took a covenant from the prophets, as well as from you ˹O Prophet˺, and from Noah, Abraham, Moses, and Jesus, son of Mary. We did take a solemn covenant from ˹all of˺ them](https://quranwbw.com/33/7)
+
+***
+
 #### CovENANT of Bani Israel
 * __Surah Al-Baqarah 2/83__: [And ˹remember˺ when We took a COVENANT from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.]()
 

@@ -57,11 +57,13 @@
 
 ***
 
-* __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110/3)
+* __Surah An Noor 24/41 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the birds as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
+
+* __Surah Al-Waqiah 56/96 (Fasabbih (فَسَبِّحْ))__: [So glorify the Name of your Lord, the Greatest.](https://quran.com/56/96)
+
+* * __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110/3)
+
 * __Surah Al-Haaqqa [The Reality] 69/52 (Fasabbih (فَسَبِّحْ))__: [So glorify the Name of your Lord, the Greatest.](https://quranwbw.com/69/52)
-
-* __Surah An Noor 24/41__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the birds as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
-
 
 ***
 

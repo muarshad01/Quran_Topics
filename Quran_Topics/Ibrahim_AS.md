@@ -443,9 +443,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٢٦  وَإِذْ بَوَّأْنَا لِإِبْرَاهِيمَ مَكَانَ الْبَيْتِ أَنْ لَا تُشْرِكْ بِي شَيْئًا وَطَهِّرْ بَيْتِيَ لِلطَّائِفِينَ وَالْقَائِمِينَ وَالرُّكَّعِ السُّجُودِ
 
-26  And [mention, O Muhammad], when We designated for Abraham the site of the House, [saying], “Do not associate anything with Me and purify My House for those who perform Tawaf and those who stand [in prayer] and those who bow and prostrate.
-
-* __Surah Al-Hajj 22/26__: [](https://quranwbw.com/22/26)
+* __Surah Al-Hajj 22/26__: [And ˹remember˺ when We assigned to Abraham the site of the House, ˹saying,˺ “Do not associate anything with Me ˹in worship˺ and purify My House for those who circle ˹the Ka’bah˺, stand ˹in prayer˺, and bow and prostrate themselves.](https://quranwbw.com/22/26)
   
 ***
 
@@ -453,9 +451,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٤٣  وَقَوْمُ إِبْرَاهِيمَ وَقَوْمُ لُوطٍ
 
-43  And the people of Abraham and the people of Lot
-
-* __Surah Al-Hajj 22/43__: [](https://quranwbw.com/22/43)
+* __Surah Al-Hajj 22/43__: [the people of Abraham, the people of Lot,](https://quranwbw.com/22/43)
 
 ***
 
@@ -463,9 +459,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧٨  وَجَاهِدُوا فِي اللَّهِ حَقَّ جِهَادِهِ ۚ هُوَ اجْتَبَاكُمْ وَمَا جَعَلَ عَلَيْكُمْ فِي الدِّينِ مِنْ حَرَجٍ ۚ مِلَّةَ أَبِيكُمْ إِبْرَاهِيمَ ۚ هُوَ سَمَّاكُمُ الْمُسْلِمِينَ مِنْ قَبْلُ وَفِي هَٰذَا لِيَكُونَ الرَّسُولُ شَهِيدًا عَلَيْكُمْ وَتَكُونُوا شُهَدَاءَ عَلَى النَّاسِ ۚ فَأَقِيمُوا الصَّلَاةَ وَآتُوا الزَّكَاةَ وَاعْتَصِمُوا بِاللَّهِ هُوَ مَوْلَاكُمْ ۖ فَنِعْمَ الْمَوْلَىٰ وَنِعْمَ النَّصِيرُ
 
-78  And strive for Allah with the striving due to Him. He has chosen you and has not placed upon you in the religion any difficulty. [It is] the religion of your father, Abraham. Allah named you “Muslims” before [in former scriptures] and in this [revelation] that the Messenger may be a witness over you and you may be witnesses over the people. So establish prayer and give zakah and hold fast to Allah. He is your protector; and excellent is the protector, and excellent is the helper.
-
-* __Surah Al-Hajj 22/78__: [](https://quranwbw.com/22/78)
+* __Surah Al-Hajj 22/78 (${\color{red}What ~an ~excellent ~Guardian, ~and ~what ~an ~excellent ~Helper!}$)__: [Strive for ˹the cause of˺ Allah in the way He deserves, for ˹it is˺ He ˹Who˺ has chosen you, and laid upon you no hardship in the religion—the way of your forefather Abraham. ˹It is Allah˺ Who named you ‘the ones who submit’1 ˹in the˺ earlier ˹Scriptures˺ and in this ˹Quran˺, so that the Messenger may be a witness over you, and that you may be witnesses over humanity. So establish prayer, pay alms-tax, and hold fast to Allah. He ˹alone˺ is your Guardian. What an excellent Guardian, and what an excellent Helper!](https://quranwbw.com/22/78)
 
 
 ***
@@ -474,9 +468,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٦٩  وَاتْلُ عَلَيْهِمْ نَبَأَ إِبْرَاهِيمَ
 
-69  And recite to them the news of Abraham
-
-* __Surah Shuaraa 26/69__: [](https://quranwbw.com/26/69)
+* __Surah Shuaraa (The Poets) 26/69__: [Relate to them ˹O Prophet˺ the story of Abraham,](https://quranwbw.com/26/69)
 
 ***
 
@@ -484,9 +476,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٦  وَإِبْرَاهِيمَ إِذْ قَالَ لِقَوْمِهِ اعْبُدُوا اللَّهَ وَاتَّقُوهُ ۖ ذَٰلِكُمْ خَيْرٌ لَكُمْ إِنْ كُنْتُمْ تَعْلَمُونَ
 
-16  And [We sent] Abraham, when he said to his people, “Worship Allah and fear Him. That is best for you, if you should know.
-
-* __Surah Shuaraa 26/16__: [](https://quranwbw.com/26/16)
+* __Surah Shuaraa (The Poets) 26/16__: [Go to Pharaoh and say, ‘We are messengers from the Lord of all worlds,](https://quranwbw.com/26/16)
 
 
 ***
@@ -495,10 +485,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٣١  وَلَمَّا جَاءَتْ رُسُلُنَا إِبْرَاهِيمَ بِالْبُشْرَىٰ قَالُوا إِنَّا مُهْلِكُو أَهْلِ هَٰذِهِ الْقَرْيَةِ ۖ إِنَّ أَهْلَهَا كَانُوا ظَالِمِينَ
 
-31  And when Our messengers came to Abraham with the good tidings, they said, “Indeed, we will destroy the people of that Lot’s city. Indeed, its people have been wrongdoers.
-
-* __Surah 29/69__: [](https://quranwbw.com/29/31)
-
+* __Surah Al-Ankboot 29/31__: [When Our messenger-angels came to Abraham with the good news ˹of the birth of Isaac˺, they said, “We are going to destroy the people of this city ˹of Sodom˺, for its people have persisted in wrongdoing.”](https://quranwbw.com/29/31)
 
 ***
 
@@ -506,9 +493,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٧  وَإِذْ أَخَذْنَا مِنَ النَّبِيِّينَ مِيثَاقَهُمْ وَمِنْكَ وَمِنْ نُوحٍ وَإِبْرَاهِيمَ وَمُوسَىٰ وَعِيسَى ابْنِ مَرْيَمَ ۖ وَأَخَذْنَا مِنْهُمْ مِيثَاقًا غَلِيظًا
 
-7  And [mention, O Muhammad], when We took from the prophets their covenant and from you and from Noah (Nuh) and Abraham and Moses and Jesus, the son of Mary (Maryam); and We took from them a solemn covenant.
-
-* __Surah 33__: [](https://quranwbw.com/33/37)
+* __Surah As-Saaffaat (Those Drawn up in Ranks) 33/7__: [And ˹remember˺ when We took a covenant from the prophets, as well as from you ˹O Prophet˺, and from Noah, Abraham, Moses, and Jesus, son of Mary. We did take a solemn covenant from ˹all of˺ them](https://quranwbw.com/33/7)
 
 ***
 
@@ -516,9 +501,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٨٣  وَإِنَّ مِنْ شِيعَتِهِ لَإِبْرَاهِيمَ
 
-83  And indeed, among his kind was Abraham
-
-* __Surah 37__: [](https://quranwbw.com/37/83)
+* __Surah As-Saaffaat (Those Drawn up in Ranks) 37/83__: [And indeed, one of those who followed his way was Abraham.](https://quranwbw.com/37/83)
 
 ***
 
@@ -526,18 +509,15 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٠٤  وَنَادَيْنَاهُ أَنْ يَا إِبْرَاهِيمُ
 
-104  We called to him, “O Abraham,
+* __Surah As-Saaffaat (Those Drawn up in Ranks) 37/104__: [We called out to him, “O Abraham!](https://quranwbw.com/37/104)
 
-* __Surah 37__: [](https://quranwbw.com/37/104)
 ***
 
 (37:109)
 
 ١٠٩  سَلَامٌ عَلَىٰ إِبْرَاهِيمَ
 
-109  “Peace upon Abraham.”
-
-* __Surah 37__: [](https://quranwbw.com/37/109)
+* __Surah As-Saaffaat (Those Drawn up in Ranks) 37/109__: [“Peace be upon Abraham.”](https://quranwbw.com/37/109)
 
 ***
 
@@ -545,9 +525,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٤٥  وَاذْكُرْ عِبَادَنَا إِبْرَاهِيمَ وَإِسْحَاقَ وَيَعْقُوبَ أُولِي الْأَيْدِي وَالْأَبْصَارِ
 
-45  And remember Our servants, Abraham, Isaac and Jacob – those of strength and [religious] vision.
-
-* __Surah 38__: [](https://quranwbw.com/38/45)
+* __Surah Al-Jaathiya (Crouching) 38/45__: [And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.](https://quranwbw.com/38/45)
 
 ***
 
@@ -555,10 +533,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٣  شَرَعَ لَكُمْ مِنَ الدِّينِ مَا وَصَّىٰ بِهِ نُوحًا وَالَّذِي أَوْحَيْنَا إِلَيْكَ وَمَا وَصَّيْنَا بِهِ إِبْرَاهِيمَ وَمُوسَىٰ وَعِيسَىٰ ۖ أَنْ أَقِيمُوا الدِّينَ وَلَا تَتَفَرَّقُوا فِيهِ ۚ كَبُرَ عَلَى الْمُشْرِكِينَ مَا تَدْعُوهُمْ إِلَيْهِ ۚ اللَّهُ يَجْتَبِي إِلَيْهِ مَنْ يَشَاءُ وَيَهْدِي إِلَيْهِ مَنْ يُنِيبُ
 
-13  He has ordained for you of religion what He enjoined upon Noah (Nuh) and that which We have revealed to you, [O Muhammad], and what We enjoined upon Abraham and Moses and Jesus – to establish the religion and not be divided therein. Difficult for those who associate others with Allah is that to which you invite them. Allah chooses for Himself whom He wills and guides to Himself whoever turns back [to Him].
-
-
-* __Surah 42__: [](https://quranwbw.com/42/13)
+* __Surah Ash-Shura (Consultation) 42/13__: [He has ordained for you ˹believers˺ the Way which He decreed for Noah, and what We have revealed to you ˹O Prophet˺ and what We decreed for Abraham, Moses, and Jesus,1 ˹commanding:˺ “Uphold the faith, and make no divisions in it.” What you call the polytheists to is unbearable for them. Allah chooses for Himself whoever He wills, and guides to Himself whoever turns ˹to Him˺.](https://quranwbw.com/42/13)
 
 ***
 
@@ -566,9 +541,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٢٦  وَإِذْ قَالَ إِبْرَاهِيمُ لِأَبِيهِ وَقَوْمِهِ إِنَّنِي بَرَاءٌ مِمَّا تَعْبُدُونَ
 
-26  And [mention, O Muhammad], when Abraham said to his father and his people, “Indeed, I am disassociated from that which you worship
-
-* __Surah 43__: [](https://quranwbw.com/43/26)
+* __Surah Az-Zukhruf (Ornaments of Gold) 43/26__: [˹Remember, O  Prophet˺ when Abraham declared to his father and his people, “I am totally free of whatever ˹gods˺ you worship,](https://quranwbw.com/43/26)
 
 ***
 
@@ -576,9 +549,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٢٤  هَلْ أَتَاكَ حَدِيثُ ضَيْفِ إِبْرَاهِيمَ الْمُكْرَمِينَ
 
-24  Has there reached you the story of the honored guests of Abraham?
-
-* __Surah 51__: [](https://quranwbw.com/51/24)
+* __Surah Adh-Dhaariyat (The Winnowing Winds) 51/24__: [Has the story of Abraham’s honoured guests reached you ˹O Prophet˺?](https://quranwbw.com/51/24)
 
 ***
 
@@ -586,9 +557,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٣٧  وَإِبْرَاهِيمَ الَّذِي وَفَّىٰ
 
-37  And [of] Abraham, who fulfilled [his obligations
-
-* __Surah 53__: [](https://quranwbw.com/53/37)
+* __Surah An-Najm 53/37__: [and ˹that of˺ Abraham, who ˹perfectly˺ fulfilled ˹his covenant˺?](https://quranwbw.com/53/37)
 
 ***
 
@@ -596,19 +565,15 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٢٦  وَلَقَدْ أَرْسَلْنَا نُوحًا وَإِبْرَاهِيمَ وَجَعَلْنَا فِي ذُرِّيَّتِهِمَا النُّبُوَّةَ وَالْكِتَابَ ۖ فَمِنْهُمْ مُهْتَدٍ ۖ وَكَثِيرٌ مِنْهُمْ فَاسِقُونَ
 
-26  And We have already sent Noah (Nuh) and Abraham and placed in their descendants prophethood and scripture; and among them is he who is guided, but many of them are defiantly disobedient.
-
-* __Surah 57__: [](https://quranwbw.com/57/26)
+* __Surah Al-Hadid 57/26__: [And indeed, We sent Noah and Abraham and reserved prophethood and revelation for their descendants. Some of them are ˹rightly˺ guided, while most are rebellious.](https://quranwbw.com/57/26)
 
 ***
 
-${\color{red}(60:4)}$
+(60:4)
 
 ٤  قَدْ كَانَتْ لَكُمْ أُسْوَةٌ حَسَنَةٌ فِي إِبْرَاهِيمَ وَالَّذِينَ مَعَهُ إِذْ قَالُوا لِقَوْمِهِمْ إِنَّا بُرَآءُ مِنْكُمْ وَمِمَّا تَعْبُدُونَ مِنْ دُونِ اللَّهِ كَفَرْنَا بِكُمْ وَبَدَا بَيْنَنَا وَبَيْنَكُمُ الْعَدَاوَةُ وَالْبَغْضَاءُ أَبَدًا حَتَّىٰ تُؤْمِنُوا بِاللَّهِ وَحْدَهُ إِلَّا قَوْلَ إِبْرَاهِيمَ لِأَبِيهِ لَأَسْتَغْفِرَنَّ لَكَ وَمَا أَمْلِكُ لَكَ مِنَ اللَّهِ مِنْ شَيْءٍ ۖ رَبَّنَا عَلَيْكَ تَوَكَّلْنَا وَإِلَيْكَ أَنَبْنَا وَإِلَيْكَ الْمَصِيرُ
 
-4  There has already been for you an excellent pattern in Abraham and those with him, when they said to their people, “Indeed, we are disassociated from you and from whatever you worship other than Allah. We have denied you, and there has appeared between us and you animosity and hatred forever until you believe in Allah alone” except for the saying of Abraham to his father, “I will surely ask forgiveness for you, but I have not [power to do] for you anything against Allah. Our Lord, upon You we have relied, and to You we have returned, and to You is the destination.
-
-* __Surah 60__: [](https://quranwbw.com/60/4)
+* __Surah Al-Mumtahana (The One Who is Tested) 60/4__: [You already have an excellent example in Abraham and those with him, when they said to their people, “We totally dissociate ourselves from you and ˹shun˺ whatever ˹idols˺ you worship besides Allah. We reject you. The enmity and hatred that has arisen between us and you will last until you believe in Allah alone.” The only exception is when Abraham said to his father, “I will seek forgiveness for you,˹” adding, “but˺ I cannot protect you from Allah at all.” ˹The believers prayed,˺ “Our Lord! In You we trust. And to You we ˹always˺ turn. And to You is the final return.](https://quranwbw.com/60/4)
 
 ***
 

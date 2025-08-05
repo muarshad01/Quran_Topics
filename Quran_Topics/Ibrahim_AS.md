@@ -1,4 +1,4 @@
-#### Abrahamm Father 
+#### Abraham AS Father 
 * __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
 
 #### Abraham

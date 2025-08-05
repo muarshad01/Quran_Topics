@@ -102,7 +102,7 @@
 
 ## Digit (10)
 * __Surah Kahf__: [](https://quran.com/18/109)
-
+* __Surah Faatir 35/10 (All Izzat belong to Allah SWT)__: [falillaahil izzatu jamee'aa](https://quranwbw.com/35/10)
 ***
 
 ## Digit (11): 29 = 2 + 9 = 11 
@@ -306,4 +306,5 @@ https://quran.com/39/53
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 

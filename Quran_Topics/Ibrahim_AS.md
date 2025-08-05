@@ -191,7 +191,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ٣٣  إِنَّ اللَّهَ اصْطَفَىٰ آدَمَ وَنُوحًا وَآلَ إِبْرَاهِيمَ وَآلَ عِمْرَانَ عَلَى الْعَالَمِينَ
 
-* __Surah Ale-i-Imran 3/33 (${\color{red}Allah SWT Chose: Adam, Noah, Abraham..., Imran...}$)__: [Indeed, Allah chose Adam, Noah, the family of Abraham, and the family of ’Imrân above all people ˹of their time˺.](https://quranwbw.com/3/33)
+* __Surah Ale-i-Imran 3/33 (${\color{red}Allah ~SWT ~Chose: ~Adam, ~Noah, ~Abraham..., ~Imran...}$)__: [Indeed, Allah chose Adam, Noah, the family of Abraham, and the family of ’Imrân above all people ˹of their time˺.](https://quranwbw.com/3/33)
 
 ***
 

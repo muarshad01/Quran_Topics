@@ -90,7 +90,7 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 (2:124)
 ١٢٤  وَإِذِ ابْتَلَىٰ إِبْرَاهِيمَ رَبُّهُ بِكَلِمَاتٍ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّي جَاعِلُكَ لِلنَّاسِ إِمَامًا ۖ قَالَ وَمِنْ ذُرِّيَّتِي ۖ قَالَ لَا يَنَالُ عَهْدِي الظَّالِمِينَ
 
-* __Surah Al-Baqarah 2/124 (${Iman of Naas}$)__: [˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”](https://quranwbw.com/2/124)
+* __Surah Al-Baqarah 2/124 (${\color{red}Imam ~of ~Naas}$)__: [˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”](https://quranwbw.com/2/124)
   * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them". It is a combination of the conjunction "fa" (ف), meaning "and", and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed", with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
 
 ***

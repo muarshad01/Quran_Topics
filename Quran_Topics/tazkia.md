@@ -15,25 +15,20 @@
 * __Comparision__ is the biggest `mental-disorder, psychological-disorder.`
 * __Treatment__: Accept your mistakes, respect common-people
 
-#### Knowledge-over-Knowledge
-* __Surah Yusuf 12/76__: [But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
+* __Surah Yusuf 12/76 (${\color{red}Knowledge ~over ~Knowledge}$)__: [But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
 
 ***
 
 ## Hadith
-#### Sunan Ibn Majah 4125
-* [Chapter 7: Keeping company with the poor](https://sunnah.com/ibnmajah:4125)
+* [“Ja’far bin Abu Talib used to like the poor; he would sit with them and talk to them, and they would talk to him. And the Messenger of Allah (ﷺ) gave him the Kunyah of Abul-Masakin (Father of the Poor).”](https://sunnah.com/ibnmajah:4125) -- Sunan Ibn Majah 4125
 
-#### Kibr: Sunan Ibn Majah 4173
-* [Chapter 16: Freedom from arrogance, and having humility](https://sunnah.com/ibnmajah:4173)
+* [“No one will enter Paradise who has pride in his heart equal to the weight of a grain of mustard seed, and no one will enter Hell who has faith in his heart equal to the weight of a grain of mustard seed.”](https://sunnah.com/ibnmajah:4173) -- Sunan Ibn Majah 4173
 
-#### The Poor Among The Muhajirin Will Enter Paradise Before The Rich Among Them'
-* [Chapter 37: What Has Been Related About 'The Poor Among The Muhajirin Will Enter Paradise Before The Rich Among Them'](https://sunnah.com/tirmidhi:2352)
+* ["O Allah! Cause me to live needy, and cause me to die needy and gather me in the group of the needy on the Day of Resurrection." 'Aishah said: "Why O Messenger of Allah?" He said: "Indeed they enter Paradise before their rich by forty autumns. O 'Aishah! Do not turn away the needy even if with a piece of date. O 'Aishah! Love the needy and be near them, for indeed Allah will make you near on the Day of Judgement."](https://sunnah.com/tirmidhi:2352) -- Jami` at-Tirmidhi 2352
 
 ***
 
-#### Ashab us-Suffah
-* __Surah Anaam 6/52__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure. You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quranwbw.com/6/52)
+* __Surah Anaam 6/52 (${\color{red}Ashab ~us-Suffah}$)__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure. You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quranwbw.com/6/52)
 
 ***
 
@@ -43,20 +38,18 @@
 ***
 
 #### TODO
-* 2:273
-* 4:36
-* https://quranwbw.com/6/53
-* 11:23
-* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
-* 25:63
-* 28:83
-* https://quranwbw.com/9/60-66
-* 90:14-18
-
+* __Surah 2/273__: [](https://quranwbw.com/2/273)
+* __Surah 4/36__: [](https://quranwbw.com/4/36)
+* __Surah 6/53__: [](https://quranwbw.com/6/53)
+* __Surah 9/60-66__: [](https://quranwbw.com/9/60-66)
+* __Surah 11/23__: [](https://quranwbw.com/11/23)
 * __Surah 12/76__: [Joseph began searching their bags before that of his brother ˹Benjamin˺, then brought it out of Benjamin’s bag. This is how We inspired Joseph to plan. He could not have taken his brother under the King’s law, but Allah had so willed. We elevate in rank whoever We will. But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
-
+* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
+* __Surah 25/63__: [](https://quranwbw.com/25/63)
+* __Surah 28/83__: [](https://quranwbw.com/28/83)
 * __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
-
+* __Surah 90/14-18__: [](https://quranwbw.com/90/14-18)
+  
 ***
 
 ## Tazkia

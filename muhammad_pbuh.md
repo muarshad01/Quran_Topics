@@ -5,3 +5,5 @@
 ### [Shan e Muhammad ﷺ | Allama Talib Johri ](https://www.youtube.com/watch?v=TOvXb6DdwDY)
 
 ### [Fazail Hazrat Muhammad Mustafa saww | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
+
+### [Baba G Irfan ul Haq | Hazrat Muhammad Ka Maqaam | Milad un Nabi Bayan | Muhammad ﷺ | Islamic Bayan](https://www.youtube.com/watch?v=MhUv8wWxTfY)

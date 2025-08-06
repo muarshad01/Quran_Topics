@@ -42,7 +42,7 @@
 ## [Israel Ki Dajjal Ko Lany Ki Tyari | Abdus Salam Arif](https://www.youtube.com/watch?v=1hgzyd8iSrM)
 * __Surah Tawba 09/37 (al-nasiu)__: [Reallocating the sanctity of ˹these˺ months1 is an increase in disbelief, by which the disbelievers are led ˹far˺ astray. They adjust the sanctity one year and uphold it in another, only to maintain the number of months sanctified by Allah, violating the very months Allah has made sacred. Their evil deeds have been made appealing to them. And Allah does not guide the disbelieving people.](https://quranwbw.com/9#37)
 
-* __Surah Saba 34/14__: [When We decreed Solomon’s death, nothing indicated to the ˹subjected˺ jinn that he was dead except the termites eating away his staff.1 So when he collapsed, the jinn realized that if they had ˹really˺ known the unseen, they would not have remained in ˹such˺ humiliating servitude.](https://quranwbw.com/34/14)
+* __Surah Saba 34/14 (Gadget: Minsa)__: [When We decreed Solomon’s death, nothing indicated to the ˹subjected˺ jinn that he was dead except the termites eating away his staff.1 So when he collapsed, the jinn realized that if they had ˹really˺ known the unseen, they would not have remained in ˹such˺ humiliating servitude.](https://quranwbw.com/34/14)
 
 #### Trial of Solomon (What is `JASAD` placed on King Solomon Chair?)
 * __Surah Saad 38/34-35 (Jasad)__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34-35)

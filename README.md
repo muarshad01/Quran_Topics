@@ -141,10 +141,10 @@
 |28.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
 |29.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
 |30.| [Muharram](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muharram.md) | July 2025|
-|31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|
 |32.| [Munafiq (...)] | July 2025|
 |33.| [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/burhaan.md) | July 2025|
 |8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
+|31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|
 
 ***
 

@@ -118,6 +118,9 @@
 |0. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 30, 2025|
 |1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |2. | [99 Names of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/99_names_of_Allah_SWT.md) |August 2025|
+|25.| [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah-koon-hai.md) | July 2025|
+|26.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | July 2025|
+|27.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
 |2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
@@ -141,15 +144,13 @@
 |22. | [Seven Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/seven_heavens_and_earth.md) | July 2025|
 |23. | [Kun FaYa Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kun_faya_kun.md) | July 2025|
 |24. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/loneliness.md) | July 2025|
-|25.| [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah-koon-hai.md) | July 2025|
-|26.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | July 2025|
-|27.| [Kafits at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
 |28.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
 |29.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
 |30.| [Muharram](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muharram.md) | July 2025|
 |33.| [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/burhaan.md) | July 2025|
 |8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
 |31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|
+|32.| [Harut and Marut](...) | August 2025 |
 
 ***
 

@@ -46,8 +46,9 @@
 
 #### Trial of Solomon (What is `JASAD` placed on King Solomon Chair?)
 * __Surah Saad 38/34-35 (Jasad)__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34-35)
-* Dajjal adopted the face-of-Solom and took the Ring from his wife
-* Sat on his chair (Throne of David)
+* Dajjal adopted the face-of-Solom and took the Ring from his wife.
+* Sat on his Chair (Throne of David)
+* Jasad threw the Gadget in River
 * The Ring was found from the belly-of-fish. Solomon again became king.
 
 #### Jasad Ayats

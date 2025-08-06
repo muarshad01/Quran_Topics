@@ -14,3 +14,14 @@ https://quranawareness.wordpress.com/success-53-ayats/
 
 
 https://quran.com/45/30
+
+***
+
+
+## Great SUCCESS
+* Defeat your NAFAS
+   * You'll get `Izzat, Dulat, Iqtidar of Descendants`
+   * `Raat-ki-Tanhai` main Raab ko pukaartay rahain
+   * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
+
+***

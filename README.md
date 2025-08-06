@@ -71,7 +71,9 @@
 |5. | [Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  | August 06, 2025|
 |6. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|
 |7. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
-|8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
+|8. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |
+|9. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md)| July 2025|
+|10. | [Tazkia (Purification)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
 
 ***
 
@@ -91,15 +93,12 @@
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |4. | [Al-Insan (Humankind)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan_in_quran.md) | July 2025 |
 |5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
-|6. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |
 |7. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
 
 ***
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md)| July 2025|
-|2. | [Tazkia (Purification)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
 |4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
 |5. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/amr_of_allah.md)| July 30, 2025 |
 |6. | [Sajdah (Act of prostration)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sajdah.md) | July 2025 
@@ -145,6 +144,7 @@
 |31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|
 |32.| [Munafiq (...)] | July 2025|
 |33.| [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/burhaan.md) | July 2025|
+|8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
 
 ***
 

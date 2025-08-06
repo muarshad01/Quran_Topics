@@ -43,3 +43,6 @@
 * __Surah Al-Kahf 18/65/__: [There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.](quran.com/18/65)
 
 * __Surah 27/15__: [Indeed, We granted knowledge to David and Solomon. And they said ˹in acknowledgment˺, “All praise is for Allah Who has privileged us over many of His faithful servants.”](https://quran.com/27/15)
+
+
+https://quranwbw.com/21/79

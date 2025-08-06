@@ -40,3 +40,4 @@
 ***
 
 https://quranwbw.com/2/130
+https://quranwbw.com/59/9

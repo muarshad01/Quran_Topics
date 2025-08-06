@@ -64,11 +64,12 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md)| July 2025|
+|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | July 2025|
 |2. | [Al-Insan (Humankind)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan_in_quran.md) | July 2025 |
 |3. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
 |4. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
-
+|5. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/momin.md) |July 28, 2025|
+|6. | [Munafiq (...)] | July 2025|
 
 ***
 
@@ -136,7 +137,6 @@
 |16. | [Haqq](...) |July 2025|
 |17. | [Jannah](...)  |July 2025|
 |19. | [Awabeen ()](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/awabeen.md)  |July 2025|
-|20. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/momin.md)  |July 28, 2025|
 |21. | [Creation in 6 days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/creation_6_days.md) | July 2025|
 |22. | [Seven Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/seven_heavens_and_earth.md) | July 2025|
 |23. | [Kun FaYa Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kun_faya_kun.md) | July 2025|
@@ -147,7 +147,6 @@
 |28.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
 |29.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
 |30.| [Muharram](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muharram.md) | July 2025|
-|32.| [Munafiq (...)] | July 2025|
 |33.| [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/burhaan.md) | July 2025|
 |8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
 |31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|

@@ -3,3 +3,5 @@
 ### [Hazrat Esa (as) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 
 ### [Shan e Muhammad ﷺ | Allama Talib Johri ](https://www.youtube.com/watch?v=TOvXb6DdwDY)
+
+### [Fazail Hazrat Muhammad Mustafa saww | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)

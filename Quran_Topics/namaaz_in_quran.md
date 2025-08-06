@@ -14,6 +14,8 @@
 ***
 
 ## Special Nafals
+* [Importance of Namaz e Jumu’ah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
+  * Zawaal time:  
 * [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
 * [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
 * [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)

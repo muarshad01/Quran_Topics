@@ -41,3 +41,5 @@
 * __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.]()
 
 * __Surah Al-Kahf 18/65/__: [There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.](quran.com/18/65)
+
+* https://quran.com/27/15

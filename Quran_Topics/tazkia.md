@@ -60,47 +60,46 @@
 
 ## Tazkia
 
-* __Surah Al-Baqarah (2)__: [](https://quranwbw.com/2/129)
-* __Surah Al-Baqarah (2)__: [](https://quranwbw.com/2/151)
-* __Surah Al-Baqarah (2)__: [](https://quranwbw.com/2/174)
+* __Surah Al-Baqarah 2/129__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
+* __Surah Al-Baqarah 2/151__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quranwbw.com/2/151)
+* __Surah Al-Baqarah 2/174__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quranwbw.com/2/174)
 
 ***
 
-* __Surah Al Imran (3)__: [](https://quranwbw.com/3/77)
-* __Surah Al Imran (3)__: [](https://quranwbw.com/3/164)
+* __Surah Al Imran 3/77__: [Indeed, those who trade Allah’s covenant and their oaths for a fleeting gain will have no share in the Hereafter. Allah will neither speak to them, nor look at them, nor purify them on the Day of Judgment. And they will suffer a painful punishment.](https://quranwbw.com/3/77)
+* __Surah Al Imran 3/164__: [Indeed, Allah has done the believers a ˹great˺ favour by raising a messenger from among them—reciting to them His revelations, purifying them, and teaching them the Book and wisdom. For indeed they had previously been clearly astray.](https://quranwbw.com/3/164)
 
 *** 
 
-* __Surah An-Nisa (4)__: [](https://quranwbw.com/4/49)
+* __Surah An-Nisa (4)__: [Have you ˹O Prophet˺ not seen those who ˹falsely˺ elevate themselves? It is Allah who elevates whoever He wills. And none will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/49)
 
 *** 
 
-* __Surah At-Tawbah (9)__: [](https://quranwbw.com/9/103) Verse 103 discusses spending money in the cause of Allah as a means of purification.
+* __Surah At-Tawbah (9)__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/9/103)
 
 *** 
 
-* __Surah Taha (20)__: [](https://quranwbw.com/20/76) Verse 76 mentions that only those who have purified themselves will be admitted to Paradise.
+* __Surah Taha (20)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
 
 *** 
 
-* __Surah Al-Jumu'ah (62)__: [](https://quranwbw.com/62/2)Verse 2 includes "purifying (tazkiah) them" as part of the Messenger's role.
+* __Surah Al-Jumu'ah (62)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
 
 *** 
 
-* __Surah Abasa (80)__: [](https://quranwbw.com/80/3)
-* __Surah Abasa (80)__: [](https://quranwbw.com/80/7)
-* Verses 3 and 7 touch upon the importance of soul purification in the context of inviting others to Islam.
+* __Surah Abasa 80/3__: [You never know ˹O Prophet˺, perhaps he may be purified,](https://quranwbw.com/80/3)
+* __Surah Abasa 80/7__: [even though you are not to blame if he would not be purified.](https://quranwbw.com/80/7)
 
 *** 
 
-* __Surah Al-A'la (87)__: [](https://quranwbw.com/87/14) Verse 14 suggests that developing divine attributes is a way to purify oneself.
-
+* __Surah Al-A'la (87)__: [Successful indeed are those who purify themselves,](https://quranwbw.com/87/14)
+  
 *** 
 
 * __Surah Ash-Shams (91)__: [](https://quranwbw.com/91/1-10) Verses 1-10 emphasize that success comes to those who purify their souls, while failure befalls those who corrupt them.
 
 ***
 
-* __Surah Al-Layl (92)__: [](https://quranwbw.com/92/18). Verse 18 mentions spending in the cause of Allah as a means of purification. 
+* __Surah Al-Layl (92)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
 
 ***

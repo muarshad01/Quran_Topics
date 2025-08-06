@@ -1,4 +1,11 @@
 ### [Tazkiya-e-Nafs | Allama Talib Johri](https://www.youtube.com/watch?v=MFymvwe0WLA)
+* __Surah Ash-Shams__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10)
+  * First Yourself
+  * Then Your Home, Family
+  * Then Your City, Society
+* __Surah Az-Zumar 39/42__: [˹It is˺ Allah ˹Who˺ calls back the souls ˹of people˺ upon their death as well as ˹the souls˺ of the living during their sleep. Then He keeps those for whom He has ordained death, and releases the others until ˹their˺ appointed time. Surely in this are signs for people who reflect.](https://quranwbw.com/39/42)
+
+***
 
 ### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
 ### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)

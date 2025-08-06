@@ -73,7 +73,8 @@
 |7. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
 |8. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |
 |9. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md)| July 2025|
-|10. | [Tazkia (Purification)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
+|10. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
+|11. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
 
 ***
 
@@ -93,7 +94,6 @@
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |4. | [Al-Insan (Humankind)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan_in_quran.md) | July 2025 |
 |5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
-|7. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
 
 ***
 

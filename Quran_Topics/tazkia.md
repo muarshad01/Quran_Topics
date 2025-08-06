@@ -103,3 +103,12 @@
 * __Surah Al-Layl (92)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
 
 ***
+
+
+## Great SUCCESS
+* Defeat your NAFAS
+   * You'll get `Izzat, Dulat, Iqtidar of Descendants`
+   * `Raat-ki-Tanhai` main Raab ko pukaartay rahain
+   * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
+
+***

@@ -41,3 +41,13 @@
 
 https://quranwbw.com/2/130
 https://quranwbw.com/59/9
+
+***
+
+## Great SUCCESS
+* Defeat your NAFAS
+   * You'll get `Izzat, Dulat, Iqtidar of Descendants`
+   * `Raat-ki-Tanhai` main Raab ko pukaartay rahain
+   * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
+
+***

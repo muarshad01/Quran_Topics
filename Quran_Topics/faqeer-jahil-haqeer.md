@@ -1,3 +1,10 @@
+### [Apni-Zaat Ka Irfan](https://www.youtube.com/shorts/lcy6z2eAF5c)
+* Shah Hussain said, "Mayn nahi sabb Tuhi".
+* __Surah Faatir 35/10 (All Izzat)__: [All Respests are for Allah SWT](https://quranwbw.com/35/10)
+* __Surah Yaseen 36/77 (Haqeer)__: [Do people not see that We have created them from a sperm-drop, then—behold!—they openly challenge ˹Us˺?](https://quranwbw.com/36/77)
+
+***
+
 ## Faqeer, Haqeer, Jahil
 
 #### Jahil
@@ -9,6 +16,5 @@
 ](https://quranwbw.com/47/38)
 
 #### Haqeer
-* __Surah Yaseen 36/77 (Haqeer)__: [Do people not see that We have created them from a sperm-drop, then—behold!—they openly challenge ˹Us˺?](https://quranwbw.com/36/77)
 
 ***

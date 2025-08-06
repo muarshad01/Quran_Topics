@@ -99,7 +99,7 @@
 |1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ilm.md)| July 2025|
 |2. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Jahil_Ignorant.md)  | July 2025 |
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
-|5. | [Qarz Hasna (Benevolent loan, interest-free loan given to those in need](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
+|5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
 
 ***
 

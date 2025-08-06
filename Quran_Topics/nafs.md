@@ -13,7 +13,7 @@
 
 ***
 
-## Three primary types of Nafs (Self): 
+## Types of Nafs (Self): 
 1. Nafs al-Ammara (the Commanding Self)
 2. Nafs al-Lawwama (the Reproaching Self)
 3. Nafs al-Mutmainna (the Content Self)

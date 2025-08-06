@@ -29,6 +29,7 @@
 * 17 -  Talut (Soul)
 * 18 -  [Dawud (David)](https://quranwbw.com/21/78)
 * https://quran.com/27/15
+* https://quranwbw.com/38/30
 * 19 -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
 * 20 -  Ilyas (Elias)
 * 21 -  Alyasa (Elisha)

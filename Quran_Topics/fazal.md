@@ -34,3 +34,5 @@
 * __Surah Al-Jumua 62/4__: [This is the favour of Allah. He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quranwbw.com/62/4)
 
 *** 
+
+https://quran.com/27/15-16

@@ -14,7 +14,7 @@
 ***
 
 ## Special Nafals
-* [4-Rakat Nawafil after Maghrib| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
+* [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
 * [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
 * [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
 * [Jummah Ke Din Ki Ahmiyat (Ilm Ki Baarish) | SSA Shah](https://www.youtube.com/watch?v=iHTNHcZc-CI)

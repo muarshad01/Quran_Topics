@@ -38,3 +38,28 @@
 * __Surah Saad 38/34__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34)
 
 ***
+
+## [Israel Ki Dajjal Ko Lany Ki Tyari | Abdus Salam Arif](https://www.youtube.com/watch?v=1hgzyd8iSrM)
+* __Surah Tawba 09/37 (al-nasiu)__: [Reallocating the sanctity of ˹these˺ months1 is an increase in disbelief, by which the disbelievers are led ˹far˺ astray. They adjust the sanctity one year and uphold it in another, only to maintain the number of months sanctified by Allah, violating the very months Allah has made sacred. Their evil deeds have been made appealing to them. And Allah does not guide the disbelieving people.](https://quranwbw.com/9#37)
+
+* __Surah Saba 34/14__: [When We decreed Solomon’s death, nothing indicated to the ˹subjected˺ jinn that he was dead except the termites eating away his staff.1 So when he collapsed, the jinn realized that if they had ˹really˺ known the unseen, they would not have remained in ˹such˺ humiliating servitude.](https://quranwbw.com/34/14)
+
+#### Trial of Solomon (What is `JASAD` placed on King Solomon Chair?)
+* __Surah Saad 38/34-35 (Jasad)__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34-35)
+* Dajjal adopted the face-of-Solom and took the Ring from his wife
+* Sat on his chair (Throne of David)
+* The Ring was found from the belly-of-fish. Solomon again became king.
+
+#### Jasad Ayats
+* __Surah Al-Araaf 7/148__: [In the absence of Moses, his people made from their ˹golden˺ jewellery an idol of a calf that made a lowing sound. Did they not see that it could neither speak to them nor guide them to the ˹Right˺ Path? Still they took it as a god and were wrongdoers.](https://quranwbw.com/7/148)
+* __Surah Taha 20/88__: [Then he moulded for them an idol of a calf that made a lowing sound. They said, “This is your god and the god of Moses, but Moses forgot ˹where it was˺!”](https://quranwbw.com/20/88)
+* __Surah Al-Anbiyaa 21/8__: [We did not give those messengers ˹supernatural˺ bodies that did not need food, nor were they immortal.](https://quranwbw.com/21/8)
+* __Surah Saad 38/34__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34)
+
+#### Events...
+* __Time REVERSAL__:
+* __Throne of David__:
+* __Third Temple__:
+* __Ark of the Covenant__:
+
+***

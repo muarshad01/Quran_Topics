@@ -30,7 +30,7 @@
 * __Surah Ar-Raad 13/11__: [إِنَّ ٱللَّهَ لَا يُغَيِّرُ مَا بِقَوْمٍ حَتَّىٰ يُغَيِّرُوا۟ مَا بِأَنفُسِهِمْ ۗ](https://quran.com/13/11)
 * __Surah__: [(1) Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise. (2) He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quran.com/62/1-2)
 
-|||
+|Ayat-1 |Ayat-2|
 |---|---|
 |ٱلْمَلِكِ| My Signs (ءَايَـٰتِهِۦ)|
  |ٱلْقُدُّوسِ|  وَيُزَكِّيهِمْ |

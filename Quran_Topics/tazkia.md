@@ -25,21 +25,29 @@
 
 ***
 
-### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
-### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
+### [Tazkia-e-Nafs | Sahil Adeem](https://www.youtube.com/watch?v=nevkIwKlDE8)
+* __Surah Al-Baqarah 2/152__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ](https://quranwbw.com/2/152)
+* __Surah Ar-Raad 13/11__: [إِنَّ ٱللَّهَ لَا يُغَيِّرُ مَا بِقَوْمٍ حَتَّىٰ يُغَيِّرُوا۟ مَا بِأَنفُسِهِمْ ۗ](https://quran.com/13/11)
+* __Surah__: [(1) Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise. (2) He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quran.com/62/1-2)
 
-***
-
-### [Tazkia-e-Nafs kia hy | Sahil Adeem](https://www.youtube.com/watch?v=nevkIwKlDE8)
+|||
+|---|---|
+|ٱلْمَلِكِ|...|
+  
 ***
 
 ### [Tazkiya-e-Nafs | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=1yo9Lyaoqiw)
 
 ***
+
 ### [Tazkiya-e-Nafs | Muhammad Ali](https://www.youtube.com/watch?v=8lQMTC2-pIA)
 * __Abu Ubayda ibn al-Jarrah (Amin ul-Ummah)__ become the governor of Syria (Damancus), his life style was very simple.
     
 ***
+
+### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
+### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
+
 
 #### Why Azazeel become Mayoos (disappointed)?
 * `Self-liking` is the first-disease after being disappointed, which makes you do ALL the sins.

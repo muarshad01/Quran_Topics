@@ -43,6 +43,7 @@
 
 * __Surah Al-Waqiah__: [touched by none except the purified ˹angels˺.](https://quranwbw.com/56/79)
 * __Surah Al-Waqiah__: [How can you then take this message lightly,](https://quranwbw.com/56/81)
+* https://quran.com/6/59
 
 ***
 ***

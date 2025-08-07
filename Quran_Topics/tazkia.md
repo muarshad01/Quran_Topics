@@ -33,7 +33,9 @@
 |||
 |---|---|
 |ٱلْمَلِكِ|...|
-  
+ |ٱلْقُدُّوسِ||
+ |ٱلْعَزِيزِ||
+ |ٱلْحَكِيمِ||
 ***
 
 ### [Tazkiya-e-Nafs | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=1yo9Lyaoqiw)

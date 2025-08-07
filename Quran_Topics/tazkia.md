@@ -32,10 +32,17 @@
 
 |||
 |---|---|
-|ٱلْمَلِكِ|...|
+|ٱلْمَلِكِ| My Signs (ءَايَـٰتِهِۦ)|
  |ٱلْقُدُّوسِ||
- |ٱلْعَزِيزِ||
+ |ٱلْعَزِيزِ|Rule Law|
  |ٱلْحَكِيمِ||
+####
+* Nuh: 
+* Abraham: [Tazkia]()
+* Musa: [وَلَقَدْ ءَاتَيْنَا مُوسَى ٱلْكِتَـٰبَ](https://quranwbw.com/32/23)
+* Juses: [وَكَهْلًۭا ۖ وَإِذْ عَلَّمْتُكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ](https://quran.com/5/110)
+* Muhammad: [All 4 things...4-in-1]()
+
 ***
 
 ### [Tazkiya-e-Nafs | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=1yo9Lyaoqiw)

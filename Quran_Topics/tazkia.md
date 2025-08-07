@@ -64,7 +64,7 @@
 
 #### The most critical disease of Nafas
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
-* It describes someone who is overly pleased with themselves and their abilities. 
+* It describes someone who is overly-pleased with themselves and their abilities. 
 * __Comparision__ is the biggest `mental-disorder, psychological-disorder.`
 * __Treatment__: Accept your mistakes, respect common-people
 

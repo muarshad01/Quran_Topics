@@ -1,3 +1,9 @@
+#### [Hmain kesay Pata Chalay Hum Rehmat kay Hasar Mayn Hnn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
+* Self-monitoring
+* Understands Deen
+* Starts being a rehmat for others...
+***
+
 #### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
 #### [How we know about Allah SWT Rehmat | SSA Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY)

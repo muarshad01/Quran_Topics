@@ -13,10 +13,17 @@
 * __Surah Al-Baqarah 2/129 (See Also: 62/2)__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
 * __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
 
+* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
+
 #### Hadith
 * [And narrated Sad that the Prophet (ﷺ) said to 'Ali, "Will you not be pleased from this that you are to me like Aaron was to Moses?"](https://sunnah.com/bukhari:3706) -- Sahih al-Bukhari 3706
 
-* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
+* __Surah Al-Ahzaab 33/56 (وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
+  * Muhammad:
+  * Ahmed:
+  * Abad: The one who is invited on Miraj
+  * Nabi: The one who take Naba(Khabar) from Allah SWT
+  * Rasool: The messenger, the one who conveys the message to People
 
 ### Toor, Galeel, Faran
 * Toor (Torah)

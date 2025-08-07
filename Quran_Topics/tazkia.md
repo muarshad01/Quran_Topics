@@ -36,6 +36,14 @@
  |ٱلْقُدُّوسِ|  وَيُزَكِّيهِمْ |
  |ٱلْعَزِيزِ|   Rule Law ; Strict (ٱلْكِتَـٰبَ)|
  |ٱلْحَكِيمِ| وَٱلْحِكْمَةَ|
+
+| Ayat-1 | Ayat-2 |
+|---|---|
+| Al-Malik | Recites Verses |
+| Al-Qaddus | Tazkia (Purify them) | 
+| Al-Azia | Ilm (Teach them) |
+| Al-Hakim | Hikmah (Wisdom)|
+
 ####
 * Nuh: 
 * Abraham: [Tazkia]()

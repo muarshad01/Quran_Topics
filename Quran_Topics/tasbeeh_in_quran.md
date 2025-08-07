@@ -34,11 +34,11 @@
 
 | Word | Meaning| 
 |---|---|
-| Sabbih (سَبِّحْ)     ||
+| Sabbih (سَبِّحْ)     | Surah Al-Alaa|
 | Sabbaha (سَبَّحَ)    ||
-| Fasabbih (فَسَبِّحْ)  ||
 | Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
-| Subhana (سُبْحَانَ)  ||
+| Fasabbih (فَسَبِّحْ)  ||
+| Subhana (سُبْحَانَ)  | Surah Al-Isra|
 | Tusabbihu (تُسَبِّحُ) | Past Tense|
 
 ***

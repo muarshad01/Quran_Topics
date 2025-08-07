@@ -15,7 +15,7 @@
 #### Hadith
 * [And narrated Sad that the Prophet (ﷺ) said to 'Ali, "Will you not be pleased from this that you are to me like Aaron was to Moses?"](https://sunnah.com/bukhari:3706) -- Sahih al-Bukhari 3706
 
-* __Surah An-Najm 53/3__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
+* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
 
 ### Toor, Galeel, Faran
 * Toor (Torah)

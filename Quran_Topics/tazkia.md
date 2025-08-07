@@ -28,11 +28,17 @@
 ### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
 ### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
 
+***
+
 ### [Tazkia-e-Nafs kia hy | Sahil Adeem](https://www.youtube.com/watch?v=nevkIwKlDE8)
+***
 
 ### [Tazkiya-e-Nafs | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=1yo9Lyaoqiw)
-### [Tazkiya-e-Nafs (Beautiful Example) | Muhammad Ali ](https://www.youtube.com/watch?v=8lQMTC2-pIA)
 
+***
+### [Tazkiya-e-Nafs | Muhammad Ali](https://www.youtube.com/watch?v=8lQMTC2-pIA)
+* __Abu Ubayda ibn al-Jarrah (Amin ul-Ummah)__ become the governor of Syria (Damancus), his life style was very simple.
+    
 ***
 
 #### Why Azazeel become Mayoos (disappointed)?

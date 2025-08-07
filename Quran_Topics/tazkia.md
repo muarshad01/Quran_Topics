@@ -65,14 +65,11 @@
 #### The most critical disease of Nafas
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
 * It describes someone who is overly-pleased with themselves and their abilities. 
-* __Comparision__ is the biggest `mental-disorder, psychological-disorder.`
-* __Treatment__: Accept your mistakes, respect common-people
+* __Comparision__: is the biggest `mental-disorder, psychological-disorder.`
+* __Treatment__: Accept your mistakes, respect common-people.
 
-***
-
-### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
-
-***
+#### Advice
+* May GOD make you Blind of `your GOOD-DEEDS` (so that you don't do pride / kibr.) and `others BAD-DEEDS` (so that you don't hate them and consider them Haqeer).
 
 ***
 
@@ -83,14 +80,7 @@
 
 * ["O Allah! Cause me to live needy, and cause me to die needy and gather me in the group of the needy on the Day of Resurrection." 'Aishah said: "Why O Messenger of Allah?" He said: "Indeed they enter Paradise before their rich by forty autumns. O 'Aishah! Do not turn away the needy even if with a piece of date. O 'Aishah! Love the needy and be near them, for indeed Allah will make you near on the Day of Judgement."](https://sunnah.com/tirmidhi:2352) -- Jami` at-Tirmidhi 2352
 
-***
-
 * __Surah Anaam 6/52 (${\color{red}Ashab ~us-Suffah}$)__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure. You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quranwbw.com/6/52)
-
-***
-
-#### Advice
-* May GOD make you Blind of `your GOOD-DEEDS` (so that you don't do pride / kibr.) and `others BAD-DEEDS` (so that you don't hate them and consider them Haqeer).
 
 ***
 

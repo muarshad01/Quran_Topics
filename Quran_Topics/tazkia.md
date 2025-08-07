@@ -15,6 +15,12 @@
 
 * __Surah An-Najm 53/3__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
 
+### Toor, Galeel, Faran
+* Toor (Torah)
+* Galeel??? (Gospel)
+* Faran (Quran...?)
+
+* The four Gospels in the Bible are Matthew, Mark, Luke, and John
 ***
 
 ### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)

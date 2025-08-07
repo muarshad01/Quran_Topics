@@ -1,5 +1,5 @@
-### [کچھ عرصہ کے بعد آپ ایک پرانی تہذیب کے طور پر دریافت ہو گے | حضرت واصف علی واصفؒ
-](https://www.youtube.com/watch?v=tCukYzgFpqk)
+### [(کچھ عرصہ کے بعد آپ ایک پرانی تہذیب کے طور پر دریافت ہو گے | حضرت واصف علی واصفؒ
+)](https://www.youtube.com/watch?v=tCukYzgFpqk)
 
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 

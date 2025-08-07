@@ -48,3 +48,5 @@
    * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
 
 ***
+
+* __Surah Ash-Shams 91/7-10__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10)

@@ -8,7 +8,11 @@
     *  [Wali | Allama Talib Johri](https://www.youtube.com/watch?v=oOTbwJLMq70)
     *  [Ya Allah Meri Mushkil Ko Asaan Bana Dy | Allama Talib Johri](https://www.youtube.com/watch?v=61WdVfx933Y)
 *  2 - Idris (Enoch): https://quranwbw.com/21/85
-*  3 - [__Nuh (Noah)__](https://quranwbw.com/21/76): Surah 71; 17/3 (abdan shakooraa); 
+*  3 - _Nuh (Noah)__
+*  __Surah__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3)
+*__Surah__: [And ˹remember˺ when Noah had cried out to Us earlier, so We responded to him and delivered him and his family1 from the great distress.](https://quranwbw.com/21/76)
+* __Surah Al-Anbiyaa 16/43__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/16/43)
+* __Surah An-Nahl 21/7__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/21/7)
 *  4 -  Hud (Heber)
 *  5 -  Saleh (Methusaleh)
 *  6 -  Lut (Lot): https://quranwbw.com/21/74

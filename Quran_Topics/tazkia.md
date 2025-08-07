@@ -55,13 +55,12 @@
 ***
 
 ### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
-### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
-
 
 #### Why Azazeel become Mayoos (disappointed)?
-* `Self-liking` is the first-disease after being disappointed, which makes you do ALL the sins.
+* __SELF-LIKING__ is the first-disease after being disappointed, which makes you do ALL the sins.
 * `Ijz-ki-Nafi` Kibr-hai
-* __Surah Nisaa 4/36 (${\color{red}Arrogant ~and ~Boastful}$)__: [Surely Allah does not like whoever is arrogant, boastful!](https://quranwbw.com/4/36)
+* __Surah Yusuf 12/76 (${\color{red}Knowledge ~over ~Knowledge}$)__: [وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ](https://quranwbw.com/12/76)
+* __Surah Nisaa 4/36 (${\color{red}Arrogant ~and ~Boastful}$)__: [إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا](https://quranwbw.com/4/36)
 
 #### The most critical disease of Nafas
 * `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
@@ -69,7 +68,11 @@
 * __Comparision__ is the biggest `mental-disorder, psychological-disorder.`
 * __Treatment__: Accept your mistakes, respect common-people
 
-* __Surah Yusuf 12/76 (${\color{red}Knowledge ~over ~Knowledge}$)__: [But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
+***
+
+### [Sehat Hazaar Naimat | Irfan-ul-Haq](https://www.youtube.com/watch?v=yGLs0fAITgI)
+
+***
 
 ***
 

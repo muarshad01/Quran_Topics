@@ -4,6 +4,7 @@
   * Then Your Home, Family
   * Then Your City, Society
 * __Surah Az-Zumar 39/42__: [˹It is˺ Allah ˹Who˺ calls back the souls ˹of people˺ upon their death as well as ˹the souls˺ of the living during their sleep. Then He keeps those for whom He has ordained death, and releases the others until ˹their˺ appointed time. Surely in this are signs for people who reflect.](https://quranwbw.com/39/42)
+* __Surah Al-Baqarah 2/207__: [And there are those who would dedicate their lives to Allah’s pleasure. And Allah is Ever Gracious to ˹His˺ servants.](https://quranwbw.com/2/207)
 
 ***
 

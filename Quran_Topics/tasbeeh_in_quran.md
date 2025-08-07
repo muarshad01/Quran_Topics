@@ -37,9 +37,9 @@
 | Sabbih (سَبِّحْ)     | Surah Al-Alaa|
 | Sabbaha (سَبَّحَ)    ||
 | Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
+| Tusabbihu (تُسَبِّحُ) | Past Tense|
 | Fasabbih (فَسَبِّحْ)  ||
 | Subhana (سُبْحَانَ)  | Surah Al-Isra|
-| Tusabbihu (تُسَبِّحُ) | Past Tense|
 
 ***
 

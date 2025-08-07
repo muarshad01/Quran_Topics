@@ -110,7 +110,6 @@
 
 ## Tazkia
 
-* __Surah Al-Baqarah 2/129__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
 * __Surah Al-Baqarah 2/151__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quranwbw.com/2/151)
 * __Surah Al-Baqarah 2/174__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quranwbw.com/2/174)
 

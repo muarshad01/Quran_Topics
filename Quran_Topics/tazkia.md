@@ -128,19 +128,19 @@
 
 *** 
 
-* __Surah An-Nisa (4)__: [Have you ˹O Prophet˺ not seen those who ˹falsely˺ elevate themselves? It is Allah who elevates whoever He wills. And none will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/49)
+* __Surah An-Nisa 4/49__: [Have you ˹O Prophet˺ not seen those who ˹falsely˺ elevate themselves? It is Allah who elevates whoever He wills. And none will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/49)
 
 *** 
 
-* __Surah At-Tawbah (9)__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/9/103)
+* __Surah At-Tawbah 9/103__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/9/103)
 
 *** 
 
-* __Surah Taha (20)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
+* __Surah Taha 20/76__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
 
 *** 
 
-* __Surah Al-Jumu'ah (62)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
+* __Surah Al-Jumu'ah 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
 
 *** 
 
@@ -149,15 +149,15 @@
 
 *** 
 
-* __Surah Al-A'la (87)__: [Successful indeed are those who purify themselves,](https://quranwbw.com/87/14)
+* __Surah Al-A'la 87/14__: [Successful indeed are those who purify themselves,](https://quranwbw.com/87/14)
   
 *** 
 
-* __Surah Ash-Shams (91)__: [](https://quranwbw.com/91/1-10) Verses 1-10 emphasize that success comes to those who purify their souls, while failure befalls those who corrupt them.
+* __Surah Ash-Shams 91/1-10__: [](https://quranwbw.com/91/1-10) Verses 1-10 emphasize that success comes to those who purify their souls, while failure befalls those who corrupt them.
 
 ***
 
-* __Surah Al-Layl (92)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
+* __Surah Al-Layl 92/18__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
 
 ***
 

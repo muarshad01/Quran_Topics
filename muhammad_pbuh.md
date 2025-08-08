@@ -18,8 +18,15 @@
 
 ### [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
 * [(27) ˹Allah will say to the righteous,˺ “O tranquil soul! (28) Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. (29) So join My servants, (30) and enter My Paradise.”](https://quran.com/89/27-30)
+* aa jaa -- wapis aa jaa (wapis hamaisha watan-aur-ghar tak kay-liye bola-jaata-hai)
 
-* https://www.google.com/search?q=ullul+azam+nabi+in+quran&oq=ullul+azam+nabi+in+quran&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIJCAEQIRgKGKABMgkIAhAhGAoYoAEyCQgDECEYChigATIJCAQQIRgKGKAB0gEIODAwMWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8
+#### Imaan versus Itminaan (Tranquil)
+*__Surah Al-Ahqaf 46/35 (Ulul Azm)__: [So endure patiently, as did the Messengers of Firm Resolve.1 And do not ˹seek to˺ hasten ˹the torment˺ for the deniers. On the Day they see what they have been threatened with, it will be as if they had only stayed ˹in this world˺ for an hour of a day.2 ˹This is˺ a ˹sufficient˺ warning! Then, will anyone be destroyed except the rebellious people?](https://quranwbw.com/46/35)
+
+
+### Qaala (قَالَ) versus Qul (قُلْ)
+* __Surah Taha 20__: [Moses AS...](https://quranwbw.com/20/24-30)
+* __Surah Al-Israa 17/80__: [And say, “My Lord! Grant me an honourable entrance and an honourable exit and give me a supporting authority from Yourself.”](https://quranwbw.com/17/80)
 
 ***
 

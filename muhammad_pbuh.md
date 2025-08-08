@@ -31,10 +31,30 @@
 
 ***
 
-### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)
+## [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)
+* __Surah__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ](https://quranwbw.com/18/110)
+   * Mayn tum-jaisa bashar-honn...yeah nahi kaha...tum bhi merey jaisay hoo
+   * This ayat came to protect Tauheed...
+
+#### Jews, Christians, ...
+* __Surah 9/30 (Jews)__: [وَقَالَتِ ٱلْيَهُودُ عُزَيْرٌ ٱبْنُ ٱللَّهِ](https://quranwbw.com/9/30)
+* __Surah 9/30 (Christians)__: [وَقَالَتِ ٱلنَّصَـٰرَى ٱلْمَسِيحُ ٱبْنُ ٱللَّهِ ۖ](https://quranwbw.com/9/30)
+* __Surah 21/26__: [وَقَالُوا۟ ٱتَّخَذَ ٱلرَّحْمَـٰنُ وَلَدًۭا ۗ](https://quran.com/21/26)
+
+#### Miricles
+* Radd al-Shams
+* Moon was split: https://quranwbw.com/54/1-2
+* Stars came down: https://quranwbw.com/53/1
+* Trees-and-Rocks greeting the Prophet Muhammad PBUH with "salam".
+* Mountains...
+
+#### Hadith
+* [Narrated Sa'd bin Abi Waqqas: that the Prophet (ﷺ) said to 'Ali, "You are to me, in the position that Harun was to Musa, [except that there is no Prophet after me]."](https://sunnah.com/tirmidhi:3731) -- Jami` at-Tirmidhi 3731
 
 ***
+
 ### [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)
+
 ***
 
 ### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)

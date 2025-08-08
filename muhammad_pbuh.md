@@ -18,8 +18,8 @@
 
 ## [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
 * __Surah Al-Fajr 89/27-30__: [ يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ ٱرْجِعِىٓ إِلَىٰ رَبِّكِ][(27) ˹Allah will say to the righteous,˺ “O tranquil soul! (28) Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. (29) So join My servants, (30) and enter My Paradise.”](https://quran.com/89/27-30)
-* Muhammad "wapis" aa-jaa (aa-jaa nahi kaha) (Wapis hamaisha watan-aur-ghar-tak kay-liye bola-jaata-hai)
-* Muhammad SAW lives on Arash.
+    * Muhammad "wapis" aa-jaa (aa-jaa nahi kaha) (Wapis hamaisha watan-aur-ghar-tak kay-liye bola-jaata-hai)
+    * Muhammad SAW lives on Arash.
 
 #### Ulul Azm
 * __Surah Al-Ahqaf 46/35 (Ulul Azm)__: [So endure patiently, as did the Messengers of Firm Resolve.1 And do not ˹seek to˺ hasten ˹the torment˺ for the deniers. On the Day they see what they have been threatened with, it will be as if they had only stayed ˹in this world˺ for an hour of a day.2 ˹This is˺ a ˹sufficient˺ warning! Then, will anyone be destroyed except the rebellious people?](https://quranwbw.com/46/35)

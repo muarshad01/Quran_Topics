@@ -23,6 +23,8 @@
 
 ***
 
+### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)***
+
 ### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
 ### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 ### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)

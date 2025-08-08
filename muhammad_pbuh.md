@@ -27,11 +27,11 @@
 
 #### Qaala (قَالَ) versus Qul (قُلْ)
 * __Surah Taha 20 (Moses AS)__: [...ٱذْهَبْ إِلَىٰ فِرْعَوْنَ إِنَّهُۥ طَغَىٰ...وَٱجْعَل لِّى وَزِيرًۭا مِّنْ أَهْلِى ...هَـٰرُونَ أَخِى](https://quranwbw.com/20/24-30)
-* __Surah Al-Israa 17/80__: [And say, “My Lord! Grant me an honourable entrance and an honourable exit and give me a supporting authority from Yourself.”](https://quranwbw.com/17/80)
+* __Surah Al-Israa 17/80__: [...وَٱجْعَل لِّى مِن لَّدُنكَ سُلْطَـٰنًۭا نَّصِيرًۭا...][And say, “My Lord! Grant me an honourable entrance and an honourable exit and give me a supporting authority from Yourself.”](https://quranwbw.com/17/80)
 
 ***
 
-### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)***
+### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)
 
 ***
 ### [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)

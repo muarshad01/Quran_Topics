@@ -3,14 +3,14 @@
   * First Yourself
   * Then Your Home, Family
   * Then Your City, Society
-* __Surah Al-Baqarah 2/207__: [And there are those who would dedicate their lives to Allah’s pleasure. And Allah is Ever Gracious to ˹His˺ servants.](https://quranwbw.com/2/207)
+* __Surah Al-Baqarah 2/207 (ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ)__: [And there are those who would dedicate their lives to Allah’s pleasure. And Allah is Ever Gracious to ˹His˺ servants.](https://quranwbw.com/2/207)
 * __Surah Al-Araaf 7/157 (ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ)__: [“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel. He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them. ˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”](https://quranwbw.com/7/157)
 * __Surah Al-Anbiyaa 16/43 (فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ)__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/16/43)
 * __Surah An-Nahl 21/7 (فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ)__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/21/7)
 * __Surah Az-Zumar 39/42__: [˹It is˺ Allah ˹Who˺ calls back the souls ˹of people˺ upon their death as well as ˹the souls˺ of the living during their sleep. Then He keeps those for whom He has ordained death, and releases the others until ˹their˺ appointed time. Surely in this are signs for people who reflect.](https://quranwbw.com/39/42)
-* __Surah Al-Fath 48/29__: [Muḥammad is the Messenger of Allah. And those with him are firm with the disbelievers1 and compassionate with one another. You see them bowing and prostrating2 ˹in prayer˺, seeking Allah’s bounty and pleasure. The sign ˹of brightness can be seen˺ on their faces from the trace of prostrating ˹in prayer˺. This is their description in the Torah.3 And their parable in the Gospel is that of a seed that sprouts its ˹tiny˺ branches, making it strong. Then it becomes thick, standing firmly on its stem, to the delight of the planters4—in this way Allah makes the believers a source of dismay for the disbelievers.5 To those of them who believe and do good, Allah has promised forgiveness and a great reward.](https://quran.com/48/29)
-* __Surah Al-Juma 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
-* __Surah Al-Baqarah 2/129 (See Also: 62/2)__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
+* __Surah Al-Fath 48/29__: [Muḥammad is the Messenger of Allah. And those with him are firm with the disbelievers and compassionate with one another. You see them bowing and prostrating2 ˹in prayer˺, seeking Allah’s bounty and pleasure. The sign ˹of brightness can be seen˺ on their faces from the trace of prostrating ˹in prayer˺. This is their description in the Torah. And their parable in the Gospel is that of a seed that sprouts its ˹tiny˺ branches, making it strong. Then it becomes thick, standing firmly on its stem, to the delight of the planters4—in this way Allah makes the believers a source of dismay for the disbelievers.5 To those of them who believe and do good, Allah has promised forgiveness and a great reward.](https://quran.com/48/29)
+* __Surah Al-Juma 62/2 (See also: 2/129; 2/151; 62/2; 3/164)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
+* __Surah Al-Baqarah 2/129 (See also: 2/129; 2/151; 62/2; 3/164)__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
 * __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
 
 * __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
@@ -22,7 +22,7 @@
   * Muhammad:
   * Ahmed:
   * Abad: The one who is invited on Miraj
-  * Nabi: The one who take Naba(Khabar) from Allah SWT
+  * Nabi: The one who takes Naba(Khabar) from Allah SWT
   * Rasool: The messenger, the one who conveys the message to People
 
 ### Toor, Galeel, Faran
@@ -118,13 +118,13 @@
 
 ## Tazkia
 
-* __Surah Al-Baqarah 2/151__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quranwbw.com/2/151)
-* __Surah Al-Baqarah 2/174__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quranwbw.com/2/174)
+* __Surah Al-Baqarah 2/151(See also: 2/129; 2/151; 62/2; 3/164)__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quranwbw.com/2/151)
+* __Surah Al-Baqarah 2/174 (ٱلنَّارَ وَلَا يُكَلِّمُهُمُ ٱللَّهُ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quranwbw.com/2/174)
 
 ***
 
-* __Surah Al Imran 3/77__: [Indeed, those who trade Allah’s covenant and their oaths for a fleeting gain will have no share in the Hereafter. Allah will neither speak to them, nor look at them, nor purify them on the Day of Judgment. And they will suffer a painful punishment.](https://quranwbw.com/3/77)
-* __Surah Al Imran 3/164__: [Indeed, Allah has done the believers a ˹great˺ favour by raising a messenger from among them—reciting to them His revelations, purifying them, and teaching them the Book and wisdom. For indeed they had previously been clearly astray.](https://quranwbw.com/3/164)
+* __Surah Al Imran 3/77 (وَلَا يَنظُرُ إِلَيْهِمْ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who trade Allah’s covenant and their oaths for a fleeting gain will have no share in the Hereafter. Allah will neither speak to them, nor look at them, nor purify them on the Day of Judgment. And they will suffer a painful punishment.](https://quranwbw.com/3/77)
+* __Surah Ale-Imran 3/164 (See also: 62/2; 3/164)__: [Indeed, Allah has done the believers a ˹great˺ favour by raising a messenger from among them—reciting to them His revelations, purifying them, and teaching them the Book and wisdom. For indeed they had previously been clearly astray.](https://quranwbw.com/3/164)
 
 *** 
 
@@ -132,11 +132,11 @@
 
 *** 
 
-* __Surah At-Tawbah 9/103__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/9/103)
+* __Surah At-Tawbah 9/103 (خُذْ مِنْ أَمْوَٰلِهِمْ صَدَقَةًۭ تُطَهِّرُهُمْ وَتُزَكِّيهِم بِهَا)__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/9/103)
 
 *** 
 
-* __Surah Taha 20/76__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
+* __Surah Taha 20/76 (وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
 
 *** 
 
@@ -149,15 +149,15 @@
 
 *** 
 
-* __Surah Al-A'la 87/14__: [Successful indeed are those who purify themselves,](https://quranwbw.com/87/14)
+* __Surah Al-A'la 87/14 (قَدْ أَفْلَحَ مَن تَزَكَّىٰ)__: [Successful indeed are those who purify themselves,](https://quranwbw.com/87/14)
   
 *** 
 
-* __Surah Ash-Shams 91/1-10__: [](https://quranwbw.com/91/1-10) Verses 1-10 emphasize that success comes to those who purify their souls, while failure befalls those who corrupt them.
+* __Surah Ash-Shams 91/7-10 (قَدْ أَفْلَحَ مَن زَكَّىٰهَا)__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quranwbw.com/91/7-10) 
 
 ***
 
-* __Surah Al-Layl 92/18__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
+* __Surah Al-Layl 92/18 (يُؤْتِى مَالَهُۥ يَتَزَكَّىٰ)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
 
 ***
 

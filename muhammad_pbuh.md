@@ -14,6 +14,8 @@
 * Ya-aiyuhal muzzammil: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ](https://quranwbw.com/73)
 * Yaaa-ayyuhal muddassir: [يَـٰٓأَيُّهَا ٱلْمُدَّثِّرُ](https://quranwbw.com/74)
 
+#### Quran
+
 *** 
 
 ## [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
@@ -62,6 +64,17 @@
 * __Surah Al-Muzzammil 73/15__: [إِنَّآ أَرْسَلْنَآ إِلَيْكُمْ رَسُولًۭا شَـٰهِدًا عَلَيْكُمْ](https://quran.com/73/15)
 * __Surah An-Nisa 4/41 (See Also: 16/89; 4/41)__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (See Also: 16/89; 4/41)__: [نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
+
+
+#### Quran
+* Nazool: means coming-down-of-something from top
+* Which month: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ](https://quran.com/2/185)
+* Which day/nigh: [إِنَّآ أَنزَلْنَـٰهُ فِى لَيْلَةِ ٱلْقَدْرِ](https://quran.com/97/1)
+* Which place: [ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quran.com/17/1)
+* Who brought it down: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
+* What place it was revealed (Heart of Muhammad): [عَلَىٰ قَلْبِكَ لِتَكُونَ مِنَ ٱلْمُنذِرِينَ](https://quran.com/26/194)
+* Power of Quran: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
+
 
 ***
 

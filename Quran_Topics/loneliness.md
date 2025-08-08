@@ -1,3 +1,7 @@
+* https://iqbalurdu.blogspot.com/2011/04/bal-e-jibril-060-sitaron-se-agay-jahan.html
+
+***
+
 ## Hazrat Bakhtiyar Kaki
 * Faqeer par lazim hai, woh `khalq-e-khuda` say door rahey aur `kam-say-kam` loogaon say mail-jool rakhay
 

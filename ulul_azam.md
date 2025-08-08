@@ -1,1 +1,1 @@
-
+#### ["Ulul Azm"](https://www.google.com/search?q=ullul+azam+nabi+in+quran&oq=ullul+azam+nabi+in+quran&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIJCAEQIRgKGKABMgkIAhAhGAoYoAEyCQgDECEYChigATIJCAQQIRgKGKAB0gEIODAwMWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8)

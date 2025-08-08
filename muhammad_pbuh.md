@@ -7,8 +7,8 @@
 * __Surah 19/12 (Yahya AS: John the Baptist)__: [يَـٰيَحْيَىٰ خُذِ ٱلْكِتَـٰبَ بِقُوَّةٍۢ ۖ](https://quranwbw.com/19/12)
 
 #### Muhammad PBUH 
-* Yaaa-aiyyuhar Rasoolu: https://quranwbw.com/5/67
-* Yaaa-aiyuhan Nabiyyu: https://quranwbw.com/8/64
+* Yaaa-aiyyuhar Rasoolu: [۞ يَـٰٓأَيُّهَا ٱلرَّسُولُ](https://quranwbw.com/5/67)
+* Yaaa-aiyuhan Nabiyyu: [يَـٰٓأَيُّهَا ٱلنَّبِىُّ](https://quranwbw.com/8/64)
 * Taha: https://quranwbw.com/20
 * Yaseen: https://quranwbw.com/36
 * Ya-aiyuhal muzzammil: https://quranwbw.com/73
@@ -16,7 +16,13 @@
 
 *** 
 
-### [Shan-e-Muhammad (SAW) | Allama Talib Johri ](https://www.youtube.com/watch?v=TOvXb6DdwDY)
+### [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
+* [(27) ˹Allah will say to the righteous,˺ “O tranquil soul! (28) Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. (29) So join My servants, (30) and enter My Paradise.”](https://quran.com/89/27-30)
+
+* https://www.google.com/search?q=ullul+azam+nabi+in+quran&oq=ullul+azam+nabi+in+quran&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIJCAEQIRgKGKABMgkIAhAhGAoYoAEyCQgDECEYChigATIJCAQQIRgKGKAB0gEIODAwMWowajeoAgCwAgA&sourceid=chrome&ie=UTF-8
+
+***
+
 ### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
 ### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 ### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)

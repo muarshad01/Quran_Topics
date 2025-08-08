@@ -1,4 +1,21 @@
 ### [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
+* __Surah 2/35 (Adam AS)__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ](https://quranwbw.com/2/35)
+* __Surah 11/48 (Nuh AS)__: [قِيلَ يَـٰنُوحُ ٱهْبِطْ بِسَلَـٰمٍۢ مِّنَّا](https://quranwbw.com/11/48)
+* __Surah 37/104-105 (Abraham AS)__: [.وَنَـٰدَيْنَـٰهُ أَن يَـٰٓإِبْرَٰهِيمُ  قَدْ صَدَّقْتَ ٱلرُّءْيَآ ۚ](https://quran.com/37/104-105)
+* __Surah 28/30 (Moses AS)__: [يَـٰمُوسَىٰٓ إِنِّىٓ أَنَا ٱللَّهُ](https://quranwbw.com/28/30)
+* __Surah 3/55 (Issa AS)__: [يَـٰعِيسَىٰٓ إِنِّى مُتَوَفِّيكَ](https://quranwbw.com/3/55)
+* __Surah 19/12 (Yahya AS: John the Baptist)__: [يَـٰيَحْيَىٰ خُذِ ٱلْكِتَـٰبَ بِقُوَّةٍۢ ۖ](https://quranwbw.com/19/12)
+
+#### Muhammad PBUH 
+* Yaaa-aiyyuhar Rasoolu: https://quranwbw.com/5/67
+* Yaaa-aiyuhan Nabiyyu: https://quranwbw.com/8/64
+* Taha: https://quranwbw.com/20
+* Yaseen: https://quranwbw.com/36
+* Ya-aiyuhal muzzammil: https://quranwbw.com/73
+* Yaaa-ayyuhal muddassir: https://quranwbw.com/74
+
+*** 
+
 ### [Shan-e-Muhammad (SAW) | Allama Talib Johri ](https://www.youtube.com/watch?v=TOvXb6DdwDY)
 ### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
 ### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)

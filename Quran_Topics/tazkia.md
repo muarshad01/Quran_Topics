@@ -101,21 +101,6 @@
 
 ***
 
-#### TODO
-* __Surah 2/273__: [˹Charity is˺ for the needy who are too engaged in the cause of Allah to move about in the land ˹for work˺. Those unfamiliar with their situation will think they are not in need ˹of charity˺ because they do not beg. You can recognize them by their appearance. They do not beg people persistently. Whatever you give in charity is certainly well known to Allah.](https://quranwbw.com/2/273)
-* __Surah 4/36__: [Worship Allah ˹alone˺ and associate none with Him. And be kind to parents, relatives, orphans, the poor, near and distant neighbours, close friends, ˹needy˺ travellers, and those ˹bondspeople˺ in your possession. Surely Allah does not like whoever is arrogant, boastful—](https://quranwbw.com/4/36)
-* __Surah 6/53__: [In this way We have tested some by means of others, so those ˹disbelievers˺ may say, “Has Allah favoured these ˹poor believers˺ out of all of us?” Does Allah not best recognize the grateful?](https://quranwbw.com/6/53)
-* __Surah 9/60-66__: [](https://quranwbw.com/9/60-66)
-* __Surah 11/23__: [Surely those who believe, do good, and humble themselves before their Lord will be the residents of Paradise. They will be there forever.](https://quranwbw.com/11/23)
-* __Surah 12/76__: [Joseph began searching their bags before that of his brother ˹Benjamin˺, then brought it out of Benjamin’s bag. This is how We inspired Joseph to plan. He could not have taken his brother under the King’s law, but Allah had so willed. We elevate in rank whoever We will. But above those ranking in knowledge is the One All-Knowing.](https://quranwbw.com/12/76)
-* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
-* __Surah 25/63__: [The ˹true˺ servants of the Most Compassionate are those who walk on the earth humbly, and when the foolish address them ˹improperly˺, they only respond with peace.](https://quranwbw.com/25/63)
-* __Surah 28/83__: [That ˹eternal˺ Home in the Hereafter We reserve ˹only˺ for those who seek neither tyranny nor corruption on the earth. The ultimate outcome belongs ˹only˺ to the righteous.](https://quranwbw.com/28/83)
-* __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
-* __Surah 90/14-18__: [(14) or to give food in times of famine. (15) ...](https://quranwbw.com/90/14-18)
-  
-***
-
 ## Tazkia
 
 * __Surah Al-Baqarah 2/151(See also: 2/129; 2/151; 62/2; 3/164)__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quranwbw.com/2/151)
@@ -139,6 +124,10 @@
 * __Surah Taha 20/76 (وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
 
 *** 
+
+* __Surah An-Nur 24/21 (وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ)__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
+
+***
 
 * __Surah Al-Jumu'ah 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
 

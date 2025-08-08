@@ -2,14 +2,14 @@
 #### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=Bx590pYgc54)
-#### [Insan aur Nafs ki jung ko handle karny ka wazeefa aur Tasbeeh | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=TZriideoDlA)
+#### [Insan aur Nafs ki jung ko handle karny ka wazeefa-aur-Tasbeeh | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=TZriideoDlA)
 #### [The Three Greatest Tests on Paths of Taqwa](https://www.youtube.com/shorts/b1Gc-uKhzhM)
 
 ***
 
-### Your Lord has taken upon Himself to be Merciful!
-
-* __Surah Al-Anam 6/54__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
+* __Surah Al-Anam 6/54 ( كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ)__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
+* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [(38) Every soul will be detained for what it has done,](https://quran.com/74/38-48)
+* __Surah Al-Hashr 59/9 (وَمَن يُوقَ شُحَّ نَفْسِهِۦ)__: [As for those who had settled in the city and ˹embraced˺ the faith before ˹the arrival of˺ the emigrants, they love whoever immigrates to them, never having a desire in their hearts for whatever ˹of the gains˺ is given to the emigrants. They give ˹the emigrants˺ preference over themselves even though they may be in need. And whoever is saved from the selfishness of their own souls, it is they who are ˹truly˺ successful.](https://quranwbw.com/59/9)
 
 ***
 
@@ -24,23 +24,6 @@
  
 *** 
 
-### Tazkia Nafas
-
-* __Surah Shamas 91/7-9__: [And by the soul and ˹the One˺ Who fashioned it. then with ˹the knowledge of˺ right and wrong inspired it! Successful indeed is the one who purifies their soul.](https://quran.com/91/7-9)
-
-***
-
-### Every Nafas is Pledged
-
-* __Surah Al-Muddaththir 74/38-48__: [Every soul will be detained for what it has done,](https://quran.com/74/38-48)
-
-***
-
-* https://quranwbw.com/2/130
-* https://quranwbw.com/59/9
-
-***
-
 ## Great SUCCESS
 * Defeat your NAFAS
    * You'll get `Izzat, Dulat, Iqtidar of Descendants`
@@ -48,5 +31,3 @@
    * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
 
 ***
-
-* __Surah Ash-Shams 91/7-10__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10)

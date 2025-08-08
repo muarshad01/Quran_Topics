@@ -53,8 +53,14 @@
 
 ***
 
-### [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)
-
+## [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)
+#### Wish of Anbiyaa versus Allah SWT
+* __Surah Ad-Auhaa 93 (Allah SWT)__: [مَا وَدَّعَكَ رَبُّكَ وَمَا قَلَىٰ...وَلَسَوْفَ يُعْطِيكَ رَبُّكَ فَتَرْضَىٰٓ...](https://quran.com/93)
+* __Surah Taa-Haa (Moses AS)__: [۞ وَمَآ أَعْجَلَكَ عَن قَوْمِكَ يَـٰمُوسَىٰ...وَعَجِلْتُ إِلَيْكَ رَبِّ لِتَرْضَىٰ](https://quranwbw.com/20/83-84)
+* __Surah An-Naml (Solomon AS) 27/19__: [...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ...](https://quran.com/27/19)
+* __Surah Al-Ahzaab 33__: [يَـٰٓأَيُّهَا ٱلنَّبِىُّ إِنَّآ أَرْسَلْنَـٰكَ شَـٰهِدًۭا وَمُبَشِّرًۭا](https://quranwbw.com/33/45-47)
+* __Surah Al-Muzzammil 73/15__: [إِنَّآ أَرْسَلْنَآ إِلَيْكُمْ رَسُولًۭا شَـٰهِدًا عَلَيْكُمْ](https://quran.com/73/15)
+* __Surah An-Nisa 4/41__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 ***
 
 ### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)

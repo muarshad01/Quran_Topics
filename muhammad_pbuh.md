@@ -68,6 +68,7 @@
 
 #### Quran
 * Nazool: means coming-down-of-something from top
+* We sent down to you ˹O Prophet˺ a revelation in writing: [وَلَوْ نَزَّلْنَا عَلَيْكَ كِتَـٰبًۭا](https://quran.com/6/7)
 * Which month: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ](https://quran.com/2/185)
 * Which day/nigh: [إِنَّآ أَنزَلْنَـٰهُ فِى لَيْلَةِ ٱلْقَدْرِ](https://quran.com/97/1)
 * Which place: [ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quran.com/17/1)

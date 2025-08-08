@@ -1,4 +1,4 @@
-### [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
+## [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
 * __Surah 2/35 (Adam AS)__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ](https://quranwbw.com/2/35)
 * __Surah 11/48 (Nuh AS)__: [قِيلَ يَـٰنُوحُ ٱهْبِطْ بِسَلَـٰمٍۢ مِّنَّا](https://quranwbw.com/11/48)
 * __Surah 37/104-105 (Abraham AS)__: [.وَنَـٰدَيْنَـٰهُ أَن يَـٰٓإِبْرَٰهِيمُ  قَدْ صَدَّقْتَ ٱلرُّءْيَآ ۚ](https://quran.com/37/104-105)
@@ -16,17 +16,17 @@
 
 *** 
 
-### [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
+## [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
 * __Surah Al-Fajr 89/27-30__: [ يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ ٱرْجِعِىٓ إِلَىٰ رَبِّكِ][(27) ˹Allah will say to the righteous,˺ “O tranquil soul! (28) Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. (29) So join My servants, (30) and enter My Paradise.”](https://quran.com/89/27-30)
 * Muhammad "wapis" aa-jaa (aa-jaa nahi kaha) (Wapis hamaisha watan-aur-ghar-tak kay-liye bola-jaata-hai)
 * Muhammad SAW lives on Arash.
-  
-#### Imaan versus Itminaan (Tranquil)
-*__Surah Al-Ahqaf 46/35 (Ulul Azm)__: [So endure patiently, as did the Messengers of Firm Resolve.1 And do not ˹seek to˺ hasten ˹the torment˺ for the deniers. On the Day they see what they have been threatened with, it will be as if they had only stayed ˹in this world˺ for an hour of a day.2 ˹This is˺ a ˹sufficient˺ warning! Then, will anyone be destroyed except the rebellious people?](https://quranwbw.com/46/35)
+
+#### Ulul Azm
+* __Surah Al-Ahqaf 46/35 (Ulul Azm)__: [So endure patiently, as did the Messengers of Firm Resolve.1 And do not ˹seek to˺ hasten ˹the torment˺ for the deniers. On the Day they see what they have been threatened with, it will be as if they had only stayed ˹in this world˺ for an hour of a day.2 ˹This is˺ a ˹sufficient˺ warning! Then, will anyone be destroyed except the rebellious people?](https://quranwbw.com/46/35)
 
 
-### Qaala (قَالَ) versus Qul (قُلْ)
-* __Surah Taha 20__: [Moses AS...](https://quranwbw.com/20/24-30)
+#### Qaala (قَالَ) versus Qul (قُلْ)
+* __Surah Taha 20 (Moses AS)__: [...ٱذْهَبْ إِلَىٰ فِرْعَوْنَ إِنَّهُۥ طَغَىٰ...وَٱجْعَل لِّى وَزِيرًۭا مِّنْ أَهْلِى ...هَـٰرُونَ أَخِى](https://quranwbw.com/20/24-30)
 * __Surah Al-Israa 17/80__: [And say, “My Lord! Grant me an honourable entrance and an honourable exit and give me a supporting authority from Yourself.”](https://quranwbw.com/17/80)
 
 ***

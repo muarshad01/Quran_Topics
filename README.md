@@ -68,7 +68,7 @@
 |1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | July 2025|
 |2. | [Al-Insan (Humankind)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan_in_quran.md) | July 2025 |
 |3. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
-|4. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | July 2025|
+|4. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | August 07, 2025|
 |5. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/momin.md) |July 28, 2025|
 |6. | [Munafiq (...)] | July 2025|
 |7. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |

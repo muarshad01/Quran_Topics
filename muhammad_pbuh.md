@@ -86,7 +86,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * What place it was revealed (Heart of Muhammad): [عَلَىٰ قَلْبِكَ لِتَكُونَ مِنَ ٱلْمُنذِرِينَ](https://quran.com/26/194)
 * Power of Quran: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
 
-
 ***
 
 ## [Rasool Allah (SAW) ka Seena Chak Huwa? | Allama Talib Johri‬](https://www.youtube.com/watch?v=3Q00tns5azs)
@@ -102,6 +101,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
+
+***
+
 ### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 
 ***
@@ -111,7 +113,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah An-Noor 24/63__: [Do not treat the Messenger’s summons to you ˹as lightly˺ as your summons to one another.1 Allah certainly knows those of you who slip away, hiding behind others.2 So let those who disobey his orders beware, for an affliction may befall them, or a painful torment may overtake them.](https://quranwbw.com/24/63)
 * __Surah 49/2__: [O believers! Do not raise your voices above the voice of the Prophet, nor speak loudly to him as you do to one another, or your deeds will become void while you are unaware.](https://quran.com/49/2)
 * __Surah 49/2__: [Indeed, most of those who call out to you ˹O Prophet˺ from outside ˹your˺ private quarters have no understanding ˹of manners˺.](https://quran.com/49/4)
-
 
 * __Surah Al-Baqarah 2/143 (...جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا...ٱلرَّسُولُ عَلَيْكُمْ شَهِيدًۭا ۗ)__: [And so We have made you ˹believers˺ an upright1 community so that you may be witnesses over humanity and that the Messenger may be a witness over you. We assigned your former direction of prayer only to distinguish those who would remain faithful to the Messenger from those who would lose faith. It was certainly a difficult test except for those ˹rightly˺ guided by Allah. And Allah would never discount your ˹previous acts of˺ faith. Surely Allah is Ever Gracious and Most Merciful to humanity.](https://quranwbw.com/2/143)
 
@@ -123,9 +124,12 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
+
+***
+
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 
-### [Maqam e Mahmood kia hy? | Dr. Muhammad Tahir ul Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
+### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
 
 ***
 

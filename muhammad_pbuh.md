@@ -91,7 +91,6 @@
 ### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 ### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
 ### [Find the love of Prophet PBUH in this life | Walid Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
-
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 
 

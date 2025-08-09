@@ -1,18 +1,21 @@
 ## Love of Allah SWT
 
 ### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
-* You will be with the person at Judgement whom you loved in Dunya
+* You will be with-the-person at Judgement-day, whom you loved in Dunya.
+
+### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.) | مرشد سے سچی محبت](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
 
 ### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
 
-### [Khuda Kabi Kisi Ki Talab Ko Zaya Nahi Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
+### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Akhlas mate-i-faqeer
 * Tujhay zaib nahi deta kah mate-i-faqeer zaya karay
 * Tujhay zaib nahi deta kah teri iss talab ki tahueen hoo
 * Mayn teri tawajah ka talib hoon aur mayn zaroor tughay matloob bana kar choron gaa
 * Khuda nay kabhi kisi talab ko zaya nahi kya
 
-### [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25)
+### Hadith
+* [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25) -- Hadith Qudsi
 * https://www.youtube.com/shorts/RLLIfAJWqJE
 
 ### [ALLAH LOVES : 16 AYATS](https://quranawareness.wordpress.com/allah-loves-16-ayats/)

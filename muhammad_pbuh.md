@@ -142,7 +142,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
   * Abad: The one who is invited on Miraj
   * Nabi: The one who take Naba(Khabar) from Allah SWT
   * Rasool: The messenger, the one who conveys the message to People
-* __Surah An-Najm 53/3__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
+* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
 
 
 ***

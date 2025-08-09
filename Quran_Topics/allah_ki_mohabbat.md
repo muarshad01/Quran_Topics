@@ -5,6 +5,8 @@
 
 ### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.) | مرشد سے سچی محبت](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
 
+### [Abou Ben Adhem](https://www.poetryfoundation.org/poems/44433/abou-ben-adhem)
+
 ### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
 
 ### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)

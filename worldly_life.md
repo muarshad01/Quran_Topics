@@ -1,3 +1,5 @@
-
+* __Surah 10/24__: [The life of this world is just like rain We send down from the sky, producing a mixture of plants which humans and animals consume. Then just as the earth looks its best, perfectly beautified, and its people think they have full control over it, there comes to it Our command by night or by day, so We mow it down as if it never flourished yesterday! This is how We make the signs clear for people who reflect.](https://quran.com/10/24)
+ 
+* __Surah 18/45__: [And give them a parable of this worldly life. ˹It is˺ like the plants of the earth, thriving when sustained by the rain We send down from the sky. Then they ˹soon˺ turn into chaff scattered by the wind. And Allah is fully capable of ˹doing˺ all things.](https://quran.com/18/45)
 
 * __Surah 57/20__: [Know that this worldly life is no more than play, amusement, luxury, mutual boasting, and competition in wealth and children. This is like rain that causes plants to grow, to the delight of the planters. But later the plants dry up and you see them wither, then they are reduced to chaff. And in the Hereafter there will be either severe punishment or forgiveness and pleasure of Allah, whereas the life of this world is no more than the delusion of enjoyment.](https://quranwbw.com/57/20)

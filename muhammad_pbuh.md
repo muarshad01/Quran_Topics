@@ -4,6 +4,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
 * __Surah Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
 * __Surah Al-Fath 48/29__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ](https://quranwbw.com/48/29)
+* __Surah As-Saff 61/6__: [وَإِذْ قَالَ عِيسَى ٱبْنُ مَرْيَمَ يَـٰبَنِىٓ إِسْرَٰٓءِيلَ إِنِّى رَسُولُ ٱللَّهِ إِلَيْكُم مُّصَدِّقًۭا لِّمَا بَيْنَ يَدَىَّ مِنَ ٱلتَّوْرَىٰةِ وَمُبَشِّرًۢا بِرَسُولٍۢ يَأْتِى مِنۢ بَعْدِى ٱسْمُهُۥٓ أَحْمَدُ ۖ فَلَمَّا جَآءَهُم بِٱلْبَيِّنَـٰتِ قَالُوا۟ هَـٰذَا سِحْرٌۭ مُّبِينٌۭ](https://quranwbw.com/61/6)
 
 ***
 
@@ -105,13 +106,20 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
-
+## [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
+#### "Ba adab ba naseeb" -- "With manners comes fortune" -- "With politeness comes luck." 
 * __Surah An-Noor 24/63__: [Do not treat the Messenger’s summons to you ˹as lightly˺ as your summons to one another.1 Allah certainly knows those of you who slip away, hiding behind others.2 So let those who disobey his orders beware, for an affliction may befall them, or a painful torment may overtake them.](https://quranwbw.com/24/63)
 * __Surah 49/2__: [O believers! Do not raise your voices above the voice of the Prophet, nor speak loudly to him as you do to one another, or your deeds will become void while you are unaware.](https://quran.com/49/2)
-* __Surah 49/2__: [Indeed, most of those who call out to you ˹O Prophet˺ from outside ˹your˺ private quarters have no understanding ˹of manners˺.1](https://quran.com/49/4)
+* __Surah 49/2__: [Indeed, most of those who call out to you ˹O Prophet˺ from outside ˹your˺ private quarters have no understanding ˹of manners˺.](https://quran.com/49/4)
 
-* 
+
+* __Surah Al-Baqarah 2/143 (...جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا...ٱلرَّسُولُ عَلَيْكُمْ شَهِيدًۭا ۗ)__: [And so We have made you ˹believers˺ an upright1 community so that you may be witnesses over humanity and that the Messenger may be a witness over you. We assigned your former direction of prayer only to distinguish those who would remain faithful to the Messenger from those who would lose faith. It was certainly a difficult test except for those ˹rightly˺ guided by Allah. And Allah would never discount your ˹previous acts of˺ faith. Surely Allah is Ever Gracious and Most Merciful to humanity.](https://quranwbw.com/2/143)
+
+#### Middle Ummat: (جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا ۗ)
+* Issa AS: Only Forgiveness and no Revenge
+* Jews: No Forgiveness only Revenge and Punishment.
+* Muslims: You can take Qases but if you forgive Allah SWT likes that more: https://quranwbw.com/2/178-179
+
 ***
 
 ### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)

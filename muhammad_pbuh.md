@@ -93,6 +93,7 @@
 ### [Find the love of Prophet PBUH in this life | Walid Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 
+### [Maqam e Mahmood kia hy? | Dr. Muhammad Tahir ul Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
 
 ***
 

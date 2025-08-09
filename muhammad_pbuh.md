@@ -125,3 +125,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah An-Najm 53/3__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
 
 
+***
+
+### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
+
+***

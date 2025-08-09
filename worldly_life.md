@@ -1,1 +1,3 @@
 
+
+* __Surah 57/20__: [Know that this worldly life is no more than play, amusement, luxury, mutual boasting, and competition in wealth and children. This is like rain that causes plants to grow, to the delight of the planters. But later the plants dry up and you see them wither, then they are reduced to chaff. And in the Hereafter there will be either severe punishment or forgiveness and pleasure of Allah, whereas the life of this world is no more than the delusion of enjoyment.](https://quranwbw.com/57/20)

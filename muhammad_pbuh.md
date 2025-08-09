@@ -1,3 +1,12 @@
+## Muhammad PBUH
+The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Quran. 
+* __Surah Al-'Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
+* __Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
+* __Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
+* __Al-Fath 48/29__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ](https://quranwbw.com/48/29)
+
+***
+
 ## [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
 * __Surah 2/35 (Adam AS)__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ](https://quranwbw.com/2/35)
 * __Surah 11/48 (Nuh AS)__: [قِيلَ يَـٰنُوحُ ٱهْبِطْ بِسَلَـٰمٍۢ مِّنَّا](https://quranwbw.com/11/48)

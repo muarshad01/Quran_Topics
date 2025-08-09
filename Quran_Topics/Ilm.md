@@ -2,8 +2,8 @@
 * Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
 
 ***
-
-## [Ilm | Allama Talib Johri | ‪@Naqihassan-p4e‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
+## [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
+## [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
 ## [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
 ## [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
 * https://www.youtube.com/shorts/0ynQ7Tqj_yU

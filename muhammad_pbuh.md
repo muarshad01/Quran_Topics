@@ -9,8 +9,8 @@
 #### Muhammad PBUH 
 * Yaaa-aiyyuhar Rasoolu: [۞ يَـٰٓأَيُّهَا ٱلرَّسُولُ](https://quranwbw.com/5/67)
 * Yaaa-aiyuhan Nabiyyu: [يَـٰٓأَيُّهَا ٱلنَّبِىُّ](https://quranwbw.com/8/64)
-* Taha: https://quranwbw.com/20
-* Yaseen: https://quranwbw.com/36
+* Taha: [طه](https://quranwbw.com/20)
+* Yaseen: [يسٓ](https://quranwbw.com/36)
 * Ya-aiyuhal muzzammil: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ](https://quranwbw.com/73)
 * Yaaa-ayyuhal muddassir: [يَـٰٓأَيُّهَا ٱلْمُدَّثِّرُ](https://quranwbw.com/74)
 

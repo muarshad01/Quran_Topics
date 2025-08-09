@@ -8,6 +8,18 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
+### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+
+***
+
+### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
+
+***
+
+### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
+
+***
+
 ## [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
 * __Surah 2/35 (Adam AS)__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ](https://quranwbw.com/2/35)
 * __Surah 11/48 (Nuh AS)__: [قِيلَ يَـٰنُوحُ ٱهْبِطْ بِسَلَـٰمٍۢ مِّنَّا](https://quranwbw.com/11/48)
@@ -93,18 +105,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah 94/1__: [أَلَمْ نَشْرَحْ لَكَ صَدْرَكَ](https://quranwbw.com/94/1) 
 * __Surah Taa-Haa 20/25__: [قَالَ رَبِّ ٱشْرَحْ لِى صَدْرِى](https://quranwbw.com/20/25)
 * __Surah 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
-
-***
-
-### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
-
-***
-
-### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
-
-***
-
-### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 
 ***
 

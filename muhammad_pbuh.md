@@ -1,9 +1,9 @@
 ## Muhammad PBUH
 The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Quran. 
 * __Surah Al-'Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
-* __Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
-* __Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
-* __Al-Fath 48/29__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ](https://quranwbw.com/48/29)
+* __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
+* __Surah Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
+* __Surah Al-Fath 48/29__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ](https://quranwbw.com/48/29)
 
 ***
 

@@ -1,5 +1,7 @@
 ## Love of Allah SWT
 
+* __Surah 3/31__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quranwbw.com/3/31)
+
 ### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with-the-person at Judgement-day, whom you loved in Dunya.
 

@@ -18,6 +18,11 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah Ad-Duha 93__: [](https://quran.com/93)
 * __Surah An-Nisa 4/41 (see also: 16/89)__: [وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا][So how will it be when We bring a witness from every faith-community and bring you ˹O Prophet˺ as a witness against yours?](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (see also: 4/41)__: [وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
+
+***
+
+### [Hazrat Muhammad saww ki Haqiki Shaan | Fazail Hazrat Muhammad saw | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
+
 ***
 
 ### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)

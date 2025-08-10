@@ -94,12 +94,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 #### Quran
 * Nazool: means coming-down-of-something from top
-* We sent down to you ˹O Prophet˺ a revelation in writing: [وَلَوْ نَزَّلْنَا عَلَيْكَ كِتَـٰبًۭا](https://quran.com/6/7)
-* Which month: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ](https://quran.com/2/185)
+* We sent down to you ˹O Prophet˺ a revelation in writing: [نَزَّلْنَا عَلَيْكَ كِتَـٰبًۭا](https://quran.com/6/7)
+* __Surah An-Nahl__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
+* __Surah__: [ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
 * Which day/nigh: [إِنَّآ أَنزَلْنَـٰهُ فِى لَيْلَةِ ٱلْقَدْرِ](https://quran.com/97/1)
+* Which month: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ](https://quran.com/2/185)
 * Which place: [ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quran.com/17/1)
-* Who brought it down: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
 * What place it was revealed (Heart of Muhammad): [عَلَىٰ قَلْبِكَ لِتَكُونَ مِنَ ٱلْمُنذِرِينَ](https://quran.com/26/194)
+* Who brought it down: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
 * Power of Quran: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
 
 ***

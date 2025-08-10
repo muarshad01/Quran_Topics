@@ -13,6 +13,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
+* __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
 
 ***
 

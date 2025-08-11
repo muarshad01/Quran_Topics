@@ -1,5 +1,8 @@
 #### [Dard-k-Bghair Allah say Ashnayee or Kamil Ustad | Irfan-ul-Haq](https://www.youtube.com/watch?v=HYO6pJUCmmk)
 * Shams-i-Tabrizi was spiritual instructor of Mewlana Jalal ad-Din Muhammad Balkhi, also known as Rumi.
+* Ikhlas
+* 28 prophets in Quran said: We don't want anything form you... 
+* Doesn't want Women, Wealth, Recognition...Self-less person
 
 *** 
 

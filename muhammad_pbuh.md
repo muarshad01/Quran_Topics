@@ -13,6 +13,19 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
+#### Other Prophets
+* __Surah Al-Baqarah 2/213__: [](https://quranwbw.com/2/213)
+* __Surah An-Nahl 16/36__: [](https://quranwbw.com/16/36)
+* __Surah Al-Hadid 57/25__: [](https://quranwbw.com/57/25)
+#### Prophet Muhammad PBUH
+* __Surah Al-Araaf 7/157__: [](https://quranwbw.com/7/157)
+* __Surah Al-Jumma 62/2__:[](https://quranwbw.com/62/2)
+
+* __Surah Al-Muminoon 23/27__: [Nuh AS](https://quranwbw.com/23/27)
+* __Surah At-Tur 52/48__: [Muhammad PBUH](https://quranwbw.com/52/48)
+
+* __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
+* __Surah Al-Fajr 89/27-30__: [](https://quran.com/89/27-30)
 
 ***
 

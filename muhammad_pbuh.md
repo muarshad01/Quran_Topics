@@ -38,7 +38,19 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Hazrat Muhammad saww ki Haqiki Shaan | Fazail Hazrat Muhammad saw | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
+### [Hazrat Muhammad saww ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
+* __Surah Al-Jumma 62/1-3__: [](https://quranwbw.com/62/1-3)
+1. Nabi: 124,000
+2. Rasbool: 313
+3. Ulul Azam: 5 [أُو۟لُوا۟ ٱلْعَزْمِ](https://quran.com/46/35)
+4. Khatamun Nabiyyin: 1
+
+* __Surah 18/110__: [](https://quranwbw.com/18/110)
+* Mayn tum jaisa hoon...tum mujh jaisa naheen 
+
+* __Surah An-Nisa 4/41 (See Also: 16/89; 4/41)__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
+* __Surah An-Nahl 16/89 (See Also: 16/89; 4/41)__: [نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
+
 
 ***
 
@@ -125,6 +137,13 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * What place it was revealed (Heart of Muhammad): [عَلَىٰ قَلْبِكَ لِتَكُونَ مِنَ ٱلْمُنذِرِينَ](https://quran.com/26/194)
 * Who brought it down: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
 * Power of Quran: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
+
+#### Quran Muhammad PBUH
+* __Surah An-Nahl 16/89 (Rehmat for Muslimeen)__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
+* __Surah 4/113__: [وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
+* __Surah 42/52__ : [وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quranwbw.com/42/52)
+* __Surah 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
+* __Surah 1/2__: [ٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/1/2)
 
 ***
 

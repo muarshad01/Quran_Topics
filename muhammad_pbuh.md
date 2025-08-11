@@ -24,6 +24,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah Al-Muminoon 23/27__: [Nuh AS](https://quranwbw.com/23/27)
 * __Surah At-Tur 52/48__: [Muhammad PBUH](https://quranwbw.com/52/48)
 
+#### 
 * __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
 * __Surah Al-Fajr 89/27-30__: [](https://quran.com/89/27-30)
 
@@ -138,12 +139,17 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * Who brought it down: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
 * Power of Quran: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
 
-#### Quran Muhammad PBUH
+#### (Quran == Muhammad PBUH) & (Muhammad PBUH > Quran)
 * __Surah An-Nahl 16/89 (Rehmat for Muslimeen)__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
 * __Surah 4/113__: [وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
 * __Surah 42/52__ : [وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quranwbw.com/42/52)
 * __Surah 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
 * __Surah 1/2__: [ٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/1/2)
+
+#### Ibrahim AS versus Muhammad PBUH
+* __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
+* __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
+* aa-jaa -- wapis-aaa-jaa
 
 ***
 

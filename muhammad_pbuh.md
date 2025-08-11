@@ -8,11 +8,12 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
 
 ***
 
-### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
+
+### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 
 ***
 

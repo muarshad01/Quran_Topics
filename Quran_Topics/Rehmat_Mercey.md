@@ -1,3 +1,7 @@
+#### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY&t=1s)
+
+***
+
 #### [Hmain kesay Pata Chalay Hum Rehmat kay Hasar Mayn Hnn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
 * Self-monitoring
 * Understands Deen

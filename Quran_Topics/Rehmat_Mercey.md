@@ -1,6 +1,7 @@
-#### [Dard k bghair Allah say ashnayee or kamil ustad | Irfan-ul-Haq](https://www.youtube.com/watch?v=HYO6pJUCmmk)
+#### [Dard-k-Bghair Allah say Ashnayee or Kamil Ustad | Irfan-ul-Haq](https://www.youtube.com/watch?v=HYO6pJUCmmk)
+* Shams-i-Tabrizi was spiritual instructor of Mewlana Jalal ad-Din Muhammad Balkhi, also known as Rumi.
 
-***
+*** 
 
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY&t=1s)
 

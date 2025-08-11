@@ -3,7 +3,9 @@
 * Ikhlas
 * 28 prophets in Quran said: We don't want anything form you... 
 * Doesn't want Women, Wealth, Recognition...Self-less person
-
+* If your lagan is sachi, you'll find a good teacher / ustaad.
+* Ya Allah, mujhay achi rahnamai-wala banda-ataa-farma.
+  
 *** 
 
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY&t=1s)

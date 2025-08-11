@@ -180,3 +180,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 
 ***
+
+### [Name محمد Inside Spiritual | Irfan-ul-Haq](https://www.youtube.com/watch?v=rWrGxXi-3wE)
+
+***

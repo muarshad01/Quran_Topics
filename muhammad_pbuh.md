@@ -12,6 +12,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
+### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
+
+***
+
 ### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
 * __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
 * __Surah 49/1-2__: [لَا تُقَدِّمُوا۟ بَيْنَ يَدَىِ ٱللَّهِ وَرَسُولِهِۦ ۖ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ](https://quran.com/49/1-2)

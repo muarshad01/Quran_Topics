@@ -1,3 +1,6 @@
+#### [The Olive Tree in Surah Noor | SSA Shah](https://www.youtube.com/shorts/KQq1DEkEf3g)
+***
+
 ## [Surah Noor - Ayat 35](https://quran.com/24/35)
 * Allah SWT is the `Light (Noor) of the Heavens and the Earth`
 * Concentric Circles

@@ -8,6 +8,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
+### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
+
+***
+
 ### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
 
 ***

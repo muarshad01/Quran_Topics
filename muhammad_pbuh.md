@@ -17,11 +17,19 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 
-### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
-* __Surah 92/1-4__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
-* __Surah 57/20__: [ٱعْلَمُوٓا۟ أَنَّمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا لَعِبٌۭ وَلَهْوٌۭ وَزِينَةٌۭ وَتَفَاخُرٌۢ بَيْنَكُمْ وَتَكَاثُرٌۭ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ ۖ](https://quranwbw.com/57/20)
+## [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+* __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
+#### Insaan versus Ale-Muhammad 
+* __Surah 57/20 (Whole Human Life)__: [ٱعْلَمُوٓا۟ أَنَّمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا لَعِبٌۭ وَلَهْوٌۭ وَزِينَةٌۭ وَتَفَاخُرٌۢ بَيْنَكُمْ وَتَكَاثُرٌۭ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ ۖ](https://quranwbw.com/57/20)
+* __Surah 6/162 (Whole life or Prophet PBUH for Allah SWT)__: [قُلْ إِنَّ صَلَاتِى وَنُسُكِى وَمَحْيَاىَ وَمَمَاتِى لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quranwbw.com/6/162)
+
+* Based on Islamic tradition, the story of __Bahira, a Christian monk__, recognizing the signs of prophethood in young Muhammad (then accompanied by his uncle Abu Talib) is widely known.
+
+* __Surah 5/15__: [قَدْ جَآءَكُم مِّنَ ٱللَّهِ نُورٌۭ وَكِتَـٰبٌۭ مُّبِينٌۭ](https://quranwbw.com/5/15)
+#### Hadith
+* [Yazid b. Hayyan reported, I went along with Husain b. Sabra and 'Umar b. Muslim to Zaid b. Arqam and, as we sat by his side, Husain said to him: Zaid. you have been able to acquire a great virtue that you saw Allah's Messenger (ﷺ) listened to his talk, fought by his side in (different) battles, offered prayer behind me. Zaid, you have in fact earned a great virtue. Zaid, narrate to us what you heard from Allah's Messenger (ﷺ). He said: I have grown old and have almost spent my age and I have forgotten some of the things which I remembered in connection with Allah's Messenger (ﷺ), so accept whatever I narrate to you, and which I do not narrate do not compel me to do that. He then said: One day Allah's Messenger (ﷺ) stood up to deliver sermon at a watering place known as Khumm situated between Mecca and Medina. He praised Allah, extolled Him and delivered the sermon and. exhorted (us) and said: Now to our purpose. O people, I am a human being. I am about to receive a messenger (the angel of death) from my Lord and I, in response to Allah's call, (would bid good-bye to you), but ==> I am leaving among you two weighty things: the one being the Book of Allah in which there is right guidance and light, so hold fast to the Book of Allah and adhere to it. He exhorted (us) (to hold fast) to the Book of Allah and then said: The second are the members of my household I remind you (of your duties) to the members of my family. He (Husain) said to Zaid: Who are the members of his household? Aren't his wives the members of his family? Thereupon he said: His wives are the members of his family (but here) the members of his family are those for whom acceptance of Zakat is forbidden. And he said: Who are they? Thereupon he said: 'Ali and the offspring of 'Ali, 'Aqil and the offspring of 'Aqil and the offspring of Ja'far and the offspring of 'Abbas. Husain said: These are those for whom the acceptance of Zakat is forbidden. Zaid said: Yes.](https://sunnah.com/muslim:2408a) -- Sahih Muslim 2408a
+* __Surah 2/260 (Abraham AS)__: [رَبِّ أَرِنِى كَيْفَ تُحْىِ ٱلْمَوْتَىٰ ۖ قَالَ أَوَلَمْ تُؤْمِن ۖ قَالَ بَلَىٰ وَلَـٰكِن لِّيَطْمَئِنَّ قَلْبِى ۖ](https://quranwbw.com/2/260)
 * __Surah 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
-* __Surah 6/162__: [قُلْ إِنَّ صَلَاتِى وَنُسُكِى وَمَحْيَاىَ وَمَمَاتِى لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quranwbw.com/6/162)
 * __Surah 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quranwbw.com/17/1)
 
 

@@ -1,3 +1,7 @@
+#### [Namaaz-e-Ishq](https://www.youtube.com/shorts/scudC5_27L0)
+
+***
+
 #### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
 * Discipline (Timing, Commitment, ...)
 * Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...

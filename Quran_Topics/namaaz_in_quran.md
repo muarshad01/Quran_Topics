@@ -1,4 +1,4 @@
-#### [Namaaz-e-Ishq](https://www.youtube.com/shorts/scudC5_27L0)
+#### [Namaaz-e-Ishq | Irfan-ul-Haq](https://www.youtube.com/shorts/scudC5_27L0)
 
 ***
 

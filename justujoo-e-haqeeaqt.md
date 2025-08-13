@@ -1,5 +1,10 @@
 ### Mann Rabbuka?
 
+```
+jalva ba-qadr-e-zarf nazar dekhte rahe
+kyā dekhte ham un ko magar dekhte rahe
+```
+
 ***
 
 * Ye Aik Sajda Jise Tu Giran Samajhta Hai - Dr. Allama Iqbal

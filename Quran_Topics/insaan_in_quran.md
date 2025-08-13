@@ -87,3 +87,4 @@
 ***
 
 https://quranwbw.com/14/34
+* __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)

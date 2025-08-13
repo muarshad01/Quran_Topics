@@ -18,7 +18,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 
 ### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
-
+* __Surah 92/1-4__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
 * __Surah 57/20__: [ٱعْلَمُوٓا۟ أَنَّمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا لَعِبٌۭ وَلَهْوٌۭ وَزِينَةٌۭ وَتَفَاخُرٌۢ بَيْنَكُمْ وَتَكَاثُرٌۭ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ ۖ](https://quranwbw.com/57/20)
 * __Surah 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
 * __Surah 6/162__: [قُلْ إِنَّ صَلَاتِى وَنُسُكِى وَمَحْيَاىَ وَمَمَاتِى لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quranwbw.com/6/162)

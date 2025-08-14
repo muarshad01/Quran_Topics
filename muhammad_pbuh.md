@@ -250,3 +250,5 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [Name محمد Inside Spiritual | Irfan-ul-Haq](https://www.youtube.com/watch?v=rWrGxXi-3wE)
 
 ***
+
+### [MUHAMMAD (PBUH) NE KAMYABI KI ZINDAGI GUZARNE KE LIYE YE CHEEZ SIKHAI | Irfan ul Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)

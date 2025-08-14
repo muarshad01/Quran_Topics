@@ -44,5 +44,6 @@
 
 * __Surah 27/15__: [Indeed, We granted knowledge to David and Solomon. And they said ˹in acknowledgment˺, “All praise is for Allah Who has privileged us over many of His faithful servants.”](https://quran.com/27/15)
 
+* __Surah Al-Anbiyaa 21/79__: [](https://quranwbw.com/21/79)
 
-https://quranwbw.com/21/79
+* __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)

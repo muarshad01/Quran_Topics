@@ -1,3 +1,8 @@
+### [Rishtay Aur Sabr-o-Bardasht](https://www.youtube.com/shorts/MDFbeKDnm9I)
+* Faqeer wo hai, jis-nay dunya-ko-dukhraya
+
+***
+
 ### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
 ***
 

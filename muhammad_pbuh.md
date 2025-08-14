@@ -33,9 +33,16 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah 89/27-30 (Muhammad PBUH)__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
 
 
-* __Surah 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quranwbw.com/17/1)
+#### Abd offers + Prayer
+* __Surah 96/9-19__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quran.com/96/9-10)
+* Rooh niyat karti hay...jims Namaaz partha hai
+* Abd = Rooh + Jism
+* __Surah Al-Israa 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quranwbw.com/17/1)
+* If you cross/go-beyond your limits...you'll be burnt.
 
-
+### Noor
+* __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
+* __Surah Ash-SHuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
 
 ***
 

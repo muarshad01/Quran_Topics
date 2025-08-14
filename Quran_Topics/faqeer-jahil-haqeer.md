@@ -1,3 +1,6 @@
+### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
+***
+
 ### [Apni-Zaat Ka Irfan](https://www.youtube.com/shorts/lcy6z2eAF5c)
 * Shah Hussain said, "Mayn nahi sabb Tuhi".
 * __Surah Faatir 35/10 (All Izzat)__: [All Respests are for Allah SWT](https://quranwbw.com/35/10)

@@ -90,29 +90,29 @@
 
 ***
 
-## Digit 9
+## Digit (9)
 
-* __Surah 39/9 (Ilm)__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
+* __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
 
-* __Surah Ahzab 33/72 (Jahil)__: [Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quranwbw.com/33/72)
+* __Surah Ahzab 33/72 (Zalim & Jahil)__: [وَحَمَلَهَا ٱلْإِنسَـٰنُ ۖ إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا][Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quranwbw.com/33/72)
 
 * __Surah 31/27 (All Trees & & Oceans)__: [If all the trees on earth were pens and the ocean ˹were ink˺, refilled by seven other oceans, the Words of Allah would not be exhausted. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/31/27)
 
 ***
 
 ## Digit (10)
-* __Surah Kahf__: [](https://quran.com/18/109)
-* __Surah Faatir 35/10 (All Izzat belong to Allah SWT)__: [falillaahil izzatu jamee'aa](https://quranwbw.com/35/10)
+* __Surah Al-Kahf 18/109 (Total 110 Ayats)__: [](https://quran.com/18/109)
+* __Surah Faatir 35/10 (All Izzat belong to Allah SWT)__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quranwbw.com/35/10)
 ***
 
 ## Digit (11): 29 = 2 + 9 = 11 
-* `2 + 9 = 11 ~ 1 (Creator) AND 1 (Creation)`
+* __Allah (11)__: `2 + 9 = 11 ~ 1 (Creator) AND 1 (Creation)`
    * Creator: `Allah SWT`
    * Creation: `Prophet Muhammad PBUH`
 * Two parallel lines represts `INFINITE in Geometry`.
-* `Muhammad PBUH` name (`Muhammad`) has `Meem (40) + Hay (8) + Meem(40) + Daal(4) = 9 + 2 = 11` adads
-* Surah Muhammad is 47th surah of Quran - `4 + 7 = 11`
-* `Hazrat Imam Ali Karam Ali Wajhu` name (`Ali`) has `Ain (70) + Laam (30) + Yah (10) = 110 = 1 + 1 + 0 = 11` adads
+* __Muhammad (11)__: `Muhammad PBUH` name (`Muhammad`) has `Meem (40) + Hay (8) + Meem(40) + Daal(4) = 9 + 2 = 11` adads
+* Surah Muhammad is 47th surah of Quran - `4 + 7 = 11` and has 38 Ayats = 3 + 8 = 11 adads
+* __Ali (11)__: `Hazrat Imam Ali Karam Ali Wajhu` name (`Ali`) has `Ain (70) + Laam (30) + Yah (10) = 110 = 1 + 1 + 0 = 11` adads
    * I am the city of knowledge and Ali AS is the door - Hadith
    * Sword of Allah SWT 
 
@@ -232,13 +232,13 @@
 
 ***
 
-## Digit 44
-* https://quranwbw.com/17/44
+## Digit (44)
+* __Surah AL-Israa (Every Atom of Universise does Tasbeeh)__: [تُسَبِّحُ لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quranwbw.com/17/44)
 
 ***
 
-## Digit 53
-https://quran.com/39/53
+## Digit (53)
+* __Surah Az-Zumar 39/53__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ ٥٣](https://quran.com/39/53)
 
 ***
 
@@ -248,7 +248,7 @@ https://quran.com/39/53
 
 ## Digit 59
 * Keys of Unseen
-* [Leafs fall with His knowlege]https://quranwbw.com/6/59
+* __Surah Al-Anaam 6/59__: [Leafs fall with His knowlege](https://quranwbw.com/6/59)
 
 ***
 
@@ -306,5 +306,6 @@ https://quran.com/39/53
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 

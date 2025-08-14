@@ -4,6 +4,12 @@
 
 ***
 
+### Tumhara Aur Rabb Ka Rishta Sirf Shukar Ka Hai
+* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quranwbw.com/76/3)
+* __Surah Al-Insan 76/1-3__: [Is there not a period of time when each human is nothing yet worth mentioning?](https://quranwbw.com/76/1-3)
+
+***
+
 #### [Shukar kiya hai? | Allama Talib Johri](https://www.youtube.com/watch?v=3-AbnR0XkTA)
 * __Surah An-Nisaa 4/69 ()__: [And whoever obeys Allah and the Messenger will be in the company of those blessed by Allah: the prophets, the people of truth, the martyrs, and the righteous—what honourable company!](https://quranwbw.com/4/69)
 * __Surah Nahl 16/71-72__: [(71) And Allah has favoured some of you over others in provision. But those who have been much favoured would not share their wealth with those ˹bondspeople˺ in their possession, making them their equals.1 Do they then deny Allah’s favours? (72) And Allah has made for you spouses of your own kind, and given you through your spouses children and grandchildren.1 And He has granted you good, lawful provisions. Are they then faithful to falsehood and ungrateful for Allah’s favours?](https://quran.com/16/71-72)
@@ -129,9 +135,5 @@
 
 * __Surah Al-Mulk 67/23__: [Say, ˹O Prophet,˺ “He is the One Who brought you into being and gave you hearing, sight, and intellect. ˹Yet˺ you hardly give any thanks.”](https://quranwbw.com/67/23)
 
-***
-
-* __Surah Al-Insan 76/3__: [We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quranwbw.com/76/3)
-* __Surah Al-Insan 76/1-3__: [Is there not a period of time when each human is nothing yet worth mentioning?](https://quranwbw.com/76/1-3)
 
 *** 

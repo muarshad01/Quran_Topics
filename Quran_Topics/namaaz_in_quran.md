@@ -2,6 +2,10 @@
 
 ***
 
+#### [Jumman Sayat for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
+
+***
+
 #### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
 * Discipline (Timing, Commitment, ...)
 * Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...

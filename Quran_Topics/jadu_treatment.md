@@ -1,3 +1,7 @@
+### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
+
+***
+
 ### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
 
 ***

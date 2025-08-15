@@ -81,7 +81,7 @@
 |---|---|---|
 |1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md) | July 28, 2025|
 |2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets.md) | July 2025|
-|3. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/muhammad_pbuh.md) | August 2025
+|3. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/muhammad_pbuh.md) | August 15, 2025
 |4. | [Abraham](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Ibrahim_AS.md) | August 04, 2025|
 |5. | [Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  | August 06, 2025|
 |6. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|

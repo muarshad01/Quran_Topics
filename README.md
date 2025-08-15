@@ -45,6 +45,8 @@
 * __Surah Al-Waqiah__: [How can you then take this message lightly,](https://quranwbw.com/56/81)
 * __Surah Anaam(Event Wet & Dry Atom...Leaf)__: [](https://quran.com/6/59)
 
+* 18/54
+
 ***
 ***
 

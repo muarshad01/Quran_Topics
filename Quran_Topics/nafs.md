@@ -31,3 +31,9 @@
    * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
 
 ***
+
+## Insaan & `Ehd-e-Alast`
+* Mazhar-e-zaat-e-khuda
+* __Surah Al-Araf 7/172__ :[˹Allah asked,˺ “Am I not your Lord?” They replied, “Yes, You are! We testify.” ˹He cautioned,˺ “Now you have no right to say on Judgment Day, ‘We were not aware of this.’](https://quran.com/7/172)
+
+***

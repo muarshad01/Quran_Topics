@@ -52,7 +52,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah At-Tahrim 66/8__: [يَوْمَ لَا يُخْزِى ٱللَّهُ ٱلنَّبِىَّ وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ ۖ...نُورُهُمْ يَسْعَىٰ بَيْنَ أَيْدِيهِمْ وَبِأَيْمَـٰنِهِمْ](https://quran.com/66/8)
 * Saath Imaan-Lai (Ma'ahu)
 * __Surah Al-Furqan 25/35__: [وَجَعَلْنَا مَعَهُۥٓ أَخَاهُ هَـٰرُونَ وَزِيرًۭا](https://quran.com/25/35)
-* __Surah 57/13__: [يَوْمَ يَقُولُ ٱلْمُنَـٰفِقُونَ وَٱلْمُنَـٰفِقَـٰتُ لِلَّذِينَ ءَامَنُوا۟ ٱنظُرُونَا نَقْتَبِسْ مِن نُّورِكُمْ](https://quranwbw.com/57/13)
+* __Surah 57/13__: [يَوْمَ يَقُولُ ٱلْمُنَـٰفِقُونَ وَٱلْمُنَـٰفِقَـٰتُ لِلَّذِينَ ءَامَنُوا۟ ٱنظُرُونَا نَقْتَبِسْ مِن نُّورِكُمْ...قِيلَ ٱرْجِعُوا۟ وَرَآءَكُمْ فَٱلْتَمِسُوا۟ نُورًۭا](https://quranwbw.com/57/13)
+* __Surah 3/61__: [Now, whoever disputes with you ˹O Prophet˺ concerning Jesus after full knowledge has come to you, say, “Come! Let us gather our children and your children, our women and your women, ourselves and yourselves—then let us sincerely invoke Allah’s curse upon the liars.”](https://quranwbw.com/3/61)
 
 ***
 

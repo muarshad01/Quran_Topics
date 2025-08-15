@@ -1,3 +1,11 @@
+### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
+
+* __Surah 6/59__: [](https://quranwbw.com/6/59-60)
+* __Surah 62/2__: [](https://quranwbw.com/62/2)
+* __Surah 87/6__: [](https://quranwbw.com/87/6)
+
+***
+
 ### [The True Path to ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
 * Ilm ki Neharain = 81,000
 * 

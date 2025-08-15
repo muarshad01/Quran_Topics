@@ -1,4 +1,26 @@
-### [Bad nazar say bachnay ka tariqa  Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
+### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
+
+```
+Ye Faizan-e-Nazar Tha Ya Ke Maktab-Ki-Karamat Thi
+Sikhaye Kis Ne Ismaeel (A.S.) Ko Adaab-e-Farzandi
+```
+
+#### Three Qualities
+1. Faizan-e-Nazar
+2. Maktab-Ki-Karamat
+3. Adaab-e-Farzandi
+
+#### Three Personalities
+1. Abraham AS
+2. Hajra AS
+3. Ismael AS
+
+```
+Khird-Ke-Paas Khabar-Ke-Siwa Kuch-Aur-Nahin
+Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
+```
+* __Surah 2/104__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَقُولُوا۟ رَٰعِنَا وَقُولُوا۟ ٱنظُرْنَا وَٱسْمَعُوا۟ ۗ](https://quranwbw.com/2/104)
+* Unzurna: Nazr-e-Karam adhir Pharayee
 
 ***
 

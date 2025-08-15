@@ -12,15 +12,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
-
-***
-
-### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
-
-***
-
-
 ## [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 * __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
 #### Insaan versus Ale-Muhammad 
@@ -271,5 +262,13 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=m7eYm-wQkD8)
 * 1/2-Ummat-Bakhshih versus Shafaat
 * Purity of Speech and Hospitality
+
+***
+
+### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
+
+***
+
+### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
 
 ***

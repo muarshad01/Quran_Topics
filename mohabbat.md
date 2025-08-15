@@ -2,4 +2,6 @@
 
 * Shamsuddin Turk Pani Pati
 * Sabir Piya Kaliyari
+* When you love someone...follow his do / don't ...reach Rabb.
+  
 ### [Sabir Piya Kaliyari Aur Shamsuddin Turk Pani Pati | Sabir Pak Ka Waqia | Shamsuddin Turk Panipati](https://www.youtube.com/watch?app=desktop&v=vAQV1gRLnqg)

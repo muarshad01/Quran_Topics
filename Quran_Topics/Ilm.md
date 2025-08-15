@@ -1,6 +1,20 @@
+## Total Aloom for Insaan
+* 81,000
+
+#### Aloom-e-Batni (Rohani Aloom) 
+* Total Nehers of Alooms are 118 (114 + 4).
+* Allah SWT has kept 4 with himself. Ilm-e-ghyab is part of them:
+1. Alm-e-ghybb Alqaa
+2. Alm-e-ghyab Ilhami
+3. Alm-e-ghyab Imtani
+4. Alm-e-ghyab Ataii
+  
+***
+
 ## `Ilm-e-Ludni`
 * Tamaam-aloom ka ahataa-karta-hai
 * Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
+
 #### Hadith
 * Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
 * Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith

@@ -1,5 +1,9 @@
 ## Munafiqoon
 
+* __Surah 57/13__: [يَوْمَ يَقُولُ ٱلْمُنَـٰفِقُونَ وَٱلْمُنَـٰفِقَـٰتُ لِلَّذِينَ ءَامَنُوا۟ ٱنظُرُونَا نَقْتَبِسْ مِن نُّورِكُمْ](https://quranwbw.com/57/13)
+
+***
+
 #### [Ibadat Bohothai Lekin Kuch Qabool Nahi Horha | Irfan-ul-Haq](https://www.youtube.com/watch?v=zRSo6AB5W1o)
 * The chief of the hypocrites, __Abdullah bin Ubayy bin Salul__, the enemy of the Prophet. Abdullah bin Ubayy's full name is Abdullah bin Ubayy bin Salul, after his mother.
 * Masjid al-Dirar

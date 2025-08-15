@@ -1,3 +1,7 @@
+### [Bad nazar say bachnay ka tariqa  Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
+
+***
+
 ### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
 
 ***

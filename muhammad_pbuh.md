@@ -251,8 +251,12 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [MUHAMMAD (PBUH) NE KAMYABI KI ZINDAGI GUZARNE KE LIYE YE CHEEZ SIKHAI | Irfan ul Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)
+### [Muhammad (PBUH) Ne Kamyabi Ki Zindagi Guzarne Ke Liye Ye Cheez Sikhai | Irfan-ul-Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)
 
 ***
 
-### [When Prophet Muhammad decided what to accept Shafaat Or Bakshish | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=m7eYm-wQkD8)
+### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=m7eYm-wQkD8)
+* 1/2-Ummat-Bakhshih versus Shafaat
+* Purity of Speech and Hospitality
+
+***

@@ -1,3 +1,9 @@
+### [Discover the Path to Spiritual Sight | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
+* Rooh-ki-parwaz, insaan kay ilam-kay-saath directly proportionate hai.
+* Ilm kay muqaam kay hisab say, uski Rooh ko saer-karney-ki ijazat-milti-hai
+
+***
+
 ### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
 
 * __Surah 6/59__: [](https://quranwbw.com/6/59-60)

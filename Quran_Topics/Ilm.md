@@ -1,7 +1,13 @@
+### [The True Path to ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
+* Ilm ki Neharain = 81,000
+* 
+
+***
 
 * Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
 
 ***
+
 ## [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
 ## [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
 ## [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)

@@ -252,6 +252,22 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ### [Name محمد Inside Spiritual | Irfan-ul-Haq](https://www.youtube.com/watch?v=rWrGxXi-3wE)
 
+* 1 `Meem`:
+  * `Mohabbat` of Allah SWT with Rasool Allah SAW
+  * `Madad` promise
+  * `Manoos` hona ...unsiayat-ka-izhaar
+  * Everytime there is Azan in kinaat
+  * Bay-panah izzat-kiya-gaya
+  * Bay-panah tareef-kiya-gaya
+* 2 `Hay`: Haq
+* 3 `Meem`: Muhabbat of Makhlooq with Rasool Allah SAW
+* 4 `Daal`: Dawat, Durastagi
+
+* `Muhammad PBUH` (Name in this World)
+* `Ahmed` (Name in the Heavens)
+* `Mehmood` (After you passed away and in the life hereafter)
+* __Surah Al-Israa 17/79__: [And in some parts of the night (also) offer the Salat (prayer) with it (i.e. recite the Quran in the prayer), as an additional prayer (Tahajjud optional prayer Nawafil) for you (O Muhammad SAW). It may be that your Lord will raise you to Maqaman-Mahmuda](https://quranwbw.com/17#79)
+
 ***
 
 ### [Muhammad (PBUH) Ne Kamyabi Ki Zindagi Guzarne Ke Liye Ye Cheez Sikhai | Irfan-ul-Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)

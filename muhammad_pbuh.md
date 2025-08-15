@@ -256,6 +256,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Muhammad (PBUH) Ne Kamyabi Ki Zindagi Guzarne Ke Liye Ye Cheez Sikhai | Irfan-ul-Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)
+* Syed-ul-Anbiyaa
+* Syed-ul-Maliaka
+* __Surah Al-Alaq 96/9-10__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quranwbw.com/96/9-10)
+* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا](https://quran.com/17/1)
+* Abad: Rooh + Jism
+* Jibraeel: If I go beyond my limits...I'll burn...
+* Allah SWT: Abadi, I create this whole universe for you...
+* Prophet PBUH: I leave this whole universe for you...
 
 ***
 

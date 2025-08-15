@@ -39,7 +39,7 @@
 * __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quranwbw.com/54/17)
 
 
-* __Surah Al-Alaa 87/6__: [We will have you recite ˹the Quran, O  Prophet,˺ so you will not forget ˹any of it˺,](https://quranwbw.com/87/6)
+* __Surah Al-Alaa 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ][We will have you recite ˹the Quran, O  Prophet,˺ so you will not forget ˹any of it˺,](https://quranwbw.com/87/6)
 
 * __Surah Al-Waqiah__: [touched by none except the purified ˹angels˺.](https://quranwbw.com/56/79)
 * __Surah Al-Waqiah__: [How can you then take this message lightly,](https://quranwbw.com/56/81)

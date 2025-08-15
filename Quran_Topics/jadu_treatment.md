@@ -4,7 +4,9 @@
 Ye Faizan-e-Nazar Tha Ya Ke Maktab-Ki-Karamat Thi
 Sikhaye Kis Ne Ismaeel (A.S.) Ko Adaab-e-Farzandi
 ```
-
+* Faizan-e-Nazar: Naseeb waloon ko Naseeb hota hai
+* Mohabbat-bhari tawajah; Acha-guman dusray-kay-liye
+    
 #### Three Qualities
 1. Faizan-e-Nazar
 2. Maktab-Ki-Karamat

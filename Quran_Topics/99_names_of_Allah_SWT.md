@@ -1,3 +1,9 @@
+### Allah Names in Quran
+* ONE name `Allah` is `Ism-e-Zaat`
+* 98 other names are `Ism-e-siffat`
+
+***
+
 ### [Why 99 Names of Allah, What is Secret Behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=OY7VFzZtLkg)
 
 ### [Why 99 names of Allah, What is the secret behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=eT7nwiIPkI8)
@@ -43,3 +49,5 @@ https://99namesofallah.name/
 
 
 ### [Meaning Virtues and Benefits of Name Al-Wahabu By Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
+
+***

@@ -1,3 +1,15 @@
+## `Ilm-e-Ludni`
+* Tamaam-aloom ka ahataa-karta-hai
+* Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
+#### Hadith
+* Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
+* Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith
+   
+#### `Shahibaan-e-Ilm-o-Baatin`,`Mardaan-e-Haq`
+* Mehnat, Mushaqat, Koshish, Jadd-o-Jehad, Riazat, Mujahida, Mushahida is for Musilman.
+
+***
+
 ### [Discover the Path to Spiritual Sight | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
 * Rooh-ki-parwaz, insaan kay ilam-kay-saath directly proportionate hai.
 * Ilm kay muqaam kay hisab say, uski Rooh ko saer-karney-ki ijazat-milti-hai

@@ -1,4 +1,7 @@
 #### [The Olive Tree in Surah Noor | SSA Shah](https://www.youtube.com/shorts/KQq1DEkEf3g)
+***
+
+#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
 
 ***
 

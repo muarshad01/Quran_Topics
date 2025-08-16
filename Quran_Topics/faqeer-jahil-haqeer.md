@@ -3,6 +3,12 @@
 
 ***
 
+## Hazrat Daata Jang-Baksh
+* Faqeer par lazim-hai, kay-woh doosron-ki-khidmat iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, faqeer-par ihsaan kar-rahay-hayn.
+
+***
+
+
 ### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
 ***
 

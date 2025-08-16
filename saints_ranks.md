@@ -1,7 +1,8 @@
-## `Haqq, Haqq, Haqq` - Naaraa
-* `Khwaja Moinuddin Chishti` [1143 - 1236 = 93 years]
-    * Qutbuddin Bakhtiar Kaki [1173 - 1235 = 62 years]
-        * `Baba Fareed` [1173 – 1266 = 93 years]
-            * `Alauddin Ali Ahmed Sabir` [1196 – 1291 = 95 years] also known as `Sabir Kaliyari`. Nephew and successor to Baba Fareed.
+## Haqq, Haqq, Haqqc- Naaraa
+* Khwaja Moin-ud-din Chishti                  [1143 - 1236 = 93 years]
+* Qutb-ud-din Bakhtiar Kaki                   [1173 - 1235 = 62 years]
+* Baba Farid-ud-din Ganj-shakar`              [1173 – 1266 = 93 years]
+* Ala-ud-din Ali Ahmed Sabir (Sabir Kaliyari) [1196 – 1291 = 95 years]
+   * Nephew and successor to Baba Fareed.
 
 ***

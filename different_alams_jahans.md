@@ -12,4 +12,12 @@
 * `Alam-e-Malakoot`: The Angels
 * `Alam-e-NaSoot`: The place where we live
 
+***
 
+## [Number of Galaxaies and Universe](https://www.youtube.com/watch?v=qdDS6KaljJA)
+* Jahans or Galaxies (70,000)
+  * A Collection of stars
+* Alams or Universe (20,000)
+  * Has it own Sun, Moon, Earth or ther Planets, which revolve around one another.
+
+***

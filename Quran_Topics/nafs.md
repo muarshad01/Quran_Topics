@@ -1,3 +1,8 @@
+### SSA Shah
+* Regular recition of Surah Al-Baqarah helps in nafas-par qaboo-pana 
+
+***
+
 #### [Nafs Never Dies | Irfan-ul-Haq](https://www.youtube.com/watch?v=GFoxrHoHG1c)
 #### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)

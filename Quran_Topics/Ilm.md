@@ -11,6 +11,12 @@
   
 ***
 
+* Ilm sun-nah say hasil-hota-hai aur bol-nay say zaya-ho-jata-hai.
+
+***
+
+***
+
 ## `Ilm-e-Ludni`
 * Tamaam-aloom ka ahataa-karta-hai
 * Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.

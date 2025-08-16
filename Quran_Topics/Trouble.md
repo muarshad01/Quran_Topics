@@ -1,3 +1,7 @@
+### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
+
+***
+
 ### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
 
 ***

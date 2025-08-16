@@ -1,3 +1,7 @@
+* Insaan hamaisha-apni-zaban-kay-haathon pannsh-jata-hai
+
+***
+
 #### [Ustad k bghair ruhani safar krnay walay or Allah say gosha krnay walay kon ha | Irfan-ul-Haq](https://www.youtube.com/watch?v=3sSCS15xg08)
 
 #### [Why Intelligent Man Alone | Dr israr ahmad](https://www.youtube.com/watch?v=D1Qn93EtfRw)

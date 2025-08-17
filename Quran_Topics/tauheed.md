@@ -1,4 +1,4 @@
-#### [Lecture: Toheed | Allama Talib Johri](https://www.youtube.com/watch?v=67f_ntEQsps)
+### [Lecture: Toheed | Allama Talib Johri](https://www.youtube.com/watch?v=67f_ntEQsps)
 
 ### [Allah Ka Burhann | Allama Talib Johri](https://www.youtube.com/shorts/fDAl6OSN4U8)
 

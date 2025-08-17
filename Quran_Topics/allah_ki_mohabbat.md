@@ -13,10 +13,10 @@
 
 ### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Akhlas mate-i-faqeer
-* Tujhay zaib nahi deta kah mate-i-faqeer zaya karay
-* Tujhay zaib nahi deta kah teri iss talab ki tahueen hoo
-* Mayn teri tawajah ka talib hoon aur mayn zaroor tughay matloob bana kar choron gaa
-* Khuda nay kabhi kisi talab ko zaya nahi kya
+* Tujhay zaib-nahi-deta kah mate-i-faqeer zaya-karay
+* Tujhay zaib-nahi-deta kah teri iss-talab ki-tahueen-hoo
+* Mayn teri tawajah-ka talib-hoon aur mayn zaroor-tughay matloob bana-kar-choron-gaa
+* Khuda nay kabhi kisi-talab ko-zaya-nahi-kya
 
 ### Hadith
 * [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25) -- Hadith Qudsi

@@ -23,17 +23,20 @@
 #### Devils becomes close associate
 * __Surah Az-Zukhruf 43/36-38__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ...وَإِنَّهُمْ لَيَصُدُّونَهُمْ عَنِ ٱلسَّبِيلِ وَيَحْسَبُونَ أَنَّهُم مُّهْتَدُونَ...حَتَّىٰٓ إِذَا جَآءَنَا قَالَ يَـٰلَيْتَ بَيْنِى وَبَيْنَكَ بُعْدَ ٱلْمَشْرِقَيْنِ فَبِئْسَ ٱلْقَرِينُ ٣٨](https://quranwbw.com/43/36-38)
 
-#### ${\color{red}You'll ~be ~asked ~about ~Quran}$
-* __Surah Az-Zukhruf [Ornaments of Gold] 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quranwbw.com/43/44)
+#### You'll be asked about Quran
+* __Surah Az-Zukhruf 43/44__: [وَإِنَّهُۥ لَذِكْرٌۭ لَّكَ وَلِقَوْمِكَ ۖ وَسَوْفَ تُسْـَٔلُونَ](https://quranwbw.com/43/44)
 
 #### Is there Anyone?
-* __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quranwbw.com/54/17)
+* __Surah Al-Qamar 54/17__: [وَلَقَدْ يَسَّرْنَا ٱلْقُرْءَانَ لِلذِّكْرِ فَهَلْ مِن مُّدَّكِرٍۢ](https://quranwbw.com/54/17)
 
-* __Surah Al-Infitaar [The Cleaving] 82/6__: [O humanity! What has emboldened you against your Lord, the Most Generous,](https://quranwbw.com/82/6)
+#### What has emboldened you against your Lord, the Most Generous
+* __Surah Al-Infitaar 82/6__: [يَـٰٓأَيُّهَا ٱلْإِنسَـٰنُ مَا غَرَّكَ بِرَبِّكَ ٱلْكَرِيمِ](https://quranwbw.com/82/6)
 
-* __Surah At-Tariq 86/13-14 (${\color{red}Decisive ~Word; ~Don't ~take ~it ~lightly}$)__: [Surely this ˹Quran˺ is a decisive word, and is not to be taken lightly.](https://quran.com/86/13-14)
+#### decisive word; Not to be taken lightly
+* __Surah At-Tariq 86/13-14__: [إِنَّهُۥ لَقَوْلٌۭ فَصْلٌۭ...وَمَا هُوَ بِٱلْهَزْلِ](https://quran.com/86/13-14)
 
-* __Surah Al-Alaa 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ][We will have you recite ˹the Quran, O  Prophet,˺ so you will not forget ˹any of it˺,](https://quranwbw.com/87/6)
+#### 
+* __Surah Al-Alaa 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quranwbw.com/87/6)
 
 * __Surah Al-Waqiah 56/79__: [touched by none except the purified ˹angels˺.](https://quranwbw.com/56/79)
 * __Surah Al-Waqiah 56/81__: [How can you then take this message lightly,](https://quranwbw.com/56/81)

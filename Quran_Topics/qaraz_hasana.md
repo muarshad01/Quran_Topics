@@ -1,3 +1,7 @@
+### [Best Trade with Allah | SSA Shah](https://www.youtube.com/watch?v=XurdxJgys8s)
+
+***
+
 ### Accept this from Us
 * __Surah Al-Baqarag 2/127__:: [“Our Lord, accept this from us. Indeed You are the Hearing, the Knowing.”](https://quran.com/2/127)
 

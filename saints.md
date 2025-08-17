@@ -123,3 +123,8 @@
 * `Ahmad Shah Abdali` murshid was `Shabir Shah (Lahore)`
 
 ***
+
+### Hazrat Abubakar Siddique
+* Has ALL (360) characteristics
+
+***

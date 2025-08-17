@@ -1,3 +1,7 @@
+#### [Allah ka Inam or Wada kis k Sath Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
+
+***
+
 #### [3-Qualities of Pious Men | SSA Shah](https://www.youtube.com/watch?v=Ye5ijz8oigA)
 1. Darr-guzar-aur-muaff karnay ki-siffat ([وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ](https://quranwbw.com/3/134))
 2. Apni zarooriat-ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat

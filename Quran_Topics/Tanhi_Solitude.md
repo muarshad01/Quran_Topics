@@ -1,5 +1,6 @@
 ### [Let No One See Your Inner Self | Teachings of Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=WJMuxErnyEc)
 * I mistakenly picked-up his Tasbeeh and started to play with it...
+* Kya tum yeah chahatay hoo kay. loog-tumhayn naik-samajh-kar salaam-karayn.
   
 ***
 

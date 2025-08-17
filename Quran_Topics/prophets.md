@@ -29,6 +29,7 @@
 * 13 -  [Ayyub (Job)](https://quranwbw.com/21/83)
 * 14 -  [Dhulkifl (Ezekiel)](https://quranwbw.com/21/85)
 * 15 -  [Musa (Moses)](https://quranwbw.com/21/48)
+   * [Maqam Nabi Musa (AS) | حضرت موسیٰ علیہ السلام | Mufti Abdul Wahab](https://www.youtube.com/watch?v=TJl6uhoAKaI)
 * 16 -  [Harun (Aaron)](https://quranwbw.com/21/48)
 * 17 -  Talut (Soul)
 * 18 -  [Dawud (David)](https://quranwbw.com/21/78)
@@ -55,6 +56,10 @@
 
 
 ***
+
+* [Hazrat Yusha bin Nun (Joshua))](https://www.youtube.com/shorts/q6E1V6ot5h0)
+* Bin Fraheem, Bin Yusuf, Bin Yaqoob,  Bin Ishaq, Abraham
+* In Islam, it is also believed that Yusha bin Nun (Joshua) was the "attendant" of Moses mentioned in the Quran before Moses meets Khidr.
 
 https://quranwbw.com/31/12
 

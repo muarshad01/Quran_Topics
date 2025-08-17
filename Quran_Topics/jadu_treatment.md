@@ -1,3 +1,7 @@
+https://www.youtube.com/shorts/kjyit2mfNJs
+
+***
+
 ### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
 
 ```

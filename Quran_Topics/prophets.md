@@ -46,6 +46,7 @@
 * * __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
 * 25 -  __Isa (Jesus)__: 
 * 26 -  __Muhammad PBUH__: Surah 47
+    * [Inside Roza-e-Rasool](https://www.youtube.com/shorts/Q1BHAT6nmDo)
     * [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
     * [Shan-e-Risalat | Allama Talib Johri](https://www.youtube.com/watch?v=JGeKW928Lyg)
     * [Waqya e Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)

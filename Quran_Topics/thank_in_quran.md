@@ -1,3 +1,7 @@
+### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
+
+***
+
 ### Shukr [Thankfulness, gratitude, or acknowledgment]
 * Shukr -> Jannat
 * Sabr -> Allah SWT

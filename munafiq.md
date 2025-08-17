@@ -67,6 +67,6 @@ Other Surahs:
 
 ***
 
-* This list provides a glimpse into the extensive treatment of hypocrites in the Quran, highlighting their deceptive nature, harmful actions, and the severe consequences they will face.
+* Their deceptive nature, harmful actions, and the severe consequences they will face.
 
 ***

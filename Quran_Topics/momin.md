@@ -1,9 +1,9 @@
 #### [3-Qualities of Pious Men | SSA Shah](https://www.youtube.com/watch?v=Ye5ijz8oigA)
 1. Darr-guzar-aur-muaff karnay ki-siffat ([وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ](https://quranwbw.com/3/134))
-2. Apni zarooriat ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat
-3. Dastar khawn wasee rakhney ki-siffat
-* Taqwa-aur-Ilm ki rahoon par bohot-agay-niklay
-* Rabb jis say razi-hota-hai, usay apnay qareeb-karta-hai, usay ilm ata-karta-hai, usay aqal-mil-jati-hai
+2. Apni zarooriat-ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat
+3. Dastar-khawn wasee-rakhney ki-siffat
+* Taqwa-aur-Ilm ki rahoon-par bohot-agay-niklay
+* Rabb jis-say razi-hota-hai, usay apnay qareeb-karta-hai, usay ilm ata-karta-hai, usay aqal-mil-jati-hai
 
 ***
 

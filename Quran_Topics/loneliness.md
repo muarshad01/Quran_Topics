@@ -3,7 +3,7 @@
 ***
 
 ## Hazrat Bakhtiyar Kaki
-* Faqeer par lazim hai, woh `khalq-e-khuda` say door rahey aur `kam-say-kam` loogaon say mail-jool rakhay
+* Faqeer par lazim hai, woh `khalq-e-khuda` say door-rahey aur `kam-say-kam` loogaon say mail-jool rakhay
 
 *** 
 
@@ -56,3 +56,5 @@
 ### [Why the FAQEER Tested?](https://www.youtube.com/shorts/AOZQugSF9xw)
 
 ***
+
+### [Only One Solution To LonelinessMufti Muneer Akhoon](https://www.youtube.com/watch?v=jiHr8hgeI7s)

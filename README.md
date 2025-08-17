@@ -2,8 +2,18 @@
 |---|---|---|--- | ---| ---| ---|--|
 |1. | Introduction | July 2025 |  |
 
+***
+
+## Quran Fazilat
+* [Notes](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md)
+
+***
+
 #### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
 * __Surah An-Nahl [The Bee] 16/98 (${\color{red}When ~you ~Recite ~Quran...!}$)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+
+***
+
 
 #### ${\color{red}Shikwa ~of ~Allah ~SWT}$
 * __Surah Al-Hajj 22/74__: [They have not shown Allah the reverence He deserves. Surely Allah is All-Powerful, Almighty.](https://quranwbw.com/22#74)

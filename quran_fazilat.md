@@ -3,6 +3,8 @@
 
 #### Opens HEART to Islam
 * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quranwbw.com/6/125)
+* __Surah Anaam(Event Wet & Dry Atom...Leaf) 6/57__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ ٥٩](https://quran.com/6/59)
+
 
 #### Quran Puts a Barrier
 * __Surah Al-Isra 17/45__: [وَإِذَا قَرَأْتَ ٱلْقُرْءَانَ جَعَلْنَا بَيْنَكَ وَبَيْنَ ٱلَّذِينَ لَا يُؤْمِنُونَ بِٱلْـَٔاخِرَةِ حِجَابًۭا مَّسْتُورًۭا](https://quranwbw.com/17/45)
@@ -29,6 +31,9 @@
 #### Is there Anyone?
 * __Surah Al-Qamar 54/17__: [وَلَقَدْ يَسَّرْنَا ٱلْقُرْءَانَ لِلذِّكْرِ فَهَلْ مِن مُّدَّكِرٍۢ](https://quranwbw.com/54/17)
 
+* __Surah Al-Waqiah 56/79__: [لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ](https://quranwbw.com/56/79)
+* __Surah Al-Waqiah 56/81__: [أَفَبِهَـٰذَا ٱلْحَدِيثِ أَنتُم مُّدْهِنُونَ](https://quranwbw.com/56/81)
+
 #### What has emboldened you against your Lord, the Most Generous
 * __Surah Al-Infitaar 82/6__: [يَـٰٓأَيُّهَا ٱلْإِنسَـٰنُ مَا غَرَّكَ بِرَبِّكَ ٱلْكَرِيمِ](https://quranwbw.com/82/6)
 
@@ -37,9 +42,5 @@
 
 #### 
 * __Surah Al-Alaa 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quranwbw.com/87/6)
-
-* __Surah Al-Waqiah 56/79__: [touched by none except the purified ˹angels˺.](https://quranwbw.com/56/79)
-* __Surah Al-Waqiah 56/81__: [How can you then take this message lightly,](https://quranwbw.com/56/81)
-* __Surah Anaam(Event Wet & Dry Atom...Leaf) 6/57__: [](https://quran.com/6/59)
 
 ***

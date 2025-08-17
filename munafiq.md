@@ -22,7 +22,9 @@ Other Surahs:
 
 * __Surah 9/64__: Hypocrites fear that a sura will expose their true intentions.
 * __Surah 9/67-68__: Warns of the consequences for hypocrites, associating them with disbelievers and promising them the fire of Hell.
-* __Surah 9/80__: States that Allah will not forgive hypocrites, even if the Prophet seeks forgiveness for them multiple times.
+* __Surah At-Tawba 9/80__: [˹It does not matter˺ whether you ˹O Prophet˺ pray for them to be forgiven or not. Even if you pray for their forgiveness seventy times, Allah will never forgive them. That is because they have lost faith in Allah and His Messenger. And Allah does not guide the rebellious people.](https://quranwbw.com/9/80)
+* __Surah At-Tawba 9/84__: [And do not ever offer ˹funeral˺ prayers for any of their dead, nor stand by their grave ˹at burial˺, for they have lost faith in Allah and His Messenger and died rebellious.](https://quranwbw.com/9/84)
+
 
 ***
 

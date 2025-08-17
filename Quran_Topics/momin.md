@@ -11,3 +11,17 @@
 
 ### Momin (TRUE Believer)
 * __Surah Ali'Imran 3/139 (Do not Falter or Grieve)__: [Do not falter or grieve, for you will have the upper hand, if you are ˹true˺ believers.](https://quranwbw.com/3/139)
+
+***
+
+https://www.alislam.org/articles/first-muslim-first-momin/
+
+https://desiredmomin.com/who-is-momin/
+
+https://desiredmomin.com/who-is-momin/
+
+https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/
+
+https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/
+
+https://quranwbw.com/23/1-11

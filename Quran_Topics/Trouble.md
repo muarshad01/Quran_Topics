@@ -1,3 +1,7 @@
+### [What Comes After Trials? | Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=SacJf777CyY)
+
+***
+
 ### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
 1. Prophet PBUH gave his Jubb and dastaar and said give this to Uwais al-Qarani.
 2. Ask him to pray for Bakhshis-of-my-Ummat.

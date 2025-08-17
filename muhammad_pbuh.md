@@ -1,5 +1,5 @@
 ## [Darood Sharif](https://github.com/muarshad01/YouTube_Videos/blob/main/darood_shareef.md)
-* __Surah 33/56__: [Allah sends His Salat (Graces, Honours, Blessings, Mercy, etc.) on the Prophet (Muhammad SAW) and also His angels too (ask Allah to bless and forgive him). O you who believe! Send your Salat on (ask Allah to bless) him (Muhammad SAW), and (you should) greet (salute) him with the Islamic way of greeting (salutation i.e. AsSalamu 'Alaikum)](https://quranwbw.com/33#56)
+* __Surah 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا ٥٦](https://quranwbw.com/33/56)
 * __Conditions__: Must have name (Muhammad PUBH) and also mention Salaam.
 
 ***

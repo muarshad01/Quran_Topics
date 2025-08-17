@@ -1,4 +1,4 @@
-### [What Comes After Trials? | Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=SacJf777CyY)
+### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
 
 ***
 

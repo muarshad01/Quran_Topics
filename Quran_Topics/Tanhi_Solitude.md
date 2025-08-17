@@ -1,3 +1,7 @@
+### [Let No One See Your Inner Self | Teachings of Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=WJMuxErnyEc)
+
+***
+
 * Insaan hamaisha-apni-zaban-kay-haathon pannsh-jata-hai
 
 ***

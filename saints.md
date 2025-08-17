@@ -128,3 +128,5 @@
 * Has ALL (360) characteristics
 
 ***
+
+* Ahmad ibn Hanbal[a] (Arabic: أَحْمَد بْن حَنْبَل, romanized: Aḥmad ibn Ḥanbal; (164-241 AH; 780 – 855 CE) was an Arab ju

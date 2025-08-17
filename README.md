@@ -10,7 +10,7 @@
 ***
 
 #### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
-* __Surah An-Nahl [The Bee] 16/98 (${\color{red}When ~you ~Recite ~Quran...!}$)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+* __Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quranwbw.com/16/98)
 
 ***
 

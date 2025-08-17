@@ -1,3 +1,8 @@
+#### [The Real Purpose of Tasbeeh | SSAShah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
+* Tasbeeh -> Concentration Span -> Ghor-o-Fikr -> Nuqta-hai-raaz ko hal karna seekh laitay hayn -> Qudrah of Allah SWT -> We meet Rabb.
+  
+***
+
 #### [Tasbeeh-e-Ism aur Tasbeeh-e-Zaat | Hamd, Tasbeeh aur Astaghfar | Allama Talib Jauhari](https://www.youtube.com/watch?v=K-VKDmgpgwo)
 * __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [The seven heavens, the earth, and all those in them glorify Him. There is not a single thing that does not glorify His praises—but you ˹simply˺ cannot comprehend their glorification. He is indeed Most Forbearing, All-Forgiving.](https://quranwbw.com/17/44)
 * __Surah Furqan 25/1__: [Tabaarakal lazee nazzalal Furqaana 'alaa abdihee li-yakoona lil'aalameena nazeera](https://quran.com/25/1)

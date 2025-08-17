@@ -69,7 +69,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 #### 
 * __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
-* __Surah Al-Fajr 89/27-30__: [](https://quran.com/89/27-30)
+* __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ...ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ...فَٱدْخُلِى فِى عِبَـٰدِى...وَٱدْخُلِى جَنَّتِى](https://quran.com/89/27-30)
 
 ***
 
@@ -77,19 +77,19 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
 * __Surah 49/1-2__: [لَا تُقَدِّمُوا۟ بَيْنَ يَدَىِ ٱللَّهِ وَرَسُولِهِۦ ۖ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ](https://quran.com/49/1-2)
 * __Surah Ad-Duha 93__: [](https://quran.com/93)
-* __Surah An-Nisa 4/41 (see also: 16/89)__: [وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا][So how will it be when We bring a witness from every faith-community and bring you ˹O Prophet˺ as a witness against yours?](https://quranwbw.com/4/41)
+* __Surah An-Nisa 4/41 (see also: 16/89)__: [وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (see also: 4/41)__: [وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
 
 ***
 
 ### [Hazrat Muhammad saww ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
-* __Surah Al-Jumma 62/1-3__: [](https://quranwbw.com/62/1-3)
+* __Surah Al-Jumma 62/1-3__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ ١...](https://quranwbw.com/62/1-3)
 1. Nabi: 124,000
 2. Rasbool: 313
 3. Ulul Azam: 5 [أُو۟لُوا۟ ٱلْعَزْمِ](https://quran.com/46/35)
 4. Khatamun Nabiyyin: 1
 
-* __Surah 18/110__: [](https://quranwbw.com/18/110)
+* __Surah 18/110__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ يُوحَىٰٓ إِلَىَّ أَنَّمَآ إِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ فَلْيَعْمَلْ عَمَلًۭا صَـٰلِحًۭا وَلَا يُشْرِكْ بِعِبَادَةِ رَبِّهِۦٓ أَحَدًۢا ١١٠](https://quranwbw.com/18/110)
 * Mayn tum jaisa hoon...tum mujh jaisa naheen 
 
 * __Surah An-Nisa 4/41 (See Also: 16/89; 4/41)__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
@@ -224,13 +224,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
-
-***
-
-### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
-
-***
 
 * __Surah Ale-Imran 3/31 (قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ)__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quranwbw.com/3/31)
 * __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
@@ -243,10 +236,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
   * Rasool: The messenger, the one who conveys the message to People
 * __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
 
-
-***
-
-### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 
 ***
 
@@ -293,5 +282,17 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
+
+***
+
+### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
+
+***
+
+### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
+
+***
+
+### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 
 ***

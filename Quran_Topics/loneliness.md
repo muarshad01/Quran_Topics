@@ -2,6 +2,10 @@
 
 ***
 
+### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
+
+***
+
 ## Hazrat Bakhtiyar Kaki
 * Faqeer par lazim hai, woh `khalq-e-khuda` say door-rahey aur `kam-say-kam` loogaon say mail-jool rakhay
 

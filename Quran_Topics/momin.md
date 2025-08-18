@@ -24,8 +24,6 @@ https://www.alislam.org/articles/first-muslim-first-momin/
 
 https://desiredmomin.com/who-is-momin/
 
-https://desiredmomin.com/who-is-momin/
-
 https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/
 
 https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/

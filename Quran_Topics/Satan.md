@@ -5,6 +5,7 @@
 #### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
 #### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
 #### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
+#### [Shaitan Se Bachao | SSA Shah](https://www.youtube.com/watch?v=vpjMXsA778c)
 
 ***
 

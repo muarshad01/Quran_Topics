@@ -1,5 +1,7 @@
 #### [Allah ka Inam or Wada kis k Sath Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
 
+#### [Ya-Seen Ka Kya-Matlab Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=Y9am2W3fHIc)
+
 ***
 
 #### [3-Qualities of Pious Men | SSA Shah](https://www.youtube.com/watch?v=Ye5ijz8oigA)
@@ -11,21 +13,33 @@
 
 ***
 
-#### [Ya-Seen Ka Kya-Matlab Hai? | Sahib-Israr Kon Hota-Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=Y9am2W3fHIc)
+* __Surah Al-Baqarah 2/2-5__: []()
+* __Surah Al-Baqarah 2/62__: []()
+* __Surah Al-Baqarah 2/165__: []()
+
+*** 
+
+* __Surah Ali'Imran 3/139__: [Do not falter or grieve, for you will have the upper hand, if you are ˹true˺ believers.](https://quranwbw.com/3/139)
 
 ***
 
-### Momin (TRUE Believer)
-* __Surah Ali'Imran 3/139 (Do not Falter or Grieve)__: [Do not falter or grieve, for you will have the upper hand, if you are ˹true˺ believers.](https://quranwbw.com/3/139)
+* __Surah An-Nisa (4:65)__: []()
 
 ***
 
-https://www.alislam.org/articles/first-muslim-first-momin/
+* __Surah Al-Anfal 8/2-8__: []()
+* __Surah Al-Anfaal 8/74__: []()
 
-https://desiredmomin.com/who-is-momin/
+***
 
-https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/
+* __Surah At-Tawbah 9/51__: []()
 
-https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/
+***
 
-https://quranwbw.com/23/1-11
+* __Surah Al-Israa 17/1-75__: []()
+
+***
+
+* __Surah Al-Mu'minun 23/1-11__: []()
+
+***

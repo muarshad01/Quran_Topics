@@ -4,7 +4,7 @@ https://www.youtube.com/shorts/kjyit2mfNJs
 
 ***
 
-### [Nazr-e-Badd ki haqeeqat aur uss kaa Ilaj](https://www.youtube.com/watch?v=r7s04SNiPHw)
+### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj](https://www.youtube.com/watch?v=r7s04SNiPHw)
 
 ***
 

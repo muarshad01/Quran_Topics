@@ -4,6 +4,8 @@
 
 ### [Ajeeb Insaan | Allama Talib Johri](https://www.youtube.com/watch?v=v7n1Kp8yy94)
 
+### [Mola Ali A.S Se Anokha Sawal Allah Ne Muhammad SWS Ko Kaisy Paida Kia...!! | Allama Talib jhori](https://www.youtube.com/watch?v=cBRs3Y252G0)
+
 ***
 
 *__Surah An-Nisaa 4/28 (Weak)__: [يُرِيدُ ٱللَّهُ أَن يُخَفِّفَ عَنكُمْ ۚ وَخُلِقَ ٱلْإِنسَـٰنُ ضَعِيفًۭا](https://quranwbw.com/4/28)

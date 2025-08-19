@@ -302,3 +302,5 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 
 ***
+
+### [Allama Talib Johri | Musa as Main Allah..............](https://www.youtube.com/watch?v=1kBrfZXU9I8)

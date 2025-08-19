@@ -1,5 +1,6 @@
 ## A'oodhu billahi min ash-shaytaan-ir-rajeem ( أعوذُ بِٱللَّهِ مِنَ ٱلشَّيۡطَٰنِ ٱلرَّجِيمِ)
 #### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
+#### [Shataan Can't Mislead You](https://www.youtube.com/shorts/tekCVsRSMGs)
 #### [Role of Iblees In Our Life | Things to Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
 #### [The laughter of devil and the answer of ALLAH | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
 #### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)

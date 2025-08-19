@@ -1,3 +1,7 @@
+### [Tazkia Nafs Kaise Kiya Jaye? | SSA Shah](https://www.youtube.com/watch?v=KV22YWPRArY)
+
+***
+
 ### [Tazkiya-e-Nafs | Allama Talib Johri](https://www.youtube.com/watch?v=MFymvwe0WLA)
 * __Surah Ash-Shams 91/7-10__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10)
   * First Yourself

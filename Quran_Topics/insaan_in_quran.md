@@ -1,4 +1,4 @@
-### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof Ahmed Rafique Akhtar]https://www.youtube.com/shorts/iIcV-MAQzZE
+### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof Ahmed Rafique Akhtar](https://www.youtube.com/shorts/iIcV-MAQzZE)
 
 ### [Hazrat Allama Talib Johri | Majlis Topic INSAAN](https://www.youtube.com/watch?v=9uo-mHqfs_w)
 

@@ -1,6 +1,12 @@
 ## Total Aloom for Insaan
 * 81,000
 
+***
+
+#### [Ilm-e-Laduni (علم لدنّی۔)](https://www.youtube.com/watch?v=3E_W2NPqdys)
+
+***
+
 #### Aloom-e-Batni (Rohani Aloom) 
 * Total Nehers of Alooms are 118 (114 + 4).
 * Allah SWT has kept 4 with himself. Ilm-e-ghyab is part of them:

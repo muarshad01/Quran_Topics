@@ -2,14 +2,24 @@
 
 * __Surah 3/31__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quranwbw.com/3/31)
 
+***
+
 ### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with-the-person at Judgement-day, whom you loved in Dunya.
 
+***
+
 ### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.) | مرشد سے سچی محبت](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
+
+***
 
 ### [Abou Ben Adhem](https://www.poetryfoundation.org/poems/44433/abou-ben-adhem)
 
+***
+
 ### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
+
+***
 
 ### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Akhlas mate-i-faqeer

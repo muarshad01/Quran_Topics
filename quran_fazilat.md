@@ -51,3 +51,5 @@
 * __Surah Al-Alaa 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quranwbw.com/87/6)
 
 ***
+
+### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)

@@ -301,11 +301,18 @@
 
 ***
 
+## Digit 101
+
+https://quran.com/12/101
+
+***
+
 ## Digit 217
 
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 
 

@@ -8,6 +8,10 @@ https://www.youtube.com/shorts/kjyit2mfNJs
 
 ***
 
+### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
+
+***
+
 ### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
 
 ```

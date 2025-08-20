@@ -1,3 +1,7 @@
+### [Iman aur Amal Salah | Talib Johri](https://www.youtube.com/shorts/gegGWszMtY0)
+
+***
+
 #### [Kamil Momin - Hadith](https://www.youtube.com/shorts/b845Tr17NTk)
 
 ***

@@ -207,6 +207,7 @@
     * 99 names (attributes) of Allah SWT
 * 33 x 4 = 132 = 
 * 33 x 5 = 165
+* [Abu Huraira reported Allah's Messenger (ﷺ) as saying: If anyone extols Allah after every prayer thirty-three times, and praises Allah thirty-three times, and declares His Greatness thirty-three times, ninety-nine times in all, and says to complete a hundred:" There is no god but Allah, having no partner with Him, to Him belongs sovereignty and to Him is praise due, and He is Potent over everything," his sins will be forgiven even If these are as abundant as the foam of the sea.](https://sunnah.com/muslim:597a) -- Sahih Muslim 597a
 * __Surah Al-Anfaal 08/33 ()__: [And Allah would not punish them while you (Muhammad SAW) are amongst them, nor will He punish them while they seek (Allah's) Forgiveness](https://quranwbw.com/8/33)
 * __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)
 
@@ -312,6 +313,7 @@ https://quran.com/12/101
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 
 

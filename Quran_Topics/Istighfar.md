@@ -1,3 +1,7 @@
+* [ Astaghfar Ki Kasrat Karo | Mufti Zar Wali Khan](https://www.youtube.com/shorts/auAnGsWR0Ag)
+  
+***
+
 ## Istigfar
 * Istighfar, in Islam, is the act of seeking forgiveness from Allah (God). It's a common practice among Muslims, typically involving the recitation of `Astaghfirullah" (أَسْتَغْفِرُ ٱللَّٰهَ)`, which means "I seek forgiveness from Allah". It's a way to acknowledge one's sins and seek divine pardon
 

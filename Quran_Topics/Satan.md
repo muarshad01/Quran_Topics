@@ -1,3 +1,7 @@
+### [How to shield you deeds from Shaytan?](https://www.youtube.com/shorts/ZvCFMMSwVPI)
+
+***
+
 ## A'oodhu billahi min ash-shaytaan-ir-rajeem ( أعوذُ بِٱللَّهِ مِنَ ٱلشَّيۡطَٰنِ ٱلرَّجِيمِ)
 #### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
 #### [Shataan Can't Mislead You](https://www.youtube.com/shorts/tekCVsRSMGs)

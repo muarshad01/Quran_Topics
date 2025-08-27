@@ -113,7 +113,7 @@
 * __Surah Hud Ayat 43__: [He replied, “I will take refuge on a mountain, which will protect me from the water.” Noah cried, “Today no one is protected from Allah’s decree except those to whom He shows mercy!” And the waves came between them, and his son was among the drowned.](https://quranwbw.com/11/43)
 * __Surah Hud Ayat 47__: [Noah pleaded, “My Lord, I seek refuge in You from asking You about what I have no knowledge of, and unless You forgive me and have mercy on me, I will be one of the losers.”](https://quranwbw.com/11/47)
 * __Surah Hud Ayat 58__: [When Our command came, We rescued Hûd and those who believed with him by a mercy from Us, saving them from a harsh torment.](https://quranwbw.com/11/58)
-* __Surah Hud Ayat 63__: [He responded, “O my people! Consider if I stand on a clear proof from my Lord and He has blessed me with a mercy from Him. Who could help me against Allah if I were to disobey Him? You would only contribute to my doom.](https://quranwbw.com/11/63)
+* __Surah Hud Ayat 63__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَءَاتَىٰنِى مِنْهُ رَحْمَةًۭ فَمَن يَنصُرُنِى مِنَ ٱللَّهِ إِنْ عَصَيْتُهُۥ ۖ فَمَا تَزِيدُونَنِى غَيْرَ تَخْسِيرٍۢ](https://quranwbw.com/11/63)
 * __Surah Hud Ayat 66__: [When Our command came, We saved Ṣâliḥ and those who believed with him by a mercy from Us and spared them the disgrace of that Day. Surely your Lord ˹alone˺ is the All-Powerful, Almighty.](https://quranwbw.com/11/66)
 * __Surah Hud Ayat 73__: [They responded, “Are you astonished by Allah’s decree? May Allah’s mercy and blessings be upon you, O  people of this house. Indeed, He is Praiseworthy, All-Glorious.”](https://quranwbw.com/11/73)
 * __Surah Hud Ayat 94__: [When Our command came, We saved Shu’aib and those who believed with him by a mercy from Us. And the ˹mighty˺ blast overtook the wrongdoers, so they fell lifeless in their homes,](https://quranwbw.com/11/94)
@@ -203,7 +203,7 @@
 
 *** 
 
-* __Surah Al-Ankabut 21__: [He punishes whoever He wills, and shows mercy to whoever He wills. And you will ˹all˺ be returned to Him.](https://quranwbw.com/29/21)
+* __Surah Al-Ankabut 21__: [يُعَذِّبُ مَن يَشَآءُ وَيَرْحَمُ مَن يَشَآءُ ۖ وَإِلَيْهِ تُقْلَبُونَ](https://quranwbw.com/29/21)
 * __Surah Al-Ankabut 23__: [As for those who disbelieve in Allah’s signs and the meeting with Him, it is they who will have no hope in His mercy.1 And it is they who will suffer a painful punishment.](https://quranwbw.com/29/23)
 * __Surah Al-Ankabut 51__: [Is it not enough for them that We have sent down to you the Book, ˹which is˺ recited to them. Surely in this ˹Quran˺ is a mercy and reminder for people who believe.](https://quranwbw.com/29/51)
 
@@ -217,7 +217,7 @@
 
 *** 
 
-* __Surah Luqman 31/3__: [˹It is˺ a guide and mercy for the good-doers—](https://quranwbw.com/31/3)
+* __Surah Luqman 31/3__: [هُدًۭى وَرَحْمَةًۭ لِّلْمُحْسِنِينَ](https://quranwbw.com/31/3)
 
 ***
 
@@ -231,12 +231,12 @@
 
 *** 
 
-* __Surah Ya-Sin 44__: [except by mercy from Us, allowing them enjoyment for a ˹little˺ while.](https://quranwbw.com/36/44)
+* __Surah Ya-Sin 44__: [إِلَّا رَحْمَةًۭ مِّنَّا وَمَتَـٰعًا إِلَىٰ حِينٍۢ](https://quranwbw.com/36/44)
 * __Surah Ya-Sin 45__: [˹Still they turn away˺ when it is said to them, “Beware of what is ahead of you ˹in the Hereafter˺ and what is behind you ˹of destroyed nations˺ so you may be shown mercy.”](https://quranwbw.com/36/45)
 
 *** 
 
-* __Surah Sad Ayat 9__: [Or ˹is it because˺ they possess the treasuries of the mercy of your Lord—the Almighty, the Giver ˹of all bounties˺.](https://quranwbw.com/38/9)
+* __Surah Sad Ayat 9__: [أَمْ عِندَهُمْ خَزَآئِنُ رَحْمَةِ رَبِّكَ ٱلْعَزِيزِ ٱلْوَهَّابِ](https://quranwbw.com/38/9)
 * __Surah Sad Ayat 43__: [And We gave him back his family, twice as many, as a mercy from Us and a lesson for people of reason.](https://quranwbw.com/38/43)
 
 *** 
@@ -265,8 +265,8 @@
 
 ***
 
-* __Surah Ad-Dukhan (The Smoke) 44/6__: [as a mercy from your Lord. He ˹alone˺ is truly the All-Hearing, All-Knowing—](https://quran.com/44/6)
-* __Surah Ad-Dukhan (The Smoke) 44/42__: [except those shown mercy by Allah. He is truly the Almighty, Most Merciful.](https://quran.com/44/42)
+* __Surah Ad-Dukhan (The Smoke) 44/6__: [رَحْمَةًۭ مِّن رَّبِّكَ ۚ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/44/6)
+* __Surah Ad-Dukhan (The Smoke) 44/42__: [إِلَّا مَن رَّحِمَ ٱللَّهُ ۚ إِنَّهُۥ هُوَ ٱلْعَزِيزُ ٱلرَّحِيمُ](https://quran.com/44/42)
 
 ***
 
@@ -307,7 +307,7 @@
 
 *** 
 
-* __Surah Al-Mulk 67/28__: [Say, ˹O Prophet,˺ “Consider this: whether Allah causes me and those with me to die or shows us mercy, who will save the disbelievers from a painful punishment?”](https://quran.com/67/28)
+* __Surah Al-Mulk 67/28__: [قُلْ أَرَءَيْتُمْ إِنْ أَهْلَكَنِىَ ٱللَّهُ وَمَن مَّعِىَ أَوْ رَحِمَنَا فَمَن يُجِيرُ ٱلْكَـٰفِرِينَ مِنْ عَذَابٍ أَلِيمٍۢ](https://quran.com/67/28)
 
 *** 
 

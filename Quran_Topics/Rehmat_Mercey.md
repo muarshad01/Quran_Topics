@@ -35,13 +35,13 @@
 
 ***
 
-* __Surah Al-Baqarah 2/37__: [Then Adam was inspired with words ˹of prayer˺ by his Lord,1 so He accepted his repentance. Surely He is the Accepter of Repentance, Most Merciful.](https://quranwbw.com/2/37)
-* __Surah Al-Baqarah 2/64__: [Yet you turned away afterwards. Had it not been for Allah’s grace and mercy upon you, you would have certainly been of the losers.](https://quranwbw.com/2/64)
+* __Surah Al-Baqarah 2/37__: [فَتَلَقَّىٰٓ ءَادَمُ مِن رَّبِّهِۦ كَلِمَـٰتٍۢ فَتَابَ عَلَيْهِ ۚ إِنَّهُۥ هُوَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quranwbw.com/2/37)
+* __Surah Al-Baqarah 2/64__: [ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ ۖ فَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَكُنتُم مِّنَ ٱلْخَـٰسِرِينَ](https://quranwbw.com/2/64)
 * __Surah Al-Baqarah 2/105__: [The disbelievers from the People of the Book and the polytheists would not want you to receive any blessing from your Lord, but Allah selects whoever He wills for His mercy. And Allah is the Lord of infinite bounty.](https://quranwbw.com/2/105)
 * __Surah Al-Baqarah 2/157__: [They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.](https://quranwbw.com/2/157)
 * __Surah Al-Baqarah 2/178__: [O believers! ˹The law of˺ retaliation is set for you in cases of murder—a free man for a free man, a slave for a slave, and a female for a female.1 But if the offender is pardoned by the victim’s guardian,2 then blood-money should be decided fairly3 and payment should be made courteously. This is a concession and a mercy from your Lord. But whoever transgresses after that will suffer a painful punishment.](https://quranwbw.com/2/178)
 * __Surah Al-Baqarah 2/218__: [Surely those who have believed, emigrated, and struggled in the Way of Allah—they can hope for Allah’s mercy. And Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/2/218)
-* __Surah Al-Baqarah 2/286__: [Allah does not require of any soul more than what it can afford. All good will be for its own benefit, and all evil will be to its own loss. ˹The believers pray,˺ “Our Lord! Do not punish us if we forget or make a mistake. Our Lord! Do not place a burden on us like the one you placed on those before us. Our Lord! Do not burden us with what we cannot bear. Pardon us, forgive us, and have mercy on us. You are our ˹only˺ Guardian. So grant us victory over the disbelieving people.”](https://quranwbw.com/2/286)
+* __Surah Al-Baqarah 2/286__: [لَا يُكَلِّفُ ٱللَّهُ نَفْسًا إِلَّا وُسْعَهَا ۚ لَهَا مَا كَسَبَتْ وَعَلَيْهَا مَا ٱكْتَسَبَتْ ۗ رَبَّنَا لَا تُؤَاخِذْنَآ إِن نَّسِينَآ أَوْ أَخْطَأْنَا ۚ رَبَّنَا وَلَا تَحْمِلْ عَلَيْنَآ إِصْرًۭا كَمَا حَمَلْتَهُۥ عَلَى ٱلَّذِينَ مِن قَبْلِنَا ۚ رَبَّنَا وَلَا تُحَمِّلْنَا مَا لَا طَاقَةَ لَنَا بِهِۦ ۖ وَٱعْفُ عَنَّا وَٱغْفِرْ لَنَا وَٱرْحَمْنَآ ۚ أَنتَ مَوْلَىٰنَا فَٱنصُرْنَا عَلَى ٱلْقَوْمِ ٱلْكَـٰفِرِينَ](https://quranwbw.com/2/286)
 
 ***
 
@@ -62,7 +62,7 @@
 ***
 
 * __Surah Al-Anam 12__: [Ask ˹them, O  Prophet˺, “To whom belongs everything in the heavens and the earth?” Say, “To Allah!” He has taken upon Himself to be Merciful. He will certainly gather ˹all of˺ you together for the Day of Judgment—about which there is no doubt. But those who have ruined themselves will never believe.](https://quranwbw.com/6/12)
-* __Surah Al-Anam 16__: [Whoever is spared the torment of that Day will have certainly been shown Allah’s mercy. And that is the absolute triumph.](https://quranwbw.com/6/16)
+* __Surah Al-Anam 16__: [مَّن يُصْرَفْ عَنْهُ يَوْمَئِذٍۢ فَقَدْ رَحِمَهُۥ ۚ وَذَٰلِكَ ٱلْفَوْزُ ٱلْمُبِينُ](https://quranwbw.com/6/16)
 * __Surah Al-Anam 6/54__: [When the believers in Our revelations come to you, say, “Peace be upon you! Your Lord has taken upon Himself to be Merciful. Whoever among you commits evil ignorantly ˹or recklessly˺ then repents afterwards and mends their ways, then Allah is truly All-Forgiving, Most Merciful.”](https://quranwbw.com/6/54)
 * __Surah Al-Anam 133__: [Your Lord is the Self-Sufficient, Full of Mercy. If He wills, He can do away with you and replace you with whoever He wills, just as He produced you from the offspring of other people.](https://quranwbw.com/6/133)
 * __Surah Al-Anam 147__: [But if they deny you ˹O Prophet˺, say, “Your Lord is infinite in mercy, yet His punishment will not be averted from the wicked people.”](https://quranwbw.com/6/147)

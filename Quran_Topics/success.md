@@ -16,6 +16,8 @@ Here's a more detailed explanation:
 
 https://quranawareness.wordpress.com/success-53-ayats/
 
+* __Surah Al-Anam 16__: [مَّن يُصْرَفْ عَنْهُ يَوْمَئِذٍۢ فَقَدْ رَحِمَهُۥ ۚ وَذَٰلِكَ ٱلْفَوْزُ ٱلْمُبِينُ](https://quranwbw.com/6/16)
+
 
 https://quran.com/45/30
 

@@ -146,3 +146,5 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * Behrum Khan son `Khan-e-Khana`
   
 ***
+
+### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)

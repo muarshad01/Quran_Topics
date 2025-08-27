@@ -1,3 +1,7 @@
+### [Gazwa e Khandaq ka waqia | Dr. israr Ahmad Sahab](https://www.youtube.com/watch?v=zRvvtBbYUhQ)
+
+***
+
 * Polytheists: Badar and Ahud
 * Infidels: Jang-e-Khandaq
 * Jews: Battle of Khyber

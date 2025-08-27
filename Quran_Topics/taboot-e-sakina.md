@@ -1,3 +1,7 @@
+https://quranwbw.com/2/248
+
+***
+
 ## [Taboot-e-Sakina Me Kia Hai?](https://www.youtube.com/watch?v=q6j5qpaZOnA) -- 4:10 
 * `Ark of the Covenant`
    * Musa AS Asa

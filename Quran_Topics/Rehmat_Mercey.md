@@ -312,6 +312,6 @@
 *** 
 
 ### He admis into His Mercy whoever He will
-* __Surah Al-Insan 76/31__: [He admits whoever He wills into His mercy. As for the wrongdoers, He has prepared for them a painful punishment.](https://quran.com/76/31)
+* __Surah Al-Insan 76/31__: [يُدْخِلُ مَن يَشَآءُ فِى رَحْمَتِهِۦ ۚ وَٱلظَّـٰلِمِينَ أَعَدَّ لَهُمْ عَذَابًا أَلِيمًۢا](https://quran.com/76/31)
 
 *** 

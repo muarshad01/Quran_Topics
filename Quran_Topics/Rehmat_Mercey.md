@@ -270,12 +270,12 @@
 
 ***
 
-* __Surah Al-Jathiyah (Crouching) 45/20__: [This ˹Quran˺ is an insight for humanity—a guide and mercy for people of sure faith.](https://quran.com/45/20)
-* __Surah Al-Jathiyah (Crouching) 45/30__: [As for those who believed and did good, their Lord will admit them into His mercy. That is ˹truly˺ the absolute triumph.](https://quran.com/45/30)
+* __Surah Al-Jathiyah (Crouching) 45/20__: [هَـٰذَا بَصَـٰٓئِرُ لِلنَّاسِ وَهُدًۭى وَرَحْمَةٌۭ لِّقَوْمٍۢ يُوقِنُونَ](https://quran.com/45/20)
+* __Surah Al-Jathiyah (Crouching) 45/30__: [فَأَمَّا ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ فَيُدْخِلُهُمْ رَبُّهُمْ فِى رَحْمَتِهِۦ ۚ ذَٰلِكَ هُوَ ٱلْفَوْزُ ٱلْمُبِينُ](https://quran.com/45/30)
 
 ***
 
-* __Surah Al-Ahqaf (Dunes) 46/12__: [And before this ˹Quran˺ the Book of Moses was ˹revealed as˺ a guide and mercy. And this Book is a confirmation, in the Arabic tongue, to warn those who do wrong, and as good news to those who do good.](https://quran.com/46/12)
+* __Surah Al-Ahqaf (Dunes) 46/12__: [وَمِن قَبْلِهِۦ كِتَـٰبُ مُوسَىٰٓ إِمَامًۭا وَرَحْمَةًۭ ۚ وَهَـٰذَا كِتَـٰبٌۭ مُّصَدِّقٌۭ لِّسَانًا عَرَبِيًّۭا لِّيُنذِرَ ٱلَّذِينَ ظَلَمُوا۟ وَبُشْرَىٰ لِلْمُحْسِنِينَ](https://quran.com/46/12)
 
 *** 
 
@@ -283,7 +283,7 @@
 
 *** 
 
-* __Surah Al-Hujurat (Inner Apartments) 49/10__: [The believers are but one brotherhood, so make peace between your brothers. And be mindful of Allah so you may be shown mercy.](https://quran.com/49/10)
+* __Surah Al-Hujurat (Inner Apartments) 49/10__: [إِنَّمَا ٱلْمُؤْمِنُونَ إِخْوَةٌۭ فَأَصْلِحُوا۟ بَيْنَ أَخَوَيْكُمْ ۚ وَٱتَّقُوا۟ ٱللَّهَ لَعَلَّكُمْ تُرْحَمُونَ](https://quran.com/49/10)
 
 *** 
 
@@ -303,7 +303,7 @@
 * __Surah Al-Hadid 57/27__: [Then in the footsteps of these ˹prophets˺, We sent Our messengers, and ˹after them˺ We sent Jesus, son of Mary, and granted him the Gospel, and instilled compassion and mercy into the hearts of his followers. As for monasticism, they made it up—We never ordained it for them—only seeking to please Allah, yet they did not ˹even˺ observe it strictly. So We rewarded those of them who were faithful. But most of them are rebellious.](https://quran.com/57/27)
 
 #### Double portion of REHMAT and grant NOOR
-* __Surah Al-Hadid 57/28__: [O people of faith! Fear Allah and believe in His Messenger. ˹And˺ He will grant you a double share of His mercy, provide you with a light to walk in ˹on Judgment Day˺, and forgive you. For Allah is All-Forgiving, Most Merciful.](https://quran.com/57/28)
+* __Surah Al-Hadid 57/28__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱتَّقُوا۟ ٱللَّهَ وَءَامِنُوا۟ بِرَسُولِهِۦ يُؤْتِكُمْ كِفْلَيْنِ مِن رَّحْمَتِهِۦ وَيَجْعَل لَّكُمْ نُورًۭا تَمْشُونَ بِهِۦ وَيَغْفِرْ لَكُمْ ۚ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/57/28)
 
 *** 
 

@@ -73,19 +73,19 @@
 
 ***
 
-* __Surah Al-A'raf 23__: [They replied, “Our Lord! We have wronged ourselves. If You do not forgive us and have mercy on us, we will certainly be losers.”](https://quranwbw.com/7/23)
-* __Surah Al-A'raf 49__: [Are these ˹humble believers˺ the ones you swore would never be shown Allah’s mercy?” ˹Finally, those on the heights will be told:˺ “Enter Paradise! There will be no fear for you, nor will you grieve.”](https://quranwbw.com/7/49)
-* __Surah Al-A'raf 52__: [We have certainly brought them a Book which We explained with knowledge—a guide and mercy for those who believe.](https://quranwbw.com/7/52)
-* __Surah Al-A'raf 56__: [Do not spread corruption in the land after it has been set in order. And call upon Him with hope and fear. Indeed, Allah’s mercy is always close to the good-doers.](https://quranwbw.com/7/56)
-* __Surah Al-A'raf 57__: [He is the One Who sends the winds ushering in His mercy. When they bear heavy clouds, We drive them to a lifeless land and then cause rain to fall, producing every type of fruit. Similarly, We will bring the dead to life, so perhaps you will be mindful.](https://quranwbw.com/7/57)
-* __Surah Al-A'raf 63__: [Do you find it astonishing that a reminder should come to you from your Lord through one of your own, warning you, so you may beware and perhaps be shown mercy?”](https://quranwbw.com/7/63)
-* __Surah Al-A'raf 72__: [So We saved him and those with him by Our mercy and uprooted those who denied Our signs. They were not believers.](https://quranwbw.com/7/72)
-* __Surah Al-A'raf 149__: [Later, when they were filled with remorse and realized they had gone astray, they cried, “If our Lord does not have mercy on us and forgive us, we will certainly be losers.”](https://quranwbw.com/7/149)
+* __Surah Al-A'raf 23__: [قَالَا رَبَّنَا ظَلَمْنَآ أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ ٱلْخَـٰسِرِينَ](https://quranwbw.com/7/23)
+* __Surah Al-A'raf 49__: [أَهَـٰٓؤُلَآءِ ٱلَّذِينَ أَقْسَمْتُمْ لَا يَنَالُهُمُ ٱللَّهُ بِرَحْمَةٍ ۚ ٱدْخُلُوا۟ ٱلْجَنَّةَ لَا خَوْفٌ عَلَيْكُمْ وَلَآ أَنتُمْ تَحْزَنُونَ](https://quranwbw.com/7/49)
+* __Surah Al-A'raf 52__: [وَلَقَدْ جِئْنَـٰهُم بِكِتَـٰبٍۢ فَصَّلْنَـٰهُ عَلَىٰ عِلْمٍ هُدًۭى وَرَحْمَةًۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quranwbw.com/7/52)
+* __Surah Al-A'raf 56__: [وَلَا تُفْسِدُوا۟ فِى ٱلْأَرْضِ بَعْدَ إِصْلَـٰحِهَا وَٱدْعُوهُ خَوْفًۭا وَطَمَعًا ۚ إِنَّ رَحْمَتَ ٱللَّهِ قَرِيبٌۭ مِّنَ ٱلْمُحْسِنِينَ](https://quranwbw.com/7/56)
+* __Surah Al-A'raf 57__: [وَهُوَ ٱلَّذِى يُرْسِلُ ٱلرِّيَـٰحَ بُشْرًۢا بَيْنَ يَدَىْ رَحْمَتِهِۦ ۖ حَتَّىٰٓ إِذَآ أَقَلَّتْ سَحَابًۭا ثِقَالًۭا سُقْنَـٰهُ لِبَلَدٍۢ مَّيِّتٍۢ فَأَنزَلْنَا بِهِ ٱلْمَآءَ فَأَخْرَجْنَا بِهِۦ مِن كُلِّ ٱلثَّمَرَٰتِ ۚ كَذَٰلِكَ نُخْرِجُ ٱلْمَوْتَىٰ لَعَلَّكُمْ تَذَكَّرُونَ](https://quranwbw.com/7/57)
+* __Surah Al-A'raf 63__: [أَوَعَجِبْتُمْ أَن جَآءَكُمْ ذِكْرٌۭ مِّن رَّبِّكُمْ عَلَىٰ رَجُلٍۢ مِّنكُمْ لِيُنذِرَكُمْ وَلِتَتَّقُوا۟ وَلَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/7/63)
+* __Surah Al-A'raf 72__: [فَأَنجَيْنَـٰهُ وَٱلَّذِينَ مَعَهُۥ بِرَحْمَةٍۢ مِّنَّا وَقَطَعْنَا دَابِرَ ٱلَّذِينَ كَذَّبُوا۟ بِـَٔايَـٰتِنَا ۖ وَمَا كَانُوا۟ مُؤْمِنِينَ](https://quranwbw.com/7/72)
+* __Surah Al-A'raf 149__: [وَلَمَّا سُقِطَ فِىٓ أَيْدِيهِمْ وَرَأَوْا۟ أَنَّهُمْ قَدْ ضَلُّوا۟ قَالُوا۟ لَئِن لَّمْ يَرْحَمْنَا رَبُّنَا وَيَغْفِرْ لَنَا لَنَكُونَنَّ مِنَ ٱلْخَـٰسِرِينَ](https://quranwbw.com/7/149)
 * __Surah Al-A'raf 151__: [قَالَ رَبِّ ٱغْفِرْ لِى وَلِأَخِى وَأَدْخِلْنَا فِى رَحْمَتِكَ ۖ وَأَنتَ أَرْحَمُ ٱلرَّٰحِمِينَ](https://quranwbw.com/7/151)
 * __Surah Al-A'raf 154__: [وَلَمَّا سَكَتَ عَن مُّوسَى ٱلْغَضَبُ أَخَذَ ٱلْأَلْوَاحَ ۖ وَفِى نُسْخَتِهَا هُدًۭى وَرَحْمَةٌۭ لِّلَّذِينَ هُمْ لِرَبِّهِمْ يَرْهَبُونَ](https://quranwbw.com/7/154)
-* __Surah Al-A'raf 155__: [Moses chose seventy men from among his people for Our appointment and, when they were seized by an earthquake,1 he cried, “My Lord! Had You willed, You could have destroyed them long ago, and me as well. Will You destroy us for what the foolish among us have done? This is only a test from You—by which You allow whoever you will to stray and guide whoever You will. You are our Guardian. So forgive us and have mercy on us. You are the best forgiver.](https://quranwbw.com/7/155)
-* __Surah Al-A'raf 156__: [Ordain for us what is good in this life and the next. Indeed, we have turned to You ˹in repentance˺.” Allah replied, “I will inflict My torment on whoever I will. But My mercy encompasses everything. I will ordain mercy for those who shun evil, pay alms-tax, and believe in Our revelations.](https://quranwbw.com/7/156)
-* __Surah Al-A'raf 203__: [If you ˹O Prophet˺ do not bring them a sign ˹which they demanded˺, they ask, “Why do you not make it yourself?” Say, “I only follow what is revealed to me from my Lord. This ˹Quran˺ is an insight from your Lord—a guide and a mercy for those who believe.”](https://quranwbw.com/7/203)
+* __Surah Al-A'raf 155__: [وَٱخْتَارَ مُوسَىٰ قَوْمَهُۥ سَبْعِينَ رَجُلًۭا لِّمِيقَـٰتِنَا ۖ فَلَمَّآ أَخَذَتْهُمُ ٱلرَّجْفَةُ قَالَ رَبِّ لَوْ شِئْتَ أَهْلَكْتَهُم مِّن قَبْلُ وَإِيَّـٰىَ ۖ أَتُهْلِكُنَا بِمَا فَعَلَ ٱلسُّفَهَآءُ مِنَّآ ۖ إِنْ هِىَ إِلَّا فِتْنَتُكَ تُضِلُّ بِهَا مَن تَشَآءُ وَتَهْدِى مَن تَشَآءُ ۖ أَنتَ وَلِيُّنَا فَٱغْفِرْ لَنَا وَٱرْحَمْنَا ۖ وَأَنتَ خَيْرُ ٱلْغَـٰفِرِينَ](https://quranwbw.com/7/155)
+* __Surah Al-A'raf 156__: [۞ وَٱكْتُبْ لَنَا فِى هَـٰذِهِ ٱلدُّنْيَا حَسَنَةًۭ وَفِى ٱلْـَٔاخِرَةِ إِنَّا هُدْنَآ إِلَيْكَ ۚ قَالَ عَذَابِىٓ أُصِيبُ بِهِۦ مَنْ أَشَآءُ ۖ وَرَحْمَتِى وَسِعَتْ كُلَّ شَىْءٍۢ ۚ فَسَأَكْتُبُهَا لِلَّذِينَ يَتَّقُونَ وَيُؤْتُونَ ٱلزَّكَوٰةَ وَٱلَّذِينَ هُم بِـَٔايَـٰتِنَا يُؤْمِنُونَ](https://quranwbw.com/7/156)
+* __Surah Al-A'raf 203__: [وَإِذَا لَمْ تَأْتِهِم بِـَٔايَةٍۢ قَالُوا۟ لَوْلَا ٱجْتَبَيْتَهَا ۚ قُلْ إِنَّمَآ أَتَّبِعُ مَا يُوحَىٰٓ إِلَىَّ مِن رَّبِّى ۚ هَـٰذَا بَصَآئِرُ مِن رَّبِّكُمْ وَهُدًۭى وَرَحْمَةٌۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quranwbw.com/7/203)
 * __Surah Al-A'raf 204__: [وَإِذَا قُرِئَ ٱلْقُرْءَانُ فَٱسْتَمِعُوا۟ لَهُۥ وَأَنصِتُوا۟ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/7/204)
 
 ***

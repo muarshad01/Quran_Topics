@@ -1,3 +1,11 @@
+## [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
+* Sons: Ali Akbar (Bharchi in the chest), Ali Asghar (6 months old; Arrow in the heart), Qasim
+* Brother Abbas: Hands were cut
+* Carried 72 dead bodies
+* 33 wounds of daggers, 34 wounds of swords
+
+***
+
 #### [Muharram SHURU 10 DIN Very Important | Dr. Fahad Artani](https://www.youtube.com/watch?v=KVbv_APDrI8)
 * No plants and Greenery on Earth - First time Baarish and Rehmat was sent from Skies
 * Qalab (Heart), Arash, Heavens were Created

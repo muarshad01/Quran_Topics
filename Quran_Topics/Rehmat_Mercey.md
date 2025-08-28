@@ -237,13 +237,13 @@
 *** 
 
 * __Surah Sad Ayat 9__: [أَمْ عِندَهُمْ خَزَآئِنُ رَحْمَةِ رَبِّكَ ٱلْعَزِيزِ ٱلْوَهَّابِ](https://quranwbw.com/38/9)
-* __Surah Sad Ayat 43__: [And We gave him back his family, twice as many, as a mercy from Us and a lesson for people of reason.](https://quranwbw.com/38/43)
+* __Surah Sad Ayat 43__: [وَوَهَبْنَا لَهُۥٓ أَهْلَهُۥ وَمِثْلَهُم مَّعَهُمْ رَحْمَةًۭ مِّنَّا وَذِكْرَىٰ لِأُو۟لِى ٱلْأَلْبَـٰبِ](https://quranwbw.com/38/43)
 
 *** 
 
 * __Surah Az-Zumar 9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
 * __Surah Az-Zumar 38__: [If you ask them ˹O Prophet˺ who created the heavens and the earth, they will certainly say, “Allah!” Ask ˹them˺, “Consider then whatever ˹idols˺ you invoke besides Allah: if it was Allah’s Will to harm me, could they undo that harm? Or if He willed ˹some˺ mercy for me, could they withhold His mercy?” Say, “Allah is sufficient for me. In Him ˹alone˺ the faithful put their trust.”](https://quranwbw.com/39/38)
-* __Surah Az-Zumar 53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins.1 He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
+* __Surah Az-Zumar 53__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quranwbw.com/39/53)
 
 *** 
 

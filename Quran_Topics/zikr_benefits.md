@@ -1,3 +1,7 @@
+### [Importance of Zikr](https://www.youtube.com/shorts/aPIk1CYyZ9o)
+
+***
+
 ### [Lay Jaa Apna Sab Kuch bus Apna Zikr Choor Jaa| SSA Shah](https://www.youtube.com/shorts/WHKM41Rf5gQ)
 
 ### [Bond Between Allah and Servant | Teachings of Syed Yaqoob Ali Shah (R.A) | SSA Shah](https://www.youtube.com/watch?v=HRl0Yti1XFM)

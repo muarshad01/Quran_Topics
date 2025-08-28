@@ -31,16 +31,16 @@
 ***
 
 ## Rehmat (كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ الرَّحْمَةَ)
-* __Surah Al-Anam 6/54__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
+* __Surah Al-Anam 6/54__: [وَإِذَا جَآءَكَ ٱلَّذِينَ يُؤْمِنُونَ بِـَٔايَـٰتِنَا فَقُلْ سَلَـٰمٌ عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ أَنَّهُۥ مَنْ عَمِلَ مِنكُمْ سُوٓءًۢا بِجَهَـٰلَةٍۢ ثُمَّ تَابَ مِنۢ بَعْدِهِۦ وَأَصْلَحَ فَأَنَّهُۥ غَفُورٌۭ رَّحِيمٌۭ ٥٤](https://quran.com/6/54)
 
 ***
 
 * __Surah Al-Baqarah 2/37__: [فَتَلَقَّىٰٓ ءَادَمُ مِن رَّبِّهِۦ كَلِمَـٰتٍۢ فَتَابَ عَلَيْهِ ۚ إِنَّهُۥ هُوَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quranwbw.com/2/37)
 * __Surah Al-Baqarah 2/64__: [ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ ۖ فَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَكُنتُم مِّنَ ٱلْخَـٰسِرِينَ](https://quranwbw.com/2/64)
-* __Surah Al-Baqarah 2/105__: [The disbelievers from the People of the Book and the polytheists would not want you to receive any blessing from your Lord, but Allah selects whoever He wills for His mercy. And Allah is the Lord of infinite bounty.](https://quranwbw.com/2/105)
-* __Surah Al-Baqarah 2/157__: [They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.](https://quranwbw.com/2/157)
-* __Surah Al-Baqarah 2/178__: [O believers! ˹The law of˺ retaliation is set for you in cases of murder—a free man for a free man, a slave for a slave, and a female for a female.1 But if the offender is pardoned by the victim’s guardian,2 then blood-money should be decided fairly3 and payment should be made courteously. This is a concession and a mercy from your Lord. But whoever transgresses after that will suffer a painful punishment.](https://quranwbw.com/2/178)
-* __Surah Al-Baqarah 2/218__: [Surely those who have believed, emigrated, and struggled in the Way of Allah—they can hope for Allah’s mercy. And Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/2/218)
+* __Surah Al-Baqarah 2/105__: [مَّا يَوَدُّ ٱلَّذِينَ كَفَرُوا۟ مِنْ أَهْلِ ٱلْكِتَـٰبِ وَلَا ٱلْمُشْرِكِينَ أَن يُنَزَّلَ عَلَيْكُم مِّنْ خَيْرٍۢ مِّن رَّبِّكُمْ ۗ وَٱللَّهُ يَخْتَصُّ بِرَحْمَتِهِۦ مَن يَشَآءُ ۚ وَٱللَّهُ ذُو ٱلْفَضْلِ ٱلْعَظِيمِ](https://quranwbw.com/2/105)
+* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quranwbw.com/2/157)
+* __Surah Al-Baqarah 2/178__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ كُتِبَ عَلَيْكُمُ ٱلْقِصَاصُ فِى ٱلْقَتْلَى ۖ ٱلْحُرُّ بِٱلْحُرِّ وَٱلْعَبْدُ بِٱلْعَبْدِ وَٱلْأُنثَىٰ بِٱلْأُنثَىٰ ۚ فَمَنْ عُفِىَ لَهُۥ مِنْ أَخِيهِ شَىْءٌۭ فَٱتِّبَاعٌۢ بِٱلْمَعْرُوفِ وَأَدَآءٌ إِلَيْهِ بِإِحْسَـٰنٍۢ ۗ ذَٰلِكَ تَخْفِيفٌۭ مِّن رَّبِّكُمْ وَرَحْمَةٌۭ ۗ فَمَنِ ٱعْتَدَىٰ بَعْدَ ذَٰلِكَ فَلَهُۥ عَذَابٌ أَلِيمٌۭ](https://quranwbw.com/2/178)
+* __Surah Al-Baqarah 2/218__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَٱلَّذِينَ هَاجَرُوا۟ وَجَـٰهَدُوا۟ فِى سَبِيلِ ٱللَّهِ أُو۟لَـٰٓئِكَ يَرْجُونَ رَحْمَتَ ٱللَّهِ ۚ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/2/218)
 * __Surah Al-Baqarah 2/286__: [لَا يُكَلِّفُ ٱللَّهُ نَفْسًا إِلَّا وُسْعَهَا ۚ لَهَا مَا كَسَبَتْ وَعَلَيْهَا مَا ٱكْتَسَبَتْ ۗ رَبَّنَا لَا تُؤَاخِذْنَآ إِن نَّسِينَآ أَوْ أَخْطَأْنَا ۚ رَبَّنَا وَلَا تَحْمِلْ عَلَيْنَآ إِصْرًۭا كَمَا حَمَلْتَهُۥ عَلَى ٱلَّذِينَ مِن قَبْلِنَا ۚ رَبَّنَا وَلَا تُحَمِّلْنَا مَا لَا طَاقَةَ لَنَا بِهِۦ ۖ وَٱعْفُ عَنَّا وَٱغْفِرْ لَنَا وَٱرْحَمْنَآ ۚ أَنتَ مَوْلَىٰنَا فَٱنصُرْنَا عَلَى ٱلْقَوْمِ ٱلْكَـٰفِرِينَ](https://quranwbw.com/2/286)
 
 ***
@@ -49,14 +49,14 @@
 * __Surah Al-Imran 3/74__: [يَخْتَصُّ بِرَحْمَتِهِۦ مَن يَشَآءُ ۗ وَٱللَّهُ ذُو ٱلْفَضْلِ ٱلْعَظِيمِ](https://quranwbw.com/3/74)
 * __Surah Al-Imran 3/107__: [وَأَمَّا ٱلَّذِينَ ٱبْيَضَّتْ وُجُوهُهُمْ فَفِى رَحْمَةِ ٱللَّهِ هُمْ فِيهَا خَـٰلِدُونَ](https://quranwbw.com/3/107)
 * __Surah Al-Imran 3/132__: [وَأَطِيعُوا۟ ٱللَّهَ وَٱلرَّسُولَ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/3/132)
-* __Surah Al-Imran 3/157__: [Should you be martyred or die in the cause of Allah, then His forgiveness and mercy are far better than whatever ˹wealth˺ those ˹who stay behind˺ accumulate.](https://quranwbw.com/3/157)
-* __Surah Al-Imran 3/159__: [It is out of Allah’s mercy that you ˹O Prophet˺ have been lenient with them. Had you been cruel or hard-hearted, they would have certainly abandoned you. So pardon them, ask Allah’s forgiveness for them, and consult with them in ˹conducting˺ matters. Once you make a decision, put your trust in Allah. Surely Allah loves those who trust in Him.](https://quranwbw.com/3/159)
+* __Surah Al-Imran 3/157__: [وَلَئِن قُتِلْتُمْ فِى سَبِيلِ ٱللَّهِ أَوْ مُتُّمْ لَمَغْفِرَةٌۭ مِّنَ ٱللَّهِ وَرَحْمَةٌ خَيْرٌۭ مِّمَّا يَجْمَعُونَ ١٥٧](https://quranwbw.com/3/157)
+* __Surah Al-Imran 3/159__: [فَبِمَا رَحْمَةٍۢ مِّنَ ٱللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ ٱلْقَلْبِ لَٱنفَضُّوا۟ مِنْ حَوْلِكَ ۖ فَٱعْفُ عَنْهُمْ وَٱسْتَغْفِرْ لَهُمْ وَشَاوِرْهُمْ فِى ٱلْأَمْرِ ۖ فَإِذَا عَزَمْتَ فَتَوَكَّلْ عَلَى ٱللَّهِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ](https://quranwbw.com/3/159)
 
 ***
 
-* __Surah An-Nisa 83__: [And when they hear news of security or fear,1 they publicize it. Had they referred it to the Messenger or their authorities, those with sound judgment among them would have validated it. Had it not been for Allah’s grace and mercy, you would have followed Satan—except for a few.](https://quranwbw.com/4/83)
+* __Surah An-Nisa 83__: [وَإِذَا جَآءَهُمْ أَمْرٌۭ مِّنَ ٱلْأَمْنِ أَوِ ٱلْخَوْفِ أَذَاعُوا۟ بِهِۦ ۖ وَلَوْ رَدُّوهُ إِلَى ٱلرَّسُولِ وَإِلَىٰٓ أُو۟لِى ٱلْأَمْرِ مِنْهُمْ لَعَلِمَهُ ٱلَّذِينَ يَسْتَنۢبِطُونَهُۥ مِنْهُمْ ۗ وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَٱتَّبَعْتُمُ ٱلشَّيْطَـٰنَ إِلَّا قَلِيلًۭا](https://quranwbw.com/4/83)
 * __Surah An-Nisa 96__: [دَرَجَـٰتٍۢ مِّنْهُ وَمَغْفِرَةًۭ وَرَحْمَةًۭ ۚ وَكَانَ ٱللَّهُ غَفُورًۭا رَّحِيمًا](https://quranwbw.com/4/96)
-* __Surah An-Nisa 113__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
+* __Surah An-Nisa 113__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكَ وَرَحْمَتُهُۥ لَهَمَّت طَّآئِفَةٌۭ مِّنْهُمْ أَن يُضِلُّوكَ وَمَا يُضِلُّونَ إِلَّآ أَنفُسَهُمْ ۖ وَمَا يَضُرُّونَكَ مِن شَىْءٍۢ ۚ وَأَنزَلَ ٱللَّهُ عَلَيْكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا](https://quranwbw.com/4/113)
 * __Surah An-Nisa 175__: [فَأَمَّا ٱلَّذِينَ ءَامَنُوا۟ بِٱللَّهِ وَٱعْتَصَمُوا۟ بِهِۦ فَسَيُدْخِلُهُمْ فِى رَحْمَةٍۢ مِّنْهُ وَفَضْلٍۢ وَيَهْدِيهِمْ إِلَيْهِ صِرَٰطًۭا مُّسْتَقِيمًۭا](https://quranwbw.com/4/175)
 
 ***

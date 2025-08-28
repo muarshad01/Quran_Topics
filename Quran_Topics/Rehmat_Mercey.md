@@ -89,25 +89,25 @@
 
 ***
 
-* __Surah At-Taubah 21__: [Their Lord gives them good news of His mercy, pleasure, and Gardens with everlasting bliss,](https://quranwbw.com/9/21)
+* __Surah At-Taubah 21__: [يُبَشِّرُهُمْ رَبُّهُم بِرَحْمَةٍۢ مِّنْهُ وَرِضْوَٰنٍۢ وَجَنَّـٰتٍۢ لَّهُمْ فِيهَا نَعِيمٌۭ مُّقِيمٌ](https://quranwbw.com/9/21)
 * __Surah At-Taubah 61__: [And there are others who hurt the Prophet by saying, “He listens to anyone.” Say, ˹O Prophet,˺ “He listens to what is best for you. He believes in Allah, has faith in the believers, and is a mercy for those who believe among you.” Those who hurt Allah’s Messenger will suffer a painful punishment.](https://quranwbw.com/9/61)
 * __Surah At-Taubah 71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/9/71)
 * __Surah At-Taubah 99__: [However, among the nomadic Arabs are those who believe in Allah and the Last Day, and consider what they donate as a means of coming closer to Allah and ˹receiving˺ the prayers of the Messenger. It will certainly bring them closer. Allah will admit them into His mercy. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/99)
-* __Surah At-Taubah 102__: [Some others have confessed their wrongdoing: they have mixed goodness with evil.1 It is right to hope that Allah will turn to them in mercy. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/102)
-* __Surah At-Taubah 106__: [And some others are left for Allah’s decision, either to punish them or turn to them in mercy.1 And Allah is All-Knowing, All-Wise.](https://quranwbw.com/9/106)
+* __Surah At-Taubah 102__: [وَءَاخَرُونَ ٱعْتَرَفُوا۟ بِذُنُوبِهِمْ خَلَطُوا۟ عَمَلًۭا صَـٰلِحًۭا وَءَاخَرَ سَيِّئًا عَسَى ٱللَّهُ أَن يَتُوبَ عَلَيْهِمْ ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quranwbw.com/9/102)
+* __Surah At-Taubah 106__: [وَءَاخَرُونَ مُرْجَوْنَ لِأَمْرِ ٱللَّهِ إِمَّا يُعَذِّبُهُمْ وَإِمَّا يَتُوبُ عَلَيْهِمْ ۗ وَٱللَّهُ عَلِيمٌ حَكِيمٌۭ](https://quranwbw.com/9/106)
 * __Surah At-Taubah 117__: [Allah has certainly turned in mercy to the Prophet1 as well as the Emigrants and the Helpers who stood by him in the time of hardship, after the hearts of a group of them had almost faltered. He then accepted their repentance. Surely He is Ever Gracious and Most Merciful to them.](https://quranwbw.com/9/117)
 * __Surah At-Taubah 118__: [And ˹Allah has also turned in mercy to˺ the three who had remained behind, ˹whose guilt distressed them˺ until the earth, despite its vastness, seemed to close in on them, and their souls were torn in anguish. They knew there was no refuge from Allah except in Him. Then He turned to them in mercy so that they might repent. Surely Allah ˹alone˺ is the Accepter of Repentance, Most Merciful.](https://quranwbw.com/9/118)
 
 ***
 
-* __Surah Yunus 21__: [When We give people a taste of mercy after being afflicted with a hardship, they swiftly devise plots against Our revelations! Say, ˹O Prophet,˺ “Allah is swifter in devising ˹punishment˺. Surely Our messenger-angels record whatever you devise.”](https://quranwbw.com/10/21)
-* __Surah Yunus 57__: [O humanity! Indeed, there has come to you a warning from your Lord, a cure for what is in the hearts, a guide, and a mercy for the believers.](https://quranwbw.com/10/57)
-* __Surah Yunus 58__: [Say, ˹O Prophet,˺ “In Allah’s grace and mercy let them rejoice. That is far better than whatever ˹wealth˺ they amass.”](https://quranwbw.com/10/58)
-* __Surah Yunus 86__: [and deliver us by Your mercy from the disbelieving people.”](https://quranwbw.com/10/86)
+* __Surah Yunus 21__: [وَإِذَآ أَذَقْنَا ٱلنَّاسَ رَحْمَةًۭ مِّنۢ بَعْدِ ضَرَّآءَ مَسَّتْهُمْ إِذَا لَهُم مَّكْرٌۭ فِىٓ ءَايَاتِنَا ۚ قُلِ ٱللَّهُ أَسْرَعُ مَكْرًا ۚ إِنَّ رُسُلَنَا يَكْتُبُونَ مَا تَمْكُرُونَ](https://quranwbw.com/10/21)
+* __Surah Yunus 57__: [يَـٰٓأَيُّهَا ٱلنَّاسُ قَدْ جَآءَتْكُم مَّوْعِظَةٌۭ مِّن رَّبِّكُمْ وَشِفَآءٌۭ لِّمَا فِى ٱلصُّدُورِ وَهُدًۭى وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ](https://quranwbw.com/10/57)
+* __Surah Yunus 58__: [قُلْ بِفَضْلِ ٱللَّهِ وَبِرَحْمَتِهِۦ فَبِذَٰلِكَ فَلْيَفْرَحُوا۟ هُوَ خَيْرٌۭ مِّمَّا يَجْمَعُونَ](https://quranwbw.com/10/58)
+* __Surah Yunus 86__: [وَنَجِّنَا بِرَحْمَتِكَ مِنَ ٱلْقَوْمِ ٱلْكَـٰفِرِينَ](https://quranwbw.com/10/86)
 
 ***
 
-* __Surah Hud Ayat 9__: [If We give people a taste of Our mercy then take it away from them, they become utterly desperate, ungrateful.](https://quranwbw.com/11/9)
+* __Surah Hud Ayat 9__: [وَلَئِنْ أَذَقْنَا ٱلْإِنسَـٰنَ مِنَّا رَحْمَةًۭ ثُمَّ نَزَعْنَـٰهَا مِنْهُ إِنَّهُۥ لَيَـُٔوسٌۭ كَفُورٌۭ](https://quranwbw.com/11/9)
 * __Surah Hud Ayat 17__: [˹Can these people be compared to˺ those ˹believers˺ who stand on clear proof from their Lord, backed by ˹the Quran as˺ a witness from Him, and preceded by the Book of Moses ˹which was revealed˺ as a guide and mercy? It is those ˹believers˺ who have faith in it. But whoever from the ˹disbelieving˺ groups rejects it, the Fire will be their destiny. So do not be in doubt of it. It is certainly the truth from your Lord, but most people do not believe.](https://quranwbw.com/11/17)
 * __Surah Hud Ayat 28__: [He said, “O my people! Consider if I stand on a clear proof from my Lord and He has blessed me with a mercy from Himself,1 which you fail to see. Should we ˹then˺ force it on you against your will?](https://quranwbw.com/11/28)
 * __Surah Hud Ayat 43__: [He replied, “I will take refuge on a mountain, which will protect me from the water.” Noah cried, “Today no one is protected from Allah’s decree except those to whom He shows mercy!” And the waves came between them, and his son was among the drowned.](https://quranwbw.com/11/43)

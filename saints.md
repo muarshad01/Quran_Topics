@@ -148,3 +148,9 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 ***
 
 ### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
+
+***
+
+### [Auliaa karaam Ke Maqam Ko Mukhfi Rakhna](https://www.youtube.com/shorts/KE8Vflz_cpQ)
+
+***

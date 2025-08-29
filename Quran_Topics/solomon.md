@@ -1,5 +1,7 @@
 * https://myislam.org/quran-verses/prophet-suleiman/
 
+* https://www.youtube.com/watch?v=3iqNDea7whA
+
 ***
 
 * __Surah Al-Baqarah 2/102__: [They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon. Never did Solomon disbelieve, rather the devils disbelieved. They taught magic to the people, along with what had been revealed to the two angels, Hârût and Mârût, in Babylon.1 The two angels never taught anyone without saying, “We are only a test ˹for you˺, so do not abandon ˹your˺ faith.” Yet people learned ˹magic˺ that caused a rift ˹even˺ between husband and wife; although their magic could not harm anyone except by Allah’s Will. They learned what harmed them and did not benefit them—although they already knew that whoever buys into magic would have no share in the Hereafter. Miserable indeed was the price for which they sold their souls, if only they knew!](https://quranwbw.com/2/102)

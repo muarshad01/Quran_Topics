@@ -155,12 +155,12 @@
 
 ***
 
-* __Surah Al-Kahf 10__: [˹Remember˺ when those youths took refuge in the cave, and said, “Our Lord! Grant us mercy from Yourself and guide us rightly through our ordeal.”](https://quranwbw.com/18/10)
-* __Surah Al-Kahf 16__: [Since you have distanced yourselves from them and what they worship besides Allah, take refuge in the cave. Your Lord will extend His mercy to you and accommodate you in your ordeal.”](https://quranwbw.com/18/16)
-* __Surah Al-Kahf 58__: [Your Lord is the All-Forgiving, Full of Mercy. If He were to seize them ˹immediately˺ for what they commit, He would have certainly hastened their punishment. But they have an appointed time, from which they will find no refuge.](https://quranwbw.com/18/58)
-* __Surah Al-Kahf 65__: [There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.](https://quranwbw.com/18/65)
-* __Surah Al-Kahf 82__: [“And as for the wall, it belonged to two orphan boys in the city, and under the wall was a treasure that belonged to them, and their father had been a righteous man. So your Lord willed that these children should come of age and retrieve their treasure, as a mercy from your Lord. I did not do it ˹all˺ on my own. This is the explanation of what you could not bear patiently.”](https://quranwbw.com/18/82)
-* __Surah Al-Kahf 98__: [He declared, “This is a mercy from my Lord. But when the promise of my Lord comes to pass, He will level it to the ground. And my Lord’s promise is ever true.”](https://quranwbw.com/18/98)
+* __Surah Al-Kahf 10__: [إِذْ أَوَى ٱلْفِتْيَةُ إِلَى ٱلْكَهْفِ فَقَالُوا۟ رَبَّنَآ ءَاتِنَا مِن لَّدُنكَ رَحْمَةًۭ وَهَيِّئْ لَنَا مِنْ أَمْرِنَا رَشَدًۭا](https://quranwbw.com/18/10)
+* __Surah Al-Kahf 16__: [وَإِذِ ٱعْتَزَلْتُمُوهُمْ وَمَا يَعْبُدُونَ إِلَّا ٱللَّهَ فَأْوُۥٓا۟ إِلَى ٱلْكَهْفِ يَنشُرْ لَكُمْ رَبُّكُم مِّن رَّحْمَتِهِۦ وَيُهَيِّئْ لَكُم مِّنْ أَمْرِكُم مِّرْفَقًۭا](https://quranwbw.com/18/16)
+* __Surah Al-Kahf 58__: [وَرَبُّكَ ٱلْغَفُورُ ذُو ٱلرَّحْمَةِ ۖ لَوْ يُؤَاخِذُهُم بِمَا كَسَبُوا۟ لَعَجَّلَ لَهُمُ ٱلْعَذَابَ ۚ بَل لَّهُم مَّوْعِدٌۭ لَّن يَجِدُوا۟ مِن دُونِهِۦ مَوْئِلًۭا ٥٨](https://quranwbw.com/18/58)
+* __Surah Al-Kahf 65__: [فَوَجَدَا عَبْدًۭا مِّنْ عِبَادِنَآ ءَاتَيْنَـٰهُ رَحْمَةًۭ مِّنْ عِندِنَا وَعَلَّمْنَـٰهُ مِن لَّدُنَّا عِلْمًۭا](https://quranwbw.com/18/65)
+* __Surah Al-Kahf 82__: [وَأَمَّا ٱلْجِدَارُ فَكَانَ لِغُلَـٰمَيْنِ يَتِيمَيْنِ فِى ٱلْمَدِينَةِ وَكَانَ تَحْتَهُۥ كَنزٌۭ لَّهُمَا وَكَانَ أَبُوهُمَا صَـٰلِحًۭا فَأَرَادَ رَبُّكَ أَن يَبْلُغَآ أَشُدَّهُمَا وَيَسْتَخْرِجَا كَنزَهُمَا رَحْمَةًۭ مِّن رَّبِّكَ ۚ وَمَا فَعَلْتُهُۥ عَنْ أَمْرِى ۚ ذَٰلِكَ تَأْوِيلُ مَا لَمْ تَسْطِع عَّلَيْهِ صَبْرًۭا](https://quranwbw.com/18/82)
+* __Surah Al-Kahf 98__: [قَالَ هَـٰذَا رَحْمَةٌۭ مِّن رَّبِّى ۖ فَإِذَا جَآءَ وَعْدُ رَبِّى جَعَلَهُۥ دَكَّآءَ ۖ وَكَانَ وَعْدُ رَبِّى حَقًّۭا ٩٨](https://quranwbw.com/18/98)
 
 *** 
 

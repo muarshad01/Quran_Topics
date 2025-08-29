@@ -7,7 +7,7 @@
 * Ikhlas
 * 28 prophets in Quran said: We don't want anything form you... 
 * Doesn't want Women, Wealth, Recognition...Self-less person
-* If your lagan is sachi, you'll find a good teacher / ustaad.
+* __If your lagan is sachi, you'll find a good teacher / ustaad.__
 * Ya Allah, mujhay achi rahnamai-wala banda-ataa-farma.
   
 *** 

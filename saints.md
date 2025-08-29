@@ -154,3 +154,9 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 ### [Auliaa karaam Ke Maqam Ko Mukhfi Rakhna](https://www.youtube.com/shorts/KE8Vflz_cpQ)
 
 ***
+
+### [Har Sadi Main ISLAM Ka Aik MUJADDID? | SSA Shah](https://www.youtube.com/watch?v=37PUWKv_Nrc)
+* Allama Iqbal was Wali Allah
+* Ilhami Poetry
+
+*** 

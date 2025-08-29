@@ -9,6 +9,12 @@
 ***
 
 ### [How does the heart find peace?](https://www.youtube.com/shorts/blmlmoxC_IA)
+* When we Ishq with Prophet PBUH, We start understanding Rabb communicatin...What Rabb wants...
+* Rabb doesn't need our Naiki, Ibadaat...He is Bay-Nayaaz from that.
+* We start loving Rabb...He sent 124k prophets.
+* Everything is for our own self-betterment.
+
+***
 
 ### [Aap (S.A.W) Ke Qurb Ka Hasool | SSA Shah](https://www.youtube.com/watch?v=Px_JRWrAuJY)
 * Ishq

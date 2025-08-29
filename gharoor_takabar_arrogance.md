@@ -8,3 +8,7 @@
   * `Main koon, Tui-hi Too`
     
 ***
+
+### [Arrogance Story](https://www.youtube.com/shorts/cI8uJXt1Xx4)
+
+***

@@ -227,9 +227,9 @@
 
 ***
 
-* __Surah Al-Ahzab 17__: [Ask ˹them, O  Prophet˺, “Who can put you out of Allah’s reach if He intends to harm you or show you mercy?” They can never find any protector or helper besides Allah.](https://quranwbw.com/33/17)
-* __Surah Al-Ahzab 24__: [˹It all happened˺ so Allah may reward the faithful for their faithfulness, and punish the hypocrites if He wills or turn to them ˹in mercy˺. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/33/24)
-* __Surah Al-Ahzab 73__: [so that Allah will punish hypocrite men and women and polytheistic men and women, and Allah will turn in mercy to believing men and women. For Allah is All-Forgiving, Most Merciful.1 ](https://quranwbw.com/33/73)
+* __Surah Al-Ahzab 17__: [قُلْ مَن ذَا ٱلَّذِى يَعْصِمُكُم مِّنَ ٱللَّهِ إِنْ أَرَادَ بِكُمْ سُوٓءًا أَوْ أَرَادَ بِكُمْ رَحْمَةًۭ ۚ وَلَا يَجِدُونَ لَهُم مِّن دُونِ ٱللَّهِ وَلِيًّۭا وَلَا نَصِيرًۭا](https://quranwbw.com/33/17)
+* __Surah Al-Ahzab 24__: [لِّيَجْزِىَ ٱللَّهُ ٱلصَّـٰدِقِينَ بِصِدْقِهِمْ وَيُعَذِّبَ ٱلْمُنَـٰفِقِينَ إِن شَآءَ أَوْ يَتُوبَ عَلَيْهِمْ ۚ إِنَّ ٱللَّهَ كَانَ غَفُورًۭا رَّحِيمًۭا](https://quranwbw.com/33/24)
+* __Surah Al-Ahzab 73__: [لِّيُعَذِّبَ ٱللَّهُ ٱلْمُنَـٰفِقِينَ وَٱلْمُنَـٰفِقَـٰتِ وَٱلْمُشْرِكِينَ وَٱلْمُشْرِكَـٰتِ وَيَتُوبَ ٱللَّهُ عَلَى ٱلْمُؤْمِنِينَ وَٱلْمُؤْمِنَـٰتِ ۗ وَكَانَ ٱللَّهُ غَفُورًۭا رَّحِيمًۢا](https://quranwbw.com/33/73)
 
 ***
 

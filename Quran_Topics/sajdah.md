@@ -1,3 +1,6 @@
+#### [Abu Hurairah (May Allah be pleased with him) reported -- The Messenger of Allah (ﷺ) said, "A slave becomes nearest to his Rubb when he is in prostration. So increase supplications while prostrating."](https://sunnah.com/search?q=A+slave+becomes+nearest+to+his+Rubb+when+he+is+in+prostration.+So+increase+supplications+while+prostrating)
+
+***
 
 #### [Sajda ishq ho to ibadat mein maza aata hai | Allama Iqbal](https://www.youtube.com/watch?v=IKXsYDZhJo4)
 #### [Hum Sajda Kasy Karty Hain? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=RuNJxmBZhac)

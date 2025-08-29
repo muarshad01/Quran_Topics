@@ -184,21 +184,21 @@
 
 *** 
 
-* __Surah An-Nur 10__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ وَأَنَّ ٱللَّهَ تَوَّابٌ حَكِيمٌ](https://quranwbw.com/24/10)
-* __Surah An-Nur 14__: [Had it not been for Allah’s grace and mercy upon you in this world and the Hereafter, you would have certainly been touched with a tremendous punishment for what you plunged into—](https://quranwbw.com/24/14)
-* __Surah An-Nur 20__: [˹You would have suffered,˺ had it not been for Allah’s grace and mercy upon you, and had Allah not been Ever Gracious, Most Merciful.](https://quranwbw.com/24/20)
-* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
-* __Surah An-Nur 56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quranwbw.com/24/56)
+* __Surah An-Nur 24/10__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ وَأَنَّ ٱللَّهَ تَوَّابٌ حَكِيمٌ](https://quranwbw.com/24/10)
+* __Surah An-Nur 24/14__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ لَمَسَّكُمْ فِى مَآ أَفَضْتُمْ فِيهِ عَذَابٌ عَظِيمٌ](https://quranwbw.com/24/14)
+* __Surah An-Nur 24/20__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ وَأَنَّ ٱللَّهَ رَءُوفٌۭ رَّحِيمٌۭ](https://quranwbw.com/24/20)
+* __Surah An-Nur 24/21__: [۞ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ وَمَن يَتَّبِعْ خُطُوَٰتِ ٱلشَّيْطَـٰنِ فَإِنَّهُۥ يَأْمُرُ بِٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۚ وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ مَا زَكَىٰ مِنكُم مِّنْ أَحَدٍ أَبَدًۭا وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ وَٱللَّهُ سَمِيعٌ عَلِيمٌۭ](https://quranwbw.com/24/21)
+* __Surah An-Nur 24/56__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَأَطِيعُوا۟ ٱلرَّسُولَ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/24/56)
 
 *** 
 
-* __Surah Al-Furqan Ayat 48__: [And He is the One Who sends the winds ushering in His mercy, and We send down pure rain from the sky,](https://quranwbw.com/25/48)
+* __Surah Al-Furqan Ayat 2548__: [وَهُوَ ٱلَّذِىٓ أَرْسَلَ ٱلرِّيَـٰحَ بُشْرًۢا بَيْنَ يَدَىْ رَحْمَتِهِۦ ۚ وَأَنزَلْنَا مِنَ ٱلسَّمَآءِ مَآءًۭ طَهُورًۭا](https://quranwbw.com/25/48)
 
 *** 
-* __Surah An-Naml 19__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
-* __Surah An-Naml 46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment1 rather than grace?2 If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
-* __Surah An-Naml 63__: [Or ˹ask them,˺ “Who guides you in the darkness of the land and sea,1 and sends the winds ushering in His mercy?2 Is it another god besides Allah? Exalted is Allah above what they associate ˹with Him˺!](https://quranwbw.com/27/63)
-* __Surah An-Naml 77__: [And it is truly a guide and mercy for the believers.](https://quranwbw.com/27/77)
+* __Surah An-Naml 19__: [فَتَبَسَّمَ ضَاحِكًۭا مِّن قَوْلِهَا وَقَالَ رَبِّ أَوْزِعْنِىٓ أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quranwbw.com/27/19)
+* __Surah An-Naml 46__: [قَالَ يَـٰقَوْمِ لِمَ تَسْتَعْجِلُونَ بِٱلسَّيِّئَةِ قَبْلَ ٱلْحَسَنَةِ ۖ لَوْلَا تَسْتَغْفِرُونَ ٱللَّهَ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/27/46)
+* __Surah An-Naml 63__: [أَمَّن يَهْدِيكُمْ فِى ظُلُمَـٰتِ ٱلْبَرِّ وَٱلْبَحْرِ وَمَن يُرْسِلُ ٱلرِّيَـٰحَ بُشْرًۢا بَيْنَ يَدَىْ رَحْمَتِهِۦٓ ۗ أَءِلَـٰهٌۭ مَّعَ ٱللَّهِ ۚ تَعَـٰلَى ٱللَّهُ عَمَّا يُشْرِكُونَ](https://quranwbw.com/27/63)
+* __Surah An-Naml 77__: [وَإِنَّهُۥ لَهُدًۭى وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ](https://quranwbw.com/27/77)
 
 *** 
 

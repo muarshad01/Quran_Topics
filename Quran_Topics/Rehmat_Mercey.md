@@ -171,16 +171,16 @@
 
 *** 
 
-* __Surah Al-Anbiya 75__: [And We admitted him into Our mercy, ˹for˺ he was truly one of the righteous.](https://quranwbw.com/21/75)
-* __Surah Al-Anbiya 84__: [So We answered his prayer and removed his adversity, and gave him back his family, twice as many, as a mercy from Us and a lesson for the ˹devoted˺ worshippers.](https://quranwbw.com/21/84)
-* __Surah Al-Anbiya 86__: [We admitted them into Our mercy, for they were truly of the righteous.](https://quranwbw.com/21/86)
-* __Surah Al-Anbiya 107__: [We have sent you ˹O Prophet˺ only as a mercy for the whole world.](https://quranwbw.com/21/107)
+* __Surah Al-Anbiya 75__: [وَأَدْخَلْنَـٰهُ فِى رَحْمَتِنَآ ۖ إِنَّهُۥ مِنَ ٱلصَّـٰلِحِينَ](https://quranwbw.com/21/75)
+* __Surah Al-Anbiya 84__: [فَٱسْتَجَبْنَا لَهُۥ فَكَشَفْنَا مَا بِهِۦ مِن ضُرٍّۢ ۖ وَءَاتَيْنَـٰهُ أَهْلَهُۥ وَمِثْلَهُم مَّعَهُمْ رَحْمَةًۭ مِّنْ عِندِنَا وَذِكْرَىٰ لِلْعَـٰبِدِينَ](https://quranwbw.com/21/84)
+* __Surah Al-Anbiya 86__: [وَأَدْخَلْنَـٰهُمْ فِى رَحْمَتِنَآ ۖ إِنَّهُم مِّنَ ٱلصَّـٰلِحِينَ](https://quranwbw.com/21/86)
+* __Surah Al-Anbiya 107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
 
 *** 
 
-* __Surah Al-Mu'minun 75__: [˹Even˺ if We had mercy on them and removed their affliction,1 they would still persist in their transgression, wandering blindly.](https://quranwbw.com/23/75)
-* __Surah Al-Mu'minun 109__: [Indeed, there was a group of My servants who used to pray, ‘Our Lord! We have believed, so forgive us and have mercy on us, for You are the best of those who show mercy,’](https://quranwbw.com/23/109)
-* __Surah Al-Mu'minun 118__: [Say, ˹O Prophet,˺ “My Lord! Forgive and have mercy, for You are the best of those who show mercy.”](https://quranwbw.com/23/118)
+* __Surah Al-Mu'minun 75__: [۞ وَلَوْ رَحِمْنَـٰهُمْ وَكَشَفْنَا مَا بِهِم مِّن ضُرٍّۢ لَّلَجُّوا۟ فِى طُغْيَـٰنِهِمْ يَعْمَهُونَ](https://quranwbw.com/23/75)
+* __Surah Al-Mu'minun 109__: [إِنَّهُۥ كَانَ فَرِيقٌۭ مِّنْ عِبَادِى يَقُولُونَ رَبَّنَآ ءَامَنَّا فَٱغْفِرْ لَنَا وَٱرْحَمْنَا وَأَنتَ خَيْرُ ٱلرَّٰحِمِينَ](https://quranwbw.com/23/109)
+* __Surah Al-Mu'minun 118__: [وَقُل رَّبِّ ٱغْفِرْ وَٱرْحَمْ وَأَنتَ خَيْرُ ٱلرَّٰحِمِينَ](https://quranwbw.com/23/118)
 
 *** 
 

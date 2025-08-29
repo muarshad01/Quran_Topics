@@ -91,8 +91,8 @@
 ***
 
 * __Surah At-Taubah 21__: [يُبَشِّرُهُمْ رَبُّهُم بِرَحْمَةٍۢ مِّنْهُ وَرِضْوَٰنٍۢ وَجَنَّـٰتٍۢ لَّهُمْ فِيهَا نَعِيمٌۭ مُّقِيمٌ](https://quranwbw.com/9/21)
-* __Surah At-Taubah 61__: [And there are others who hurt the Prophet by saying, “He listens to anyone.” Say, ˹O Prophet,˺ “He listens to what is best for you. He believes in Allah, has faith in the believers, and is a mercy for those who believe among you.” Those who hurt Allah’s Messenger will suffer a painful punishment.](https://quranwbw.com/9/61)
-* __Surah At-Taubah 71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/9/71)
+* __Surah At-Taubah 61__: [وَمِنْهُمُ ٱلَّذِينَ يُؤْذُونَ ٱلنَّبِىَّ وَيَقُولُونَ هُوَ أُذُنٌۭ ۚ قُلْ أُذُنُ خَيْرٍۢ لَّكُمْ يُؤْمِنُ بِٱللَّهِ وَيُؤْمِنُ لِلْمُؤْمِنِينَ وَرَحْمَةٌۭ لِّلَّذِينَ ءَامَنُوا۟ مِنكُمْ ۚ وَٱلَّذِينَ يُؤْذُونَ رَسُولَ ٱللَّهِ لَهُمْ عَذَابٌ أَلِيمٌۭ](https://quranwbw.com/9/61)
+* __Surah At-Taubah 71__: [وَٱلْمُؤْمِنُونَ وَٱلْمُؤْمِنَـٰتُ بَعْضُهُمْ أَوْلِيَآءُ بَعْضٍۢ ۚ يَأْمُرُونَ بِٱلْمَعْرُوفِ وَيَنْهَوْنَ عَنِ ٱلْمُنكَرِ وَيُقِيمُونَ ٱلصَّلَوٰةَ وَيُؤْتُونَ ٱلزَّكَوٰةَ وَيُطِيعُونَ ٱللَّهَ وَرَسُولَهُۥٓ ۚ أُو۟لَـٰٓئِكَ سَيَرْحَمُهُمُ ٱللَّهُ ۗ إِنَّ ٱللَّهَ عَزِيزٌ حَكِيمٌۭ](https://quranwbw.com/9/71)
 * __Surah At-Taubah 99__: [وَمِنَ ٱلْأَعْرَابِ مَن يُؤْمِنُ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَيَتَّخِذُ مَا يُنفِقُ قُرُبَـٰتٍ عِندَ ٱللَّهِ وَصَلَوَٰتِ ٱلرَّسُولِ ۚ أَلَآ إِنَّهَا قُرْبَةٌۭ لَّهُمْ ۚ سَيُدْخِلُهُمُ ٱللَّهُ فِى رَحْمَتِهِۦٓ ۗ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/9/99)
 * __Surah At-Taubah 102__: [وَءَاخَرُونَ ٱعْتَرَفُوا۟ بِذُنُوبِهِمْ خَلَطُوا۟ عَمَلًۭا صَـٰلِحًۭا وَءَاخَرَ سَيِّئًا عَسَى ٱللَّهُ أَن يَتُوبَ عَلَيْهِمْ ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quranwbw.com/9/102)
 * __Surah At-Taubah 106__: [وَءَاخَرُونَ مُرْجَوْنَ لِأَمْرِ ٱللَّهِ إِمَّا يُعَذِّبُهُمْ وَإِمَّا يَتُوبُ عَلَيْهِمْ ۗ وَٱللَّهُ عَلِيمٌ حَكِيمٌۭ](https://quranwbw.com/9/106)

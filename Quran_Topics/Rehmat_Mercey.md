@@ -1,3 +1,7 @@
+* __Hadith__: [حضرت انس رضی اللہ عنہ سے مروی ہے کہ نبی صلی اللہ علیہ وسلم نے ارشاد فرمایا جو شخص تین مرتبہ جنت کا سوال کرلے تو جنت خود کہتی ہے کہ اے اللہ! اس بندے کو مجھ میں داخلہ عطاء فرما اور جو شخص تین مرتبہ جہنم سے پناہ مانگ لے جہنم خود کہتی ہے کہ اے اللہ! اس بندے کو مجھ سے بچالے۔](https://al-hadees.com/musnad-ahmed/12439)
+
+***
+
 #### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
 * 1 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
   * Self monitrong

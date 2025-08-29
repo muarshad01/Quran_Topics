@@ -12,9 +12,9 @@
 
 ***
 
-* __Surah Al-Anam 6/54 ( كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ)__: [Your Lord has taken upon Himself to be Merciful!](https://quran.com/6/54)
-* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [(38) Every soul will be detained for what it has done,](https://quran.com/74/38-48)
-* __Surah Al-Hashr 59/9 (وَمَن يُوقَ شُحَّ نَفْسِهِۦ)__: [As for those who had settled in the city and ˹embraced˺ the faith before ˹the arrival of˺ the emigrants, they love whoever immigrates to them, never having a desire in their hearts for whatever ˹of the gains˺ is given to the emigrants. They give ˹the emigrants˺ preference over themselves even though they may be in need. And whoever is saved from the selfishness of their own souls, it is they who are ˹truly˺ successful.](https://quranwbw.com/59/9)
+* __Surah Al-Anam 6/54 ( كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ)__: [عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ...](https://quran.com/6/54)
+* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ...](https://quran.com/74/38-48)
+* __Surah Al-Hashr 59/9 (وَمَن يُوقَ شُحَّ نَفْسِهِۦ)__: [خَصَاصَةٌۭ ۚ وَمَن يُوقَ شُحَّ نَفْسِهِۦ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ...](https://quranwbw.com/59/9)
 
 ***
 

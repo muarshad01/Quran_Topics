@@ -4,7 +4,19 @@
 ***
 
 #### [Nafs Never Dies | Irfan-ul-Haq](https://www.youtube.com/watch?v=GFoxrHoHG1c)
+
+***
+
 #### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
+* Ammara - Lawama - Mutmina
+* This journey is covered not by wazaif and also not by duas.
+* The thigs which have been contioned by Allah SWT with our efforts, we'll have to do that.
+* We shoudl try our level best...but first...at the start seek His TAUFEEQ ...
+* We tried our best...you accept it...and grant us best rewaward
+* 1 Duaa for Kaushih...2 Taushish...3Duaa for best reward.
+
+***
+
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=Bx590pYgc54)
 #### [Insan aur Nafs ki jung ko handle karny ka wazeefa-aur-Tasbeeh | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=TZriideoDlA)

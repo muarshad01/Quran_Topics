@@ -1,26 +1,24 @@
-***
-
-### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
-* After tough time...you get a lot of arooj...
-* All our duas are accumulated...
-* You get rewards together
-
-***
-
 ### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
 1. Prophet PBUH gave his Jubba-and-dastaar mubarak and said,  "give this to Uwais al-Qarani."
 2. Ask him to pray for `Bakhshis-of-my-Ummat`.
 3. Hazrat Umer and Hazrat Ali RA went to meet him...
 
 #### No Jadugar can harm you
-* Duaian shatini-quwatoon kay-rastay-ka sab-say-barah-phathar hooti-hayn.
+* Duaian shatini-quwatoon kay rastay-ka sab-say-barah-phathar hooti-hayn.
   
+***
+
+### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
+* After tough time...you get a lot-of-Arooj.
+* All our duas-are-accumulated.
+* You get rewards together.
+
 ***
 
 ### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
 * Lean patch: Remember good times...
-* After lean patch...you get a lot of Arooj.
-* You do a lot of duas...ALL our duas are accumulated...
+* After lean patch...you get a lot-of-Arooj.
+* You do a lot of duas...ALL our duas-are-accumulated.
 * You get rewards together.
 
 ***

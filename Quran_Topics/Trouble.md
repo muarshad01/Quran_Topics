@@ -1,3 +1,11 @@
+### [Nature Awakes us by Different Incidents | SSA Shah](https://www.youtube.com/watch?v=TgjoxwA3Pmg)
+* Causes -- Root Causes
+* Responsibility
+* Remedies
+* Preventive Measure
+
+***
+
 ### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
 1. Prophet PBUH gave his Jubba-and-dastaar mubarak and said,  "give this to Uwais al-Qarani."
 2. Ask him to pray for `Bakhshis-of-my-Ummat`.

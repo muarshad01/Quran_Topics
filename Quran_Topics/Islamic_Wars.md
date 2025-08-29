@@ -13,6 +13,7 @@
 **
 
 ### Jang-e-Badr  [624 CE (2 AH)]
+* 17 Ramadan; two hijri
 * 70 Kafirs were martyred...
 * "Jang-e-Badr," also known as the Battle of Badr, was a pivotal military conflict in early Islamic history. It occurred on March 13, 624 CE (17th of Ramadan, 2 AH) between the Prophet Muhammad and his followers and the Meccan tribe of Quraysh. This battle is significant for marking a turning point in the early Muslim community's struggle, moving from a defensive stance to one of stability and expansion. 
 

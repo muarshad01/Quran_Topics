@@ -159,10 +159,10 @@
 
 *** 
 
-* __Surah Maryam Ayat 2__: [˹This is˺ a reminder of your Lord’s mercy to His servant Zachariah,](https://quranwbw.com/19/2)
-* __Surah Maryam Ayat 21__: [He replied, “So will it be! Your Lord says, ‘It is easy for Me. And so will We make him a sign for humanity and a mercy from Us.’ It is a matter ˹already˺ decreed.”](https://quranwbw.com/19/21)
-* __Surah Maryam Ayat 50__: [We showered them with Our mercy, and blessed them with honourable mention.](https://quranwbw.com/19/50)
-* __Surah Maryam Ayat 53__: [And We appointed for him—out of Our grace—his brother, Aaron, as a prophet.](https://quranwbw.com/19/53)
+* __Surah Maryam Ayat 2__: [ذِكْرُ رَحْمَتِ رَبِّكَ عَبْدَهُۥ زَكَرِيَّآ](https://quranwbw.com/19/2)
+* __Surah Maryam Ayat 21__: [قَالَ كَذَٰلِكِ قَالَ رَبُّكِ هُوَ عَلَىَّ هَيِّنٌۭ ۖ وَلِنَجْعَلَهُۥٓ ءَايَةًۭ لِّلنَّاسِ وَرَحْمَةًۭ مِّنَّا ۚ وَكَانَ أَمْرًۭا مَّقْضِيًّۭا](https://quranwbw.com/19/21)
+* __Surah Maryam Ayat 50__: [وَوَهَبْنَا لَهُم مِّن رَّحْمَتِنَا وَجَعَلْنَا لَهُمْ لِسَانَ صِدْقٍ عَلِيًّۭا](https://quranwbw.com/19/50)
+* __Surah Maryam Ayat 53__: [وَوَهَبْنَا لَهُۥ مِن رَّحْمَتِنَآ أَخَاهُ هَـٰرُونَ نَبِيًّۭا](https://quranwbw.com/19/53)
 
 *** 
 

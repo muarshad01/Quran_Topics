@@ -197,10 +197,10 @@
 
 *** 
 
-* __Surah Al-Qasas 43__: [Indeed, We gave Moses the Scripture—after destroying earlier nations—as an insight for the people, a guide, and mercy so perhaps they would be mindful.](https://quranwbw.com/28/43)
-* __Surah Al-Qasas 46__: [And you were not at the side of Mount Ṭûr when We called out ˹to Moses˺. But ˹you have been sent˺ as a mercy from your Lord to warn a people to whom no warner has come before you, so perhaps they may be mindful.](https://quranwbw.com/28/46)
-* __Surah Al-Qasas 73__: [It is out of His mercy that He has made for you the day and night so that you may rest ˹in the latter˺ and seek His bounty ˹in the former˺, and perhaps you will be grateful.](https://quranwbw.com/28/73)
-* __Surah Al-Qasas 86__: [You never expected this Book to be revealed to you, but ˹it came˺ only ˹as˺ a mercy from your Lord. So never side with the disbelievers ˹in their disbelief˺.](https://quranwbw.com/28/86)
+* __Surah Al-Qasas 43__: [وَلَقَدْ ءَاتَيْنَا مُوسَى ٱلْكِتَـٰبَ مِنۢ بَعْدِ مَآ أَهْلَكْنَا ٱلْقُرُونَ ٱلْأُولَىٰ بَصَآئِرَ لِلنَّاسِ وَهُدًۭى وَرَحْمَةًۭ لَّعَلَّهُمْ يَتَذَكَّرُونَ](https://quranwbw.com/28/43)
+* __Surah Al-Qasas 46__: [وَمَا كُنتَ بِجَانِبِ ٱلطُّورِ إِذْ نَادَيْنَا وَلَـٰكِن رَّحْمَةًۭ مِّن رَّبِّكَ لِتُنذِرَ قَوْمًۭا مَّآ أَتَىٰهُم مِّن نَّذِيرٍۢ مِّن قَبْلِكَ لَعَلَّهُمْ يَتَذَكَّرُونَ](https://quranwbw.com/28/46)
+* __Surah Al-Qasas 73__: [وَمِن رَّحْمَتِهِۦ جَعَلَ لَكُمُ ٱلَّيْلَ وَٱلنَّهَارَ لِتَسْكُنُوا۟ فِيهِ وَلِتَبْتَغُوا۟ مِن فَضْلِهِۦ وَلَعَلَّكُمْ تَشْكُرُونَ](https://quranwbw.com/28/73)
+* __Surah Al-Qasas 86__: [وَمَا كُنتَ تَرْجُوٓا۟ أَن يُلْقَىٰٓ إِلَيْكَ ٱلْكِتَـٰبُ إِلَّا رَحْمَةًۭ مِّن رَّبِّكَ ۖ فَلَا تَكُونَنَّ ظَهِيرًۭا لِّلْكَـٰفِرِينَ](https://quranwbw.com/28/86)
 
 *** 
 

@@ -31,9 +31,9 @@
 
 ## Great SUCCESS
 * Defeat your NAFAS
-   * You'll get `Izzat, Dulat, Iqtidar of Descendants`
-   * `Raat-ki-Tanhai` main Raab ko pukaartay rahain
-   * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
+   * You'll get Izzat, Dulat, Iqtidar-of-Descendants
+   * `Raat-ki-Tanhai` mayn Rabb-koo pukaartay-rahayn
+   * Din mayn jan-toarh Mehnat aur Jad-o-Jahad karayn
 
 ***
 

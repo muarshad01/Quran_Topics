@@ -4,6 +4,8 @@
 
 ***
 
+### [99 Names of Allah SWT | Irfan-ul-Haq](https://www.youtube.com/shorts/1KUvP00i76s)
+
 ### [Why 99 Names of Allah, What is Secret Behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=OY7VFzZtLkg)
 
 ### [Why 99 names of Allah, What is the secret behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=eT7nwiIPkI8)

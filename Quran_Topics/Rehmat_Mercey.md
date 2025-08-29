@@ -109,16 +109,16 @@
 ***
 
 * __Surah Hud Ayat 9__: [وَلَئِنْ أَذَقْنَا ٱلْإِنسَـٰنَ مِنَّا رَحْمَةًۭ ثُمَّ نَزَعْنَـٰهَا مِنْهُ إِنَّهُۥ لَيَـُٔوسٌۭ كَفُورٌۭ](https://quranwbw.com/11/9)
-* __Surah Hud Ayat 17__: [˹Can these people be compared to˺ those ˹believers˺ who stand on clear proof from their Lord, backed by ˹the Quran as˺ a witness from Him, and preceded by the Book of Moses ˹which was revealed˺ as a guide and mercy? It is those ˹believers˺ who have faith in it. But whoever from the ˹disbelieving˺ groups rejects it, the Fire will be their destiny. So do not be in doubt of it. It is certainly the truth from your Lord, but most people do not believe.](https://quranwbw.com/11/17)
-* __Surah Hud Ayat 28__: [He said, “O my people! Consider if I stand on a clear proof from my Lord and He has blessed me with a mercy from Himself,1 which you fail to see. Should we ˹then˺ force it on you against your will?](https://quranwbw.com/11/28)
-* __Surah Hud Ayat 43__: [He replied, “I will take refuge on a mountain, which will protect me from the water.” Noah cried, “Today no one is protected from Allah’s decree except those to whom He shows mercy!” And the waves came between them, and his son was among the drowned.](https://quranwbw.com/11/43)
-* __Surah Hud Ayat 47__: [Noah pleaded, “My Lord, I seek refuge in You from asking You about what I have no knowledge of, and unless You forgive me and have mercy on me, I will be one of the losers.”](https://quranwbw.com/11/47)
-* __Surah Hud Ayat 58__: [When Our command came, We rescued Hûd and those who believed with him by a mercy from Us, saving them from a harsh torment.](https://quranwbw.com/11/58)
+* __Surah Hud Ayat 17__: [أَفَمَن كَانَ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّهِۦ وَيَتْلُوهُ شَاهِدٌۭ مِّنْهُ وَمِن قَبْلِهِۦ كِتَـٰبُ مُوسَىٰٓ إِمَامًۭا وَرَحْمَةً ۚ أُو۟لَـٰٓئِكَ يُؤْمِنُونَ بِهِۦ ۚ وَمَن يَكْفُرْ بِهِۦ مِنَ ٱلْأَحْزَابِ فَٱلنَّارُ مَوْعِدُهُۥ ۚ فَلَا تَكُ فِى مِرْيَةٍۢ مِّنْهُ ۚ إِنَّهُ ٱلْحَقُّ مِن رَّبِّكَ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يُؤْمِنُونَ](https://quranwbw.com/11/17)
+* __Surah Hud Ayat 28__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَءَاتَىٰنِى رَحْمَةًۭ مِّنْ عِندِهِۦ فَعُمِّيَتْ عَلَيْكُمْ أَنُلْزِمُكُمُوهَا وَأَنتُمْ لَهَا كَـٰرِهُونَ](https://quranwbw.com/11/28)
+* __Surah Hud Ayat 43__: [قَالَ سَـَٔاوِىٓ إِلَىٰ جَبَلٍۢ يَعْصِمُنِى مِنَ ٱلْمَآءِ ۚ قَالَ لَا عَاصِمَ ٱلْيَوْمَ مِنْ أَمْرِ ٱللَّهِ إِلَّا مَن رَّحِمَ ۚ وَحَالَ بَيْنَهُمَا ٱلْمَوْجُ فَكَانَ مِنَ ٱلْمُغْرَقِينَ](https://quranwbw.com/11/43)
+* __Surah Hud Ayat 47__: [قَالَ رَبِّ إِنِّىٓ أَعُوذُ بِكَ أَنْ أَسْـَٔلَكَ مَا لَيْسَ لِى بِهِۦ عِلْمٌۭ ۖ وَإِلَّا تَغْفِرْ لِى وَتَرْحَمْنِىٓ أَكُن مِّنَ ٱلْخَـٰسِرِينَ](https://quranwbw.com/11/47)
+* __Surah Hud Ayat 58__: [وَلَمَّا جَآءَ أَمْرُنَا نَجَّيْنَا هُودًۭا وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ بِرَحْمَةٍۢ مِّنَّا وَنَجَّيْنَـٰهُم مِّنْ عَذَابٍ غَلِيظٍۢ ٥٨](https://quranwbw.com/11/58)
 * __Surah Hud Ayat 63__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَءَاتَىٰنِى مِنْهُ رَحْمَةًۭ فَمَن يَنصُرُنِى مِنَ ٱللَّهِ إِنْ عَصَيْتُهُۥ ۖ فَمَا تَزِيدُونَنِى غَيْرَ تَخْسِيرٍۢ](https://quranwbw.com/11/63)
-* __Surah Hud Ayat 66__: [When Our command came, We saved Ṣâliḥ and those who believed with him by a mercy from Us and spared them the disgrace of that Day. Surely your Lord ˹alone˺ is the All-Powerful, Almighty.](https://quranwbw.com/11/66)
-* __Surah Hud Ayat 73__: [They responded, “Are you astonished by Allah’s decree? May Allah’s mercy and blessings be upon you, O  people of this house. Indeed, He is Praiseworthy, All-Glorious.”](https://quranwbw.com/11/73)
-* __Surah Hud Ayat 94__: [When Our command came, We saved Shu’aib and those who believed with him by a mercy from Us. And the ˹mighty˺ blast overtook the wrongdoers, so they fell lifeless in their homes,](https://quranwbw.com/11/94)
-* __Surah Hud Ayat 119__: [except those shown mercy by your Lord—and so He created them ˹to choose freely˺. And so the Word of your Lord will be fulfilled: “I will surely fill up Hell with jinn and humans all together.”](https://quranwbw.com/11/119)
+* __Surah Hud Ayat 66__: [فَلَمَّا جَآءَ أَمْرُنَا نَجَّيْنَا صَـٰلِحًۭا وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ بِرَحْمَةٍۢ مِّنَّا وَمِنْ خِزْىِ يَوْمِئِذٍ ۗ إِنَّ رَبَّكَ هُوَ ٱلْقَوِىُّ ٱلْعَزِيزُ](https://quranwbw.com/11/66)
+* __Surah Hud Ayat 73__: [قَالُوٓا۟ أَتَعْجَبِينَ مِنْ أَمْرِ ٱللَّهِ ۖ رَحْمَتُ ٱللَّهِ وَبَرَكَـٰتُهُۥ عَلَيْكُمْ أَهْلَ ٱلْبَيْتِ ۚ إِنَّهُۥ حَمِيدٌۭ مَّجِيدٌۭ](https://quranwbw.com/11/73)
+* __Surah Hud Ayat 94__: [وَلَمَّا جَآءَ أَمْرُنَا نَجَّيْنَا شُعَيْبًۭا وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ بِرَحْمَةٍۢ مِّنَّا وَأَخَذَتِ ٱلَّذِينَ ظَلَمُوا۟ ٱلصَّيْحَةُ فَأَصْبَحُوا۟ فِى دِيَـٰرِهِمْ جَـٰثِمِينَ](https://quranwbw.com/11/94)
+* __Surah Hud Ayat 119__: [إِلَّا مَن رَّحِمَ رَبُّكَ ۚ وَلِذَٰلِكَ خَلَقَهُمْ ۗ وَتَمَّتْ كَلِمَةُ رَبِّكَ لَأَمْلَأَنَّ جَهَنَّمَ مِنَ ٱلْجِنَّةِ وَٱلنَّاسِ أَجْمَعِينَ](https://quranwbw.com/11/119)
 
 ***
 

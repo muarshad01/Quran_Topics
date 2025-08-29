@@ -209,9 +209,9 @@
 
 *** 
 
-* __Surah Al-Ankabut 21__: [يُعَذِّبُ مَن يَشَآءُ وَيَرْحَمُ مَن يَشَآءُ ۖ وَإِلَيْهِ تُقْلَبُونَ](https://quranwbw.com/29/21)
-* __Surah Al-Ankabut 23__: [As for those who disbelieve in Allah’s signs and the meeting with Him, it is they who will have no hope in His mercy.1 And it is they who will suffer a painful punishment.](https://quranwbw.com/29/23)
-* __Surah Al-Ankabut 51__: [Is it not enough for them that We have sent down to you the Book, ˹which is˺ recited to them. Surely in this ˹Quran˺ is a mercy and reminder for people who believe.](https://quranwbw.com/29/51)
+* __Surah Al-Ankabut 29/21__: [يُعَذِّبُ مَن يَشَآءُ وَيَرْحَمُ مَن يَشَآءُ ۖ وَإِلَيْهِ تُقْلَبُونَ](https://quranwbw.com/29/21)
+* __Surah Al-Ankabut 29/23__: [وَٱلَّذِينَ كَفَرُوا۟ بِـَٔايَـٰتِ ٱللَّهِ وَلِقَآئِهِۦٓ أُو۟لَـٰٓئِكَ يَئِسُوا۟ مِن رَّحْمَتِى وَأُو۟لَـٰٓئِكَ لَهُمْ عَذَابٌ أَلِيمٌۭ](https://quranwbw.com/29/23)
+* __Surah Al-Ankabut 29/51__: [أَوَلَمْ يَكْفِهِمْ أَنَّآ أَنزَلْنَا عَلَيْكَ ٱلْكِتَـٰبَ يُتْلَىٰ عَلَيْهِمْ ۚ إِنَّ فِى ذَٰلِكَ لَرَحْمَةًۭ وَذِكْرَىٰ لِقَوْمٍۢ يُؤْمِنُونَ](https://quranwbw.com/29/51)
 
 *** 
 
@@ -233,12 +233,12 @@
 
 ***
 
-* __Surah Fatir 35/2__: [Whatever mercy Allah opens up for people, none can withhold it. And whatever He withholds, none but Him can release it. For He is the Almighty, All-Wise.](https://quranwbw.com/35/2)
+* __Surah Fatir 35/2__: [مَّا يَفْتَحِ ٱللَّهُ لِلنَّاسِ مِن رَّحْمَةٍۢ فَلَا مُمْسِكَ لَهَا ۖ وَمَا يُمْسِكْ فَلَا مُرْسِلَ لَهُۥ مِنۢ بَعْدِهِۦ ۚ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quranwbw.com/35/2)
 
 *** 
 
 * __Surah Ya-Sin 44__: [إِلَّا رَحْمَةًۭ مِّنَّا وَمَتَـٰعًا إِلَىٰ حِينٍۢ](https://quranwbw.com/36/44)
-* __Surah Ya-Sin 45__: [˹Still they turn away˺ when it is said to them, “Beware of what is ahead of you ˹in the Hereafter˺ and what is behind you ˹of destroyed nations˺ so you may be shown mercy.”](https://quranwbw.com/36/45)
+* __Surah Ya-Sin 45__: [وَإِذَا قِيلَ لَهُمُ ٱتَّقُوا۟ مَا بَيْنَ أَيْدِيكُمْ وَمَا خَلْفَكُمْ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/36/45)
 
 *** 
 

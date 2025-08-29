@@ -2,7 +2,8 @@
 * Ego (self)
 * Aijzi (Humility) - most dangerours
 * Ilm
-* Wealth / Statys
+* Dolat, Wealth
+* Status, Muqam, Rank
 * Ibadaat (Worship) / Parsai (Piousness)
 * Izzat-daar
   * `Main koon, Tui-hi Too`

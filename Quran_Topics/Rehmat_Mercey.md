@@ -1,8 +1,8 @@
 #### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
-* 1 Allah SWT jab kisi par rehmat ka irada karta hai, tu uss ki aankh uss par khool deta hai - Hadith
+* 1 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
   * Self monitrong
   * You start seeing you sins, mistakes, bad things...
-* 2 Allah SWT jab kisi par rehmat ka irada karta hai, tu ussay deen ki samajh ata kar deta hai - Hadith
+* 2 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai - Hadith
 * 3 You start being merciful for others...
 
 ***
@@ -139,19 +139,19 @@
 
 ***
 
-* __Surah An-Nahl 16/64__: [We have revealed to you the Book only to clarify for them what they differed about, and as a guide and mercy for those who believe.](https://quran.com/16/64)
-* __Surah An-Nahl 16/89__: [˹Consider, O  Prophet,˺ the Day We will call against every faith-community a witness of their own. And We will call you to be a witness against these ˹people of yours˺. We have revealed to you the Book as an explanation of all things, a guide, a mercy, and good news for those who ˹fully˺ submit.](https://quran.com/16/89)
+* __Surah An-Nahl 16/64__: [وَمَآ أَنزَلْنَا عَلَيْكَ ٱلْكِتَـٰبَ إِلَّا لِتُبَيِّنَ لَهُمُ ٱلَّذِى ٱخْتَلَفُوا۟ فِيهِ ۙ وَهُدًۭى وَرَحْمَةًۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/16/64)
+* __Surah An-Nahl 16/89__: [وَيَوْمَ نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
 
 *** 
 
-* __Surah Al-Isra 8__: [Perhaps your Lord will have mercy on you ˹if you repent˺, but if you return ˹to sin˺, We will return ˹to punishment˺. And We have made Hell a ˹permanent˺ confinement for the disbelievers.”](https://quranwbw.com/17/8)
-* __Surah Al-Isra 24__: [And be humble with them out of mercy, and pray, “My Lord! Be merciful to them as they raised me when I was young.”](https://quranwbw.com/17/24)
-* __Surah Al-Isra 28__: [But if you must turn them down ˹because you lack the means to give˺—while hoping to receive your Lord’s bounty—then ˹at least˺ give them a kind word.](https://quranwbw.com/17/28)
-* __Surah Al-Isra 54__: [Your Lord knows you best. He may have mercy on you if He wills, or punish you if He wills. We have not sent you ˹O Prophet˺ as a keeper over them.](https://quranwbw.com/17/54)
-* __Surah Al-Isra 57__: [˹Even˺ the closest ˹to Allah˺ of those invoked would be seeking a way to their Lord, hoping for His mercy, and fearing His punishment. Indeed, your Lord’s torment is fearsome.](https://quranwbw.com/17/57)
-* __Surah Al-Isra 82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
-* __Surah Al-Isra 87__: [had it not been for the mercy of your Lord. Indeed, His favour upon you is immense.](https://quranwbw.com/17/87)
-* __Surah Al-Isra 100__: [Say ˹to them, O  Prophet˺, “Even if you were to possess the ˹infinite˺ treasuries of my Lord’s mercy, then you would certainly withhold ˹them˺, fearing they would run out—for humankind is ever stingy!”](https://quranwbw.com/17/100)
+* __Surah Al-Isra 17/8__: [عَسَىٰ رَبُّكُمْ أَن يَرْحَمَكُمْ ۚ وَإِنْ عُدتُّمْ عُدْنَا ۘ وَجَعَلْنَا جَهَنَّمَ لِلْكَـٰفِرِينَ حَصِيرًا](https://quranwbw.com/17/8)
+* __Surah Al-Isra 17/24__: [وَٱخْفِضْ لَهُمَا جَنَاحَ ٱلذُّلِّ مِنَ ٱلرَّحْمَةِ وَقُل رَّبِّ ٱرْحَمْهُمَا كَمَا رَبَّيَانِى صَغِيرًۭا](https://quranwbw.com/17/24)
+* __Surah Al-Isra 17/28__: [وَإِمَّا تُعْرِضَنَّ عَنْهُمُ ٱبْتِغَآءَ رَحْمَةٍۢ مِّن رَّبِّكَ تَرْجُوهَا فَقُل لَّهُمْ قَوْلًۭا مَّيْسُورًۭا](https://quranwbw.com/17/28)
+* __Surah Al-Isra 17/54__: [Your Lord knows you best. He may have mercy on you if He wills, or punish you if He wills. We have not sent you ˹O Prophet˺ as a keeper over them.](https://quranwbw.com/17/54)
+* __Surah Al-Isra 17/57__: [أُو۟لَـٰٓئِكَ ٱلَّذِينَ يَدْعُونَ يَبْتَغُونَ إِلَىٰ رَبِّهِمُ ٱلْوَسِيلَةَ أَيُّهُمْ أَقْرَبُ وَيَرْجُونَ رَحْمَتَهُۥ وَيَخَافُونَ عَذَابَهُۥٓ ۚ إِنَّ عَذَابَ رَبِّكَ كَانَ مَحْذُورًۭا](https://quranwbw.com/17/57)
+* __Surah Al-Isra 17/82__: [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا](https://quranwbw.com/17/82)
+* __Surah Al-Isra 17/87__: [إِلَّا رَحْمَةًۭ مِّن رَّبِّكَ ۚ إِنَّ فَضْلَهُۥ كَانَ عَلَيْكَ كَبِيرًۭا](https://quranwbw.com/17/87)
+* __Surah Al-Isra 17/100__: [قُل لَّوْ أَنتُمْ تَمْلِكُونَ خَزَآئِنَ رَحْمَةِ رَبِّىٓ إِذًۭا لَّأَمْسَكْتُمْ خَشْيَةَ ٱلْإِنفَاقِ ۚ وَكَانَ ٱلْإِنسَـٰنُ قَتُورًۭا](https://quranwbw.com/17/100)
 
 ***
 

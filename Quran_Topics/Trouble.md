@@ -18,6 +18,10 @@
 ***
 
 ### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
+* Lean patch: Remember good times...
+* After lean patch...you get a lot of Arooj.
+* You do a lot of duas...ALL our duas are accumulated...
+* You get rewards together.
 
 ***
 

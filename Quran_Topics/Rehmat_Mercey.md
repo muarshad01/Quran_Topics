@@ -258,16 +258,16 @@
 
 *** 
 
-* __Surah Fussilat (Explained in Detail) 50__: [](https://quranwbw.com/41/50)
+* __Surah Fussilat (Explained in Detail) 41/50__: [وَلَئِنْ أَذَقْنَـٰهُ رَحْمَةًۭ مِّنَّا مِنۢ بَعْدِ ضَرَّآءَ مَسَّتْهُ لَيَقُولَنَّ هَـٰذَا لِى وَمَآ أَظُنُّ ٱلسَّاعَةَ قَآئِمَةًۭ وَلَئِن رُّجِعْتُ إِلَىٰ رَبِّىٓ إِنَّ لِى عِندَهُۥ لَلْحُسْنَىٰ ۚ فَلَنُنَبِّئَنَّ ٱلَّذِينَ كَفَرُوا۟ بِمَا عَمِلُوا۟ وَلَنُذِيقَنَّهُم مِّنْ عَذَابٍ غَلِيظٍۢ](https://quranwbw.com/41/50)
 
 ***
 
-* __Surah Ash-Shura 8__: [Had Allah willed, He could have easily made all ˹humanity˺ into a single community ˹of believers˺. But He admits into His mercy whoever He wills. And the wrongdoers will have no protector or helper.](https://quranwbw.com/42/8)
-* __Surah Ash-Shura 48__: [But if they turn away, We have not sent you ˹O Prophet˺ as a keeper over them. Your duty is only to deliver ˹the message˺. And indeed, when We let someone taste a mercy from Us, they become prideful ˹because˺ of it. But when afflicted with evil because of what their hands have done, then one becomes totally ungrateful.](https://quranwbw.com/42/48)
+* __Surah Ash-Shura 42/8__: [وَلَوْ شَآءَ ٱللَّهُ لَجَعَلَهُمْ أُمَّةًۭ وَٰحِدَةًۭ وَلَـٰكِن يُدْخِلُ مَن يَشَآءُ فِى رَحْمَتِهِۦ ۚ وَٱلظَّـٰلِمُونَ مَا لَهُم مِّن وَلِىٍّۢ وَلَا نَصِيرٍ](https://quranwbw.com/42/8)
+* __Surah Ash-Shura 48__: [فَإِنْ أَعْرَضُوا۟ فَمَآ أَرْسَلْنَـٰكَ عَلَيْهِمْ حَفِيظًا ۖ إِنْ عَلَيْكَ إِلَّا ٱلْبَلَـٰغُ ۗ وَإِنَّآ إِذَآ أَذَقْنَا ٱلْإِنسَـٰنَ مِنَّا رَحْمَةًۭ فَرِحَ بِهَا ۖ وَإِن تُصِبْهُمْ سَيِّئَةٌۢ بِمَا قَدَّمَتْ أَيْدِيهِمْ فَإِنَّ ٱلْإِنسَـٰنَ كَفُورٌۭ](https://quranwbw.com/42/48)
 
 ***
 
-* __Surah Az-Zukhruf (Ornaments of Gold) 32__: [Is it they who distribute your Lord’s mercy? We ˹alone˺ have distributed their ˹very˺ livelihood among them in this worldly life and raised some of them in rank above others so that some may employ others in service. ˹But˺ your Lord’s mercy is far better than whatever ˹wealth˺ they amass.](https://quran.com/43/32)
+* __Surah Az-Zukhruf (Ornaments of Gold) 32__: [أَهُمْ يَقْسِمُونَ رَحْمَتَ رَبِّكَ ۚ نَحْنُ قَسَمْنَا بَيْنَهُم مَّعِيشَتَهُمْ فِى ٱلْحَيَوٰةِ ٱلدُّنْيَا ۚ وَرَفَعْنَا بَعْضَهُمْ فَوْقَ بَعْضٍۢ دَرَجَـٰتٍۢ لِّيَتَّخِذَ بَعْضُهُم بَعْضًۭا سُخْرِيًّۭا ۗ وَرَحْمَتُ رَبِّكَ خَيْرٌۭ مِّمَّا يَجْمَعُونَ](https://quran.com/43/32)
 
 ***
 
@@ -285,7 +285,7 @@
 
 *** 
 
-* __Surah Al-Fath 48/25__: [They are the ones who persisted in disbelief and hindered you from the Sacred Mosque, preventing the sacrificial animals from reaching their destination.1 ˹We would have let you march through Mecca,˺ had there not been believing men and women, unknown to you. You might have trampled them underfoot, incurring guilt for ˹what you did to˺ them unknowingly. That was so Allah may admit into His mercy whoever He wills.2 Had those ˹unknown˺ believers stood apart, We would have certainly inflicted a painful punishment on the disbelievers.](https://quran.com/48/25)
+* __Surah Al-Fath 48/25__: [هُمُ ٱلَّذِينَ كَفَرُوا۟ وَصَدُّوكُمْ عَنِ ٱلْمَسْجِدِ ٱلْحَرَامِ وَٱلْهَدْىَ مَعْكُوفًا أَن يَبْلُغَ مَحِلَّهُۥ ۚ وَلَوْلَا رِجَالٌۭ مُّؤْمِنُونَ وَنِسَآءٌۭ مُّؤْمِنَـٰتٌۭ لَّمْ تَعْلَمُوهُمْ أَن تَطَـُٔوهُمْ فَتُصِيبَكُم مِّنْهُم مَّعَرَّةٌۢ بِغَيْرِ عِلْمٍۢ ۖ لِّيُدْخِلَ ٱللَّهُ فِى رَحْمَتِهِۦ مَن يَشَآءُ ۚ لَوْ تَزَيَّلُوا۟ لَعَذَّبْنَا ٱلَّذِينَ كَفَرُوا۟ مِنْهُمْ عَذَابًا أَلِيمًا](https://quran.com/48/25)
 
 *** 
 
@@ -304,9 +304,9 @@
     
 ***
 
-* __Surah Al-Hadid 57/13__: [On that Day hypocrite men and women will beg the believers, “Wait for us so that we may have some of your light.” It will be said ˹mockingly˺, “Go back ˹to the world˺ and seek a light ˹there˺!” Then a ˹separating˺ wall with a gate will be erected between them. On the near side will be grace and on the far side will be torment.](https://quran.com/57/13)
+* __Surah Al-Hadid 57/13__: [يَوْمَ يَقُولُ ٱلْمُنَـٰفِقُونَ وَٱلْمُنَـٰفِقَـٰتُ لِلَّذِينَ ءَامَنُوا۟ ٱنظُرُونَا نَقْتَبِسْ مِن نُّورِكُمْ قِيلَ ٱرْجِعُوا۟ وَرَآءَكُمْ فَٱلْتَمِسُوا۟ نُورًۭا فَضُرِبَ بَيْنَهُم بِسُورٍۢ لَّهُۥ بَابٌۢ بَاطِنُهُۥ فِيهِ ٱلرَّحْمَةُ وَظَـٰهِرُهُۥ مِن قِبَلِهِ ٱلْعَذَابُ ١٣](https://quran.com/57/13)
 
-* __Surah Al-Hadid 57/27__: [Then in the footsteps of these ˹prophets˺, We sent Our messengers, and ˹after them˺ We sent Jesus, son of Mary, and granted him the Gospel, and instilled compassion and mercy into the hearts of his followers. As for monasticism, they made it up—We never ordained it for them—only seeking to please Allah, yet they did not ˹even˺ observe it strictly. So We rewarded those of them who were faithful. But most of them are rebellious.](https://quran.com/57/27)
+* __Surah Al-Hadid 57/27__: [ثُمَّ قَفَّيْنَا عَلَىٰٓ ءَاثَـٰرِهِم بِرُسُلِنَا وَقَفَّيْنَا بِعِيسَى ٱبْنِ مَرْيَمَ وَءَاتَيْنَـٰهُ ٱلْإِنجِيلَ وَجَعَلْنَا فِى قُلُوبِ ٱلَّذِينَ ٱتَّبَعُوهُ رَأْفَةًۭ وَرَحْمَةًۭ وَرَهْبَانِيَّةً ٱبْتَدَعُوهَا مَا كَتَبْنَـٰهَا عَلَيْهِمْ إِلَّا ٱبْتِغَآءَ رِضْوَٰنِ ٱللَّهِ فَمَا رَعَوْهَا حَقَّ رِعَايَتِهَا ۖ فَـَٔاتَيْنَا ٱلَّذِينَ ءَامَنُوا۟ مِنْهُمْ أَجْرَهُمْ ۖ وَكَثِيرٌۭ مِّنْهُمْ فَـٰسِقُونَ](https://quran.com/57/27)
 
 #### Double portion of REHMAT and grant NOOR
 * __Surah Al-Hadid 57/28__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱتَّقُوا۟ ٱللَّهَ وَءَامِنُوا۟ بِرَسُولِهِۦ يُؤْتِكُمْ كِفْلَيْنِ مِن رَّحْمَتِهِۦ وَيَجْعَل لَّكُمْ نُورًۭا تَمْشُونَ بِهِۦ وَيَغْفِرْ لَكُمْ ۚ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/57/28)

@@ -3,6 +3,11 @@
 
 ***
 
+### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
+* If you want to acquire Ilm then first become obedient with everyone.
+
+***
+
 #### [Naseeb aur Ataa mayn Faraq](https://www.youtube.com/shorts/MTrJr-N5_Pg)
 
 ***

@@ -1,6 +1,9 @@
 ***
 
 ### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
+* After tough time...you get a lot of arooj...
+* All our duas are accumulated...
+* You get rewards together
 
 ***
 

@@ -130,7 +130,7 @@
 
 ***
 
-* __Surah Al-Hijr 1556__: [He exclaimed, “Who would despair of the mercy of their Lord except the misguided?”](https://quranwbw.com/15/56)
+* __Surah Al-Hijr 15/56__: [قَالَ وَمَن يَقْنَطُ مِن رَّحْمَةِ رَبِّهِۦٓ إِلَّا ٱلضَّآلُّونَ](https://quranwbw.com/15/56)
 
 ***
 

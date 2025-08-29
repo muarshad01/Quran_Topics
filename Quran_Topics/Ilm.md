@@ -8,6 +8,11 @@
 ***
 
 #### [Ilm-e-Laduni (علم لدنّی۔)](https://www.youtube.com/watch?v=3E_W2NPqdys)
+* Ghor-o-Fiqr, Mushahida, Tajarbaat is important....
+* Ilm-e-Laduni is a seperate thing
+* Ilm-e-Laa-Dooni (Ilm in which no other is included)
+* Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
+* __Surah Kahf (Khizar AS) 18__: Deshaped the boat, Killed the boy, Build a wall ...
 
 ***
 

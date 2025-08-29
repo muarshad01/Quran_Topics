@@ -7,6 +7,7 @@
 ## Quran Fazilat
 * [Notes](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md)
 * [Rewards of True Worship | بے غرض عبادت کا صلہ](https://www.youtube.com/watch?v=OOU18bsazh0)
+* [Allah Ko Jann nah](https://www.youtube.com/shorts/TwDJhC5TcPQ)
 
 ***
 

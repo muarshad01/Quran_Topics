@@ -3,6 +3,10 @@
 
 ***
 
+#### [Naseeb aur Ataa mayn Faraq](https://www.youtube.com/shorts/MTrJr-N5_Pg)
+
+***
+
 #### [Ilm-e-Laduni (علم لدنّی۔)](https://www.youtube.com/watch?v=3E_W2NPqdys)
 
 ***

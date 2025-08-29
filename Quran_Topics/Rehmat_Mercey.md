@@ -184,7 +184,7 @@
 
 *** 
 
-* __Surah An-Nur 10__: [˹You would have suffered,˺ had it not been for Allah’s grace and mercy upon you, and had Allah not been Accepting of Repentance, All-Wise.](https://quranwbw.com/24/10)
+* __Surah An-Nur 10__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ وَأَنَّ ٱللَّهَ تَوَّابٌ حَكِيمٌ](https://quranwbw.com/24/10)
 * __Surah An-Nur 14__: [Had it not been for Allah’s grace and mercy upon you in this world and the Hereafter, you would have certainly been touched with a tremendous punishment for what you plunged into—](https://quranwbw.com/24/14)
 * __Surah An-Nur 20__: [˹You would have suffered,˺ had it not been for Allah’s grace and mercy upon you, and had Allah not been Ever Gracious, Most Merciful.](https://quranwbw.com/24/20)
 * __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)

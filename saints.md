@@ -155,6 +155,7 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
+### [Bayazid Bastami](https://www.instagram.com/reel/DNLSYUaO112/habits-of-hazrat-syed-yaqoob-ali-shah-ra-%D8%AD%D8%B6%D8%B1%D8%AA-%D8%B3%DB%8C%D8%AF-%DB%8C%D8%B9%D9%82%D9%88%D8%A8-%D8%B9%D9%84%DB%8C-%D8%B4%D8%A7%DB%81-%D8%B5%D8%A7%D8%AD%D8%A8-%DA%A9%DB%92%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA-%D9%88%D8%A7%D8%B7/)
 ### [Har Sadi Main ISLAM Ka Aik MUJADDID? | SSA Shah](https://www.youtube.com/watch?v=37PUWKv_Nrc)
 * Allama Iqbal was Wali Allah
 * Ilhami Poetry

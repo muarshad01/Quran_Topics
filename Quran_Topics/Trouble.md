@@ -5,8 +5,8 @@
 ***
 
 ### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
-1. Prophet PBUH gave his Jubb and dastaar and said give this to Uwais al-Qarani.
-2. Ask him to pray for Bakhshis-of-my-Ummat.
+1. Prophet PBUH gave his Jubba-and-dastaar mubarak and said,  "give this to Uwais al-Qarani."
+2. Ask him to pray for `Bakhshis-of-my-Ummat`.
 3. Hazrat Umer and Hazrat Ali RA went to meet him...
 
 #### No Jadugar can harm you

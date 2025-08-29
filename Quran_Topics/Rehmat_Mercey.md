@@ -127,11 +127,11 @@
 
 ***
 
-* __Surah Yusuf 53__: [And I do not seek to free myself from blame, for indeed the soul is ever inclined to evil, except those shown mercy by my Lord. Surely my Lord is All-Forgiving, Most Merciful.”](https://quranwbw.com/12/53)
-* __Surah Yusuf 56__: [This is how We established Joseph in the land to settle wherever he pleased. We shower Our mercy on whoever We will, and We never discount the reward of the good-doers.](https://quranwbw.com/12/56)
-* __Surah Yusuf 87__: [O  my sons! Go and search ˹diligently˺ for Joseph and his brother. And do not lose hope in the mercy of Allah, for no one loses hope in Allah’s mercy except those with no faith.”](https://quranwbw.com/12/87)
-* __Surah Yusuf 92__: [Joseph said, “There is no blame on you today. May Allah forgive you! He is the Most Merciful of the merciful!](https://quranwbw.com/12/92)
-* __Surah Yusuf 111__: [In their stories there is truly a lesson for people of reason. This message cannot be a fabrication, rather ˹it is˺ a confirmation of previous revelation, a detailed explanation of all things, a guide, and a mercy for people of faith.](https://quranwbw.com/12/111)
+* __Surah Yusuf 12/53__: [۞ وَمَآ أُبَرِّئُ نَفْسِىٓ ۚ إِنَّ ٱلنَّفْسَ لَأَمَّارَةٌۢ بِٱلسُّوٓءِ إِلَّا مَا رَحِمَ رَبِّىٓ ۚ إِنَّ رَبِّى غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/12/53)
+* __Surah Yusuf 12/56__: [وَكَذَٰلِكَ مَكَّنَّا لِيُوسُفَ فِى ٱلْأَرْضِ يَتَبَوَّأُ مِنْهَا حَيْثُ يَشَآءُ ۚ نُصِيبُ بِرَحْمَتِنَا مَن نَّشَآءُ ۖ وَلَا نُضِيعُ أَجْرَ ٱلْمُحْسِنِينَ](https://quranwbw.com/12/56)
+* __Surah Yusuf 12/87__: [يَـٰبَنِىَّ ٱذْهَبُوا۟ فَتَحَسَّسُوا۟ مِن يُوسُفَ وَأَخِيهِ وَلَا تَا۟يْـَٔسُوا۟ مِن رَّوْحِ ٱللَّهِ ۖ إِنَّهُۥ لَا يَا۟يْـَٔسُ مِن رَّوْحِ ٱللَّهِ إِلَّا ٱلْقَوْمُ ٱلْكَـٰفِرُونَ](https://quranwbw.com/12/87)
+* __Surah Yusuf 12/92__: [قَالَ لَا تَثْرِيبَ عَلَيْكُمُ ٱلْيَوْمَ ۖ يَغْفِرُ ٱللَّهُ لَكُمْ ۖ وَهُوَ أَرْحَمُ ٱلرَّٰحِمِينَ](https://quranwbw.com/12/92)
+* __Surah Yusuf 12/111__: [لَقَدْ كَانَ فِى قَصَصِهِمْ عِبْرَةٌۭ لِّأُو۟لِى ٱلْأَلْبَـٰبِ ۗ مَا كَانَ حَدِيثًۭا يُفْتَرَىٰ وَلَـٰكِن تَصْدِيقَ ٱلَّذِى بَيْنَ يَدَيْهِ وَتَفْصِيلَ كُلِّ شَىْءٍۢ وَهُدًۭى وَرَحْمَةًۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quranwbw.com/12/111)
 
 ***
 

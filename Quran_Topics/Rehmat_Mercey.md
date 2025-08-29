@@ -1,4 +1,9 @@
 #### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
+* 1 Allah SWT jab kisi par rehmat ka irada karta hai, tu uss ki aankh uss par khool deta hai - Hadith
+  * Self monitrong
+  * You start seeing you sins, mistakes, bad things...
+* 2 Allah SWT jab kisi par rehmat ka irada karta hai, tu ussay deen ki samajh ata kar deta hai - Hadith
+* 3 You start being merciful for others...
 
 ***
 

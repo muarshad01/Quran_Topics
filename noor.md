@@ -49,8 +49,18 @@
 * 1. Nool-ul-Alqaa (Laqa: So bright that it became blackish-shiny) [فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ](https://quranwbw.com/18/110)
 * 2. Noor-ul-Marwareed (Prophet PBUH; very shiny-white; Like a drop) - Wajha Takhleeq-e-Kainaat
 * 3. Noor-ul-Huda:
-* 3.1 Noor-ul-Huda-Al-mutaqeen [Noor-ul-momineen] (All Anbiaa; Messengers)
-* 3.2 Noor-ul-Huda-Al-alameen (All other human beings; Aulia ikram)
+* 3.1 Noor-ul-Huda-Al-momineen [Noor-ul-mutaqeen] (All Anbiaa; Messengers)
+* 3.2 Noor-ul-Huda-Al-alameen (All other human beings; Aulia Ikram)
 * 3.3 Wardatul-Noor-ul Huda
 
+#### [13. Q&A Session With Syed Sarfraz A. Shah | Haqq Al Yaqin ki Manzil]()
+* Rohe-Insani was brought to 6th heaven and was given a bath in Noor (The Pious Soul), then
+* Rohe-Insani was brought to 3th heaven and was given a bath in Noor (The Moving Soul).
+* Afterwards, all Rooh were placed in Alam-e-Arwah.
+* There is a VOID in the centre of heart. Rooh lives in that VOID. Opposote to heard is NAFAS.
+#### Levels
+* Deen Ki Fehem
+* Ilm
+* Aqal
+* Essance of windom is Rabb.
 ***

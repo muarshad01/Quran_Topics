@@ -37,6 +37,7 @@
 * https://quran.com/27/15
 * https://quranwbw.com/38/30
 * 19 -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
+   * https://www.youtube.com/watch?v=3iqNDea7whA
 * 20 -  Ilyas (Elias)
 * 21 -  Alyasa (Elisha)
 * 22 -  Yunus (Jonah)

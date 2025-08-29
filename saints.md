@@ -160,3 +160,5 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * Ilhami Poetry
 
 *** 
+
+Shams-i-Tabrizi was spiritual instructor of Mewlana Jalal ad-Din Muhammad Balkhi, also known as Rumi.

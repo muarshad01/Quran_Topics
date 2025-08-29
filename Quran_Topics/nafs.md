@@ -23,7 +23,7 @@
 2. Nafs al-Lawwama (the Reproaching Self)
 3. Nafs al-Mutmainna (the Content Self)
 
-* __Surah Yusuf 12/53 (${\color{red}Nafs ~al-Ammara}$)__: [And I do not seek to free myself from blame, for indeed the soul is ever inclined to evil, except those shown mercy by my Lord. Surely my Lord is All-Forgiving, Most Merciful.”](https://quran.com/12/53)
+* __Surah Yusuf 12/53 (${\color{red}Nafs ~al-Ammara}$)__: [۞ وَمَآ أُبَرِّئُ نَفْسِىٓ ۚ إِنَّ ٱلنَّفْسَ لَأَمَّارَةٌۢ بِٱلسُّوٓءِ إِلَّا مَا رَحِمَ رَبِّىٓ ۚ إِنَّ رَبِّى غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/12/53)
 * __Surah Al-Qiyamah 75/2 (${\color{red}Nafs ~al-Lawwama}$)__: [And I do swear by the self-reproaching soul!](https://quran.com/75/2)
 * __Surah Al-Fajr 89/27-30 (${\color{red}Nafs ~al-Mutmainna}$)__: [˹Allah will say to the righteous,˺ “O tranquil soul! Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. So join My servants, and enter My Paradise.”](https://quran.com/89/27-30)
  

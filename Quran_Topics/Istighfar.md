@@ -27,10 +27,10 @@
 
 #### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)
 
+***
+
 #### Hadith
 * [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
-
-#### [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
 
 ***
 

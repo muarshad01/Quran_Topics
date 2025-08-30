@@ -12,6 +12,10 @@ https://www.youtube.com/shorts/kjyit2mfNJs
 
 ***
 
+### [Black magic and Quran (Islamic Perspective) | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)
+
+***
+
 ### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj](https://www.youtube.com/watch?v=r7s04SNiPHw)
 
 ***

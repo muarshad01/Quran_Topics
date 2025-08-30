@@ -53,3 +53,5 @@
 * __Surah Al-Mu'minun 23/1-11__: []()
 
 ***
+
+#### [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)

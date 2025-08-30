@@ -6,7 +6,7 @@
 
 *** 
 
-* __Surah 10/81__: [ٱلسِّحْرُ ۖ إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://www.youtube.com/shorts/LiFaQPru5d8)
+* __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://www.youtube.com/shorts/LiFaQPru5d8)
 
 ***
 

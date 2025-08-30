@@ -31,7 +31,12 @@
 
 ***
 
+### [Hazrat Musa ko Allah nay kon C Tasbeeh btai |  Professor Ahmad Rafique Akhta](https://www.youtube.com/shorts/H_bEsU6u-e0)
+
+***
+
 * __Surah Al-Baqarag 2/156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156))
+  * For every big trouble...read this tasbeeh
 
 ***
 

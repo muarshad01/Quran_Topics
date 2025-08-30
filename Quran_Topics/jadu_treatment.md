@@ -12,6 +12,10 @@ https://www.youtube.com/shorts/kjyit2mfNJs
 
 ***
 
+### [Black Magic and Islam | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=O7j5u1Zahns)
+
+***
+
 ### [Black magic and Quran (Islamic Perspective) | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)
 
 ***

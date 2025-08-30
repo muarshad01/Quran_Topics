@@ -1,3 +1,7 @@
+* __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://www.youtube.com/shorts/LiFaQPru5d8)
+
+***
+
 ### [Jadu Ki Nishaniya | SSA](https://www.youtube.com/shorts/kjyit2mfNJs)
 1. Waswasa (Lurking Whisperer)
 2. Fear
@@ -6,7 +10,9 @@
 
 *** 
 
-* __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://www.youtube.com/shorts/LiFaQPru5d8)
+### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
+* Mera Rabb Sab say ziada taqat war hai.
+* __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 
 ***
 
@@ -27,10 +33,6 @@
 ***
 
 ### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj](https://www.youtube.com/watch?v=r7s04SNiPHw)
-
-***
-
-### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
 
 ***
 

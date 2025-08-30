@@ -15,11 +15,11 @@
 
 #### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
 * `Wa-is'taghfir'hu (and ask His forgiveness)`
-* __Surah An-Nasr 110__: [(1) When Allah’s ˹ultimate˺ help comes and the victory ˹over Mecca is achieved˺, (2) and you ˹O Prophet˺ see the people embracing Allah’s Way in crowds, (3)then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110)
-* __Surah Nooh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [(10) saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving. (11) He will shower you with abundant rain, (12) supply you with wealth and children, and give you gardens as well as rivers.](https://quranwbw.com/71#10-12)
-    * Five Things: Gunah, Hunger Poverty (Wealth), Children, Garden,  Rivers
+* __Surah An-Nasr 110__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
     * Istigfar is a constant Ibadah
-* __Surah Al-Anfaal [The Spoils of War] 08/33__: [But Allah would never punish them while you ˹O Prophet˺ were in their midst. Nor would He ever punish them if they prayed for forgiveness.](https://quranwbw.com/8#33)
+* __Surah Nooh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)
+    * Five Things: Gunah, Hunger Poverty (Wealth), Children, Garden,  Rivers
+* __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quranwbw.com/8#33)
 
 ***
 

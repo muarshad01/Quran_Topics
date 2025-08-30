@@ -1,3 +1,7 @@
+### [Rab Ki Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
+
+***
+
 ### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
 
 * Shamsuddin Turk Pani Pati

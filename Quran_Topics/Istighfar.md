@@ -116,10 +116,10 @@
 
 ***
 
-* __Surah Al-Muzzammil 73/20 (Seek Allah's Forgiveness)__: [وَٱسْتَغْفِرُوا۟ ٱللَّهَ ۖ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌۢ](https://quranwbe.com/73/20)
+* __Surah Al-Muzzammil 73/20__: [وَٱسْتَغْفِرُوا۟ ٱللَّهَ ۖ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌۢ](https://quranwbe.com/73/20)
 
 ***
 
-* __Surah An-Nasr 110/3 (Glorigy, Praise, and seek Forgiveness)__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
+* __Surah An-Nasr 110/3__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
 
 *** 

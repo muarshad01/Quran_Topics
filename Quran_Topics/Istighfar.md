@@ -1,10 +1,12 @@
-* [ Astaghfar Ki Kasrat Karo | Mufti Zar Wali Khan](https://www.youtube.com/shorts/auAnGsWR0Ag)
-  
-***
-
 ## Istigfar
 * Istighfar, in Islam, is the act of seeking forgiveness from Allah (God). It's a common practice among Muslims, typically involving the recitation of `Astaghfirullah" (أَسْتَغْفِرُ ٱللَّٰهَ)`, which means "I seek forgiveness from Allah". It's a way to acknowledge one's sins and seek divine pardon
 
+***
+
+#### [ Astaghfar Ki Kasrat Karo | Mufti Zar Wali Khan](https://www.youtube.com/shorts/auAnGsWR0Ag)
+* __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quranwbw.com/8#33)
+* __Surah Hud 11/52 (${\color{red}Strength ~and ~Power ~will ~Increase}$)__: [وَيَـٰقَوْمِ ٱسْتَغْفِرُوا۟ رَبَّكُمْ ثُمَّ تُوبُوٓا۟ إِلَيْهِ يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا وَيَزِدْكُمْ قُوَّةً إِلَىٰ قُوَّتِكُمْ وَلَا تَتَوَلَّوْا۟ مُجْرِمِينَ](https://quranwbw.com/11#52)
+* __Surah Nuh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)
 ***
 
 #### [Allah forgive all sins, if sinner seek repentance from God | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
@@ -17,7 +19,7 @@
 * `Wa-is'taghfir'hu (and ask His forgiveness)`
 * __Surah An-Nasr 110__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
     * Istigfar is a constant Ibadah
-* __Surah Nooh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)
+* __Surah Nuh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)
     * Five Things: Gunah, Hunger Poverty (Wealth), Children, Garden,  Rivers
 * __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quranwbw.com/8#33)
 

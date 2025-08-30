@@ -8,8 +8,8 @@
 ***
 
 #### [Allah forgive all sins, if sinner seek repentance from God | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=X1WIFFwQri8)
-* __Surah Az Zumar [The Groups] 39/53__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins. He is indeed the All-Forgiving, Most Merciful.](https://quran.com/39/53)
-* __Surah Yaseen 36/30__: https://quranwbw.com/36/30
+* __Surah Az-Zumar 39/53__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/39/53)
+* __Surah Yaseen 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quranwbw.com/36/30)
 
 ***
 

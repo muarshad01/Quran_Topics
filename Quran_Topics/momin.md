@@ -55,3 +55,9 @@
 ***
 
 #### [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
+
+***
+
+#### [Allah ka inam or wada kis k sath hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
+
+***

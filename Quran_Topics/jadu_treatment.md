@@ -1,6 +1,11 @@
-https://www.youtube.com/shorts/kjyit2mfNJs
+### [Jadu Ki Nishaniya](https://www.youtube.com/shorts/kjyit2mfNJs)
+1. Waswasa
+2. Fear
+3. Anger
 
-* https://www.youtube.com/shorts/LiFaQPru5d8
+*** 
+
+* __Surah 10/81__: [ٱلسِّحْرُ ۖ إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://www.youtube.com/shorts/LiFaQPru5d8)
 
 ***
 

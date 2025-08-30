@@ -8,6 +8,10 @@ https://www.youtube.com/shorts/kjyit2mfNJs
 
 ***
 
+### [Don't believe in black magic, Jadu ka elaaj Quran mein hai | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=jP53yjYqcMU)
+
+***
+
 ### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj](https://www.youtube.com/watch?v=r7s04SNiPHw)
 
 ***

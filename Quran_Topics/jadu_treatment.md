@@ -4,6 +4,10 @@ https://www.youtube.com/shorts/kjyit2mfNJs
 
 ***
 
+### [Surah An-Nas, Al-Falaq aur Jadu ka elaj | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=EcIx5DJqlxw)
+
+***
+
 ### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj](https://www.youtube.com/watch?v=r7s04SNiPHw)
 
 ***

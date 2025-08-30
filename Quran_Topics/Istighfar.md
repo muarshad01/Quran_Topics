@@ -29,97 +29,97 @@
 * [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
 
 #### And Hasten towards Forgiveness
-* __Surah Ale-i-Imran 3/133-138__: [And hasten towards forgiveness from your Lord...](https://quranwbw.com/3#133-138)
-   * [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
+* __Surah Ale-i-Imran 3/133-138__: [۞ وَسَارِعُوٓا۟ إِلَىٰ مَغْفِرَةٍۢ مِّن رَّبِّكُمْ وَجَنَّةٍ عَرْضُهَا ٱلسَّمَـٰوَٰتُ وَٱلْأَرْضُ أُعِدَّتْ لِلْمُتَّقِينَ......وَٱلَّذِينَ إِذَا فَعَلُوا۟ فَـٰحِشَةً أَوْ ظَلَمُوٓا۟ أَنفُسَهُمْ ذَكَرُوا۟ ٱللَّهَ فَٱسْتَغْفَرُوا۟ لِذُنُوبِهِمْ وَمَن يَغْفِرُ ٱلذُّنُوبَ إِلَّا ٱللَّهُ وَلَمْ يُصِرُّوا۟ عَلَىٰ مَا فَعَلُوا۟ وَهُمْ يَعْلَمُونَ](https://quranwbw.com/3#133-138)
+#### [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
 
 ***
 
 #### All-Hearing, All-Knowing, Truly the Accepter of Repentance, Most Merciful
 
-* __Surah Al-Baqarah 2/ 127-128__: [(127) And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing. (128) Our Lord! Make us both ˹fully˺ submit to You1 and from our descendants a nation that will submit to You. Show us our rituals, and turn to us in grace. You are truly the Accepter of Repentance, Most Merciful.](https://quranwbw.com/2/127-128)
+* __Surah Al-Baqarah 2/ 127-128__: [وَإِذْ يَرْفَعُ إِبْرَٰهِـۧمُ ٱلْقَوَاعِدَ مِنَ ٱلْبَيْتِ وَإِسْمَـٰعِيلُ رَبَّنَا تَقَبَّلْ مِنَّآ ۖ إِنَّكَ أَنتَ ٱلسَّمِيعُ ٱلْعَلِيمُ......رَبَّنَا وَٱجْعَلْنَا مُسْلِمَيْنِ لَكَ وَمِن ذُرِّيَّتِنَآ أُمَّةًۭ مُّسْلِمَةًۭ لَّكَ وَأَرِنَا مَنَاسِكَنَا وَتُبْ عَلَيْنَآ ۖ إِنَّكَ أَنتَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quranwbw.com/2/127-128)
 
-* __Surah Al-Baqarah 2/222__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quranwbw.com/2/222)
-
-***
-
-* __Surah Ale-i-Imran 3/17 (${\color{red}Forgiveness ~before ~Dawn}$)__: [˹It is they˺ who are patient, sincere, obedient, and charitable, and who pray for forgiveness before dawn.](https://quranwbw.com/3/17)
+* __Surah Al-Baqarah 2/222__: [إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ](https://quranwbw.com/2/222)
 
 ***
 
-* __Surah An-Nisa 4/110__: [Whoever commits evil or wrongs themselves then seeks Allah’s forgiveness will certainly find Allah All-Forgiving, Most Merciful.](https://quranwbw.com/4/110)
+* __Surah Ale-i-Imran 3/17 (${\color{red}Forgiveness ~before ~Dawn}$)__: [ٱلصَّـٰبِرِينَ وَٱلصَّـٰدِقِينَ وَٱلْقَـٰنِتِينَ وَٱلْمُنفِقِينَ وَٱلْمُسْتَغْفِرِينَ بِٱلْأَسْحَارِ](https://quranwbw.com/3/17)
 
 ***
 
-* __Surah Al-Maidah 5/74__: [Will they not turn to Allah in repentance and seek His forgiveness? And Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/5/74)
+* __Surah An-Nisa 4/110__: [وَمَن يَعْمَلْ سُوٓءًا أَوْ يَظْلِمْ نَفْسَهُۥ ثُمَّ يَسْتَغْفِرِ ٱللَّهَ يَجِدِ ٱللَّهَ غَفُورًۭا رَّحِيمًۭا](https://quranwbw.com/4/110)
 
 ***
 
-* __Surah Al-Araf 7/23__: [They replied, “Our Lord! We have wronged ourselves. If You do not forgive us and have mercy on us, we will certainly be losers.”](https://quranwbw.com/7/23)
+* __Surah Al-Maidah 5/74__: [أَفَلَا يَتُوبُونَ إِلَى ٱللَّهِ وَيَسْتَغْفِرُونَهُۥ ۚ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/5/74)
 
 ***
 
-* __Surah Al-Anfaal [The Spoils of War] 08/33__: [But Allah would never punish them while you ˹O Prophet˺ were in their midst. Nor would He ever punish them if they prayed for forgiveness.](https://quranwbw.com/8#33)
+* __Surah Al-Araf 7/23__: [قَالَا رَبَّنَا ظَلَمْنَآ أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ ٱلْخَـٰسِرِينَ](https://quranwbw.com/7/23)
 
 ***
 
-* __Surah At-Tawbah 9/104 (Allah SWT alone Accepts REPENTANCE and receives CHARITY)__: [Do they not know that Allah alone accepts the repentance of His servants and receives ˹their˺ charity, and that Allah alone is the Accepter of Repentance, Most Merciful?](https://quranwbw.com/9/104)
+* __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quranwbw.com/8#33)
 
 ***
 
-* __Surah Hud 11/03 (${\color{red}Prosperous ~Life ~will ~be ~Granted}$)__: [And seek your Lord’s forgiveness and turn to Him in repentance. He will grant you a good provision for an appointed term and graciously reward the doers of good. But if you turn away, then I truly fear for you the torment of a formidable Day.](https://quranwbw.com/11#3)
-
-
-* __Surah Hud 11/52 (${\color{red}Strength ~and ~Power ~will ~Increase}$)__: [And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”](https://quranwbw.com/11#52)
+* __Surah At-Tawbah 9/104 (Allah SWT alone Accepts REPENTANCE and receives CHARITY)__: [أَلَمْ يَعْلَمُوٓا۟ أَنَّ ٱللَّهَ هُوَ يَقْبَلُ ٱلتَّوْبَةَ عَنْ عِبَادِهِۦ وَيَأْخُذُ ٱلصَّدَقَـٰتِ وَأَنَّ ٱللَّهَ هُوَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quranwbw.com/9/104)
 
 ***
 
-* __Surah Al-Isra [The Night Journey] 17/24 (Parents)__: [And be humble with them out of mercy, and pray, “My Lord! Be merciful to them as they raised me when I was young.”](https://quranwbw.com/17/24)
+* __Surah Hud 11/03 (${\color{red}Prosperous ~Life ~will ~be ~Granted}$)__: [وَأَنِ ٱسْتَغْفِرُوا۟ رَبَّكُمْ ثُمَّ تُوبُوٓا۟ إِلَيْهِ يُمَتِّعْكُم مَّتَـٰعًا حَسَنًا إِلَىٰٓ أَجَلٍۢ مُّسَمًّۭى وَيُؤْتِ كُلَّ ذِى فَضْلٍۢ فَضْلَهُۥ ۖ وَإِن تَوَلَّوْا۟ فَإِنِّىٓ أَخَافُ عَلَيْكُمْ عَذَابَ يَوْمٍۢ كَبِيرٍ ٣](https://quranwbw.com/11#3)
+
+
+* __Surah Hud 11/52 (${\color{red}Strength ~and ~Power ~will ~Increase}$)__: [وَيَـٰقَوْمِ ٱسْتَغْفِرُوا۟ رَبَّكُمْ ثُمَّ تُوبُوٓا۟ إِلَيْهِ يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا وَيَزِدْكُمْ قُوَّةً إِلَىٰ قُوَّتِكُمْ وَلَا تَتَوَلَّوْا۟ مُجْرِمِينَ](https://quranwbw.com/11#52)
 
 ***
 
-* __Surah Al-Anbya 21/87 (Laaa ilaaha illaaa Anta Subhaanaka innee kuntu minaz zaalimeen)__: [And ˹remember˺ when the Man of the Whale stormed off ˹from his city˺ in a rage, thinking We would not restrain him. Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87)
+* __Surah Al-Isra [The Night Journey] 17/24 (Parents)__: [وَٱخْفِضْ لَهُمَا جَنَاحَ ٱلذُّلِّ مِنَ ٱلرَّحْمَةِ وَقُل رَّبِّ ٱرْحَمْهُمَا كَمَا رَبَّيَانِى صَغِيرًۭا](https://quranwbw.com/17/24)
 
 ***
 
-* __Surah An-Naml 27/46__: [He urged ˹the disbelieving group˺, “O my people! Why do you ˹seek to˺ hasten the torment rather than grace? If only you sought Allah’s forgiveness so you may be shown mercy!”](https://quranwbw.com/27/46)
+* __Surah Al-Anbya 21/87 (Laaa ilaaha illaaa Anta Subhaanaka innee kuntu minaz zaalimeen)__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quranwbw.com/21/87)
+
+***
+
+* __Surah An-Naml 27/46__: [قَالَ يَـٰقَوْمِ لِمَ تَسْتَعْجِلُونَ بِٱلسَّيِّئَةِ قَبْلَ ٱلْحَسَنَةِ ۖ لَوْلَا تَسْتَغْفِرُونَ ٱللَّهَ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/27/46)
 
 ***
 
 #### King Solomon Dua
-* __Surah Saad 38/35 (Forgive me and Grant me a Kingdom)__: [He prayed, “My Lord! Forgive me, and grant me an authority that will never be matched by anyone after me. You are indeed the Giver ˹of all bounties˺.”](https://quranwbw.com/38/35)
+* __Surah Saad 38/35 (Forgive me and Grant me a Kingdom)__: [قَالَ رَبِّ ٱغْفِرْ لِى وَهَبْ لِى مُلْكًۭا لَّا يَنۢبَغِى لِأَحَدٍۢ مِّنۢ بَعْدِىٓ ۖ إِنَّكَ أَنتَ ٱلْوَهَّابُ](https://quranwbw.com/38/35)
 
 ***
 
-* __Surah Az-Zumar [The Groups] 39/53 (${\color{red}Never ~Loose ~Hope ~in ~Allah ~SWT ~Mercy}$)__: [Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins. He is indeed the All-Forgiving, Most Merciful.](https://quranwbw.com/39/53)
+* __Surah Az-Zumar39/53 (${\color{red}Never ~Loose ~Hope ~in ~Allah ~SWT ~Mercy}$)__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quranwbw.com/39/53)
 
 ***
 
-* __Surah Al-Ghaafir [The Forgiver] 40/7 (Angels seek forgiveness for those on earth)__: [Those ˹angels˺ who carry the Throne and those around it glorify the praises of their Lord, have faith in Him, and seek forgiveness for the believers, ˹praying:˺ “Our Lord! You encompass everything in ˹Your˺ mercy and knowledge. So forgive those who repent and follow Your Way, and protect them from the torment of the Hellfire.](https://quranwbw.com/40#7)
+* __Surah Al-Ghaafir 40/7 (Angels seek forgiveness for those on earth)__: [ٱلَّذِينَ يَحْمِلُونَ ٱلْعَرْشَ وَمَنْ حَوْلَهُۥ يُسَبِّحُونَ بِحَمْدِ رَبِّهِمْ وَيُؤْمِنُونَ بِهِۦ وَيَسْتَغْفِرُونَ لِلَّذِينَ ءَامَنُوا۟ رَبَّنَا وَسِعْتَ كُلَّ شَىْءٍۢ رَّحْمَةًۭ وَعِلْمًۭا فَٱغْفِرْ لِلَّذِينَ تَابُوا۟ وَٱتَّبَعُوا۟ سَبِيلَكَ وَقِهِمْ عَذَابَ ٱلْجَحِيمِ](https://quranwbw.com/40#7)
 
 ***
 
-* __Surah Ash Shura [Consultation] 42/5__: [The heavens nearly burst, one above the other, ˹in awe of Him˺. And the angels glorify the praises of their Lord, and seek forgiveness for those on earth. Surely Allah alone is the All-Forgiving, Most Merciful.](https://quranwbw.com/42#5)
+* __Surah Ash-Shura [Consultation] 42/5__: [تَكَادُ ٱلسَّمَـٰوَٰتُ يَتَفَطَّرْنَ مِن فَوْقِهِنَّ ۚ وَٱلْمَلَـٰٓئِكَةُ يُسَبِّحُونَ بِحَمْدِ رَبِّهِمْ وَيَسْتَغْفِرُونَ لِمَن فِى ٱلْأَرْضِ ۗ أَلَآ إِنَّ ٱللَّهَ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quranwbw.com/42#5)
 
 ***
 
-* __Surah Muhammad 47/19 (Seek Forgiveness...)__: [So, know ˹well, O  Prophet,˺ that there is no god ˹worthy of worship˺ except Allah. And seek forgiveness for your shortcomings and for ˹the sins of˺ the believing men and women. For Allah ˹fully˺ knows your movements and places of rest ˹O people˺.](https://quranwbw.com/47/19)
+* __Surah Muhammad 47/19 (Seek Forgiveness...)__: [فَٱعْلَمْ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا ٱللَّهُ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَلِلْمُؤْمِنِينَ وَٱلْمُؤْمِنَـٰتِ ۗ وَٱللَّهُ يَعْلَمُ مُتَقَلَّبَكُمْ وَمَثْوَىٰكُمْ](https://quranwbw.com/47/19)
 
 ***
 
 #### Sleep Little...Forgiveness at Dawn...Spend
 
-* __Surah Adh-Dhaariat [The Winnowing Winds] 51/16-19 ()__: [(16) ˹joyfully˺ receiving what their Lord will grant them. Before this ˹reward˺ they were truly good-doers ˹in the world˺. (17) they used to sleep only little in the night, (18) and pray for forgiveness before dawn. (19) And in their wealth there was a rightful share ˹fulfilled˺ for the beggar and the poor.](https://quranwbw.com/51/16-19)
+* __Surah Adh-Dhaariat [The Winnowing Winds] 51/16-19__: [كَانُوا۟ قَلِيلًۭا مِّنَ ٱلَّيْلِ مَا يَهْجَعُونَ......وَبِٱلْأَسْحَارِ هُمْ يَسْتَغْفِرُونَ......وَفِىٓ أَمْوَٰلِهِمْ حَقٌّۭ لِّلسَّآئِلِ وَٱلْمَحْرُومِ](https://quranwbw.com/51/16-19)
 
 ***
 
-* __Surah Nooh 71/10-12 (${\color{red}Rain, ~Wealth, ~Children, ~Gardens, ~and ~Rivers}$)__: [(10) saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving. (11) He will shower you with abundant rain, (12) supply you with wealth and children, and give you gardens as well as rivers.](https://quranwbw.com/71#10-12)
+* __Surah Nooh 71/10-12 (${\color{red}Rain, ~Wealth, ~Children, ~Gardens, ~and ~Rivers}$)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا ١٠......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)
 
 ***
 
-* __Surah Al-Muzzammil [The Eshrouded One] 73/20 (Seek Allah's Forgiveness)__: [And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbe.com/73/20)
+* __Surah Al-Muzzammil 73/20 (Seek Allah's Forgiveness)__: [وَٱسْتَغْفِرُوا۟ ٱللَّهَ ۖ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌۢ](https://quranwbe.com/73/20)
 
 ***
 
-* __Surah An-Nasr [Divine Support] 110/3 (Glorigy, Praise, and seek Forgiveness)__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110)
+* __Surah An-Nasr 110/3 (Glorigy, Praise, and seek Forgiveness)__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
 
 *** 

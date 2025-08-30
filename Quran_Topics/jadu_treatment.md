@@ -7,7 +7,6 @@
 1. Waswasa (Lurking Whisperer)
 2. Fear
 3. Anger (Shows your weakness); Drop in tolerance level.
-* These three things make you weak from inside.
 
 *** 
 

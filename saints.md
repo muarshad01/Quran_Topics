@@ -162,4 +162,6 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 *** 
 
-Shams-i-Tabrizi was spiritual instructor of Mewlana Jalal ad-Din Muhammad Balkhi, also known as Rumi.
+* Shams-i-Tabrizi was spiritual instructor of Mewlana Jalal ad-Din Muhammad Balkhi, also known as Rumi.
+
+* https://hazratmehboob-e-elahi.org/chapter-II-1.htm

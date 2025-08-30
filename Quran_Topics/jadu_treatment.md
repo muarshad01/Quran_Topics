@@ -3,6 +3,7 @@
 ***
 
 ### [Jadu Ki Nishaniya | SSA](https://www.youtube.com/shorts/kjyit2mfNJs)
+* Three things make you weak from inside.
 1. Waswasa (Lurking Whisperer)
 2. Fear
 3. Anger (Shows your weakness); Drop in tolerance level.

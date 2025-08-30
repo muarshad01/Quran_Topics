@@ -1,6 +1,7 @@
 * https://myislam.org/quran-verses/prophet-suleiman/
 
 * https://www.youtube.com/watch?v=3iqNDea7whA
+* https://www.youtube.com/shorts/sMbKTNzG9KU
 
 ***
 

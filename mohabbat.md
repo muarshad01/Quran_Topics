@@ -1,3 +1,7 @@
+### [Allah ki mohabbat kaise hasil kare | SSA Shah](https://www.youtube.com/watch?v=a1uQqD4i-s4)
+
+***
+
 ### [Rab Ki Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
 
 ***
@@ -9,3 +13,5 @@
 * When you love someone...follow his do / don't ...reach Rabb.
   
 ### [Sabir Piya Kaliyari Aur Shamsuddin Turk Pani Pati | Sabir Pak Ka Waqia | Shamsuddin Turk Panipati](https://www.youtube.com/watch?app=desktop&v=vAQV1gRLnqg)
+
+***

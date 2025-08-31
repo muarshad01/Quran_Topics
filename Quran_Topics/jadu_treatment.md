@@ -58,7 +58,13 @@
 
 ***
 
-##3# [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
+#### [Jadu Ka Ilaj Kaise Kare |SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+* Jadu as Ilm exists.
+* __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
+
+***
+
+#### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
 
 ```
 Ye Faizan-e-Nazar Tha Ya Ke Maktab-Ki-Karamat Thi
@@ -86,27 +92,22 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
+#### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna ChahiyeH? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
 
 ***
 
-### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna ChahiyeH? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
-
-***
-
-### [Syed Sarfaraz Shah exclusive talk | Jadu Ka Ilaj Kaise Kare | 24 April 2021](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-***
-
-
-### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
-* https://quranwbw.com/6/59
-
-*** 
-
-### [Kaala Jaadu Aur Is Ka Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
-
-***
+#### [Kaala Jaadu Aur Is Ka Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
 
 * __Surah Taha 20/69__: [](https://quranwbw.com/20#69)
 * __Surah Taha 20/70__: [](https://quranwbw.com/20#70)
 * __Surah Taha 20/111__: [And (all) faces shall be humbled before (Allah), the Ever Living,](https://quranwbw.com/20#111)
+
+
+### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
+
+***
+
+### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
+* https://quranwbw.com/6/59
+
+***

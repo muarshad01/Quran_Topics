@@ -38,6 +38,12 @@
 
 *** 
 
+### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+* Brain power is tremendous
+* Three parts: Unconcious, subconcious (La-Shaoar), concious mind.
+
+***
+
 #### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
 * Mera Rabb sab-say-ziada taqat-war hai.
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)

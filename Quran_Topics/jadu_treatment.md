@@ -8,7 +8,7 @@
 
 ***
 
-#### [Black Magic and Islam | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=O7j5u1Zahns)
+#### [Black Magic and Islam | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=O7j5u1Zahns)
 * Yaqeen
 * Surah An-Naas and Surah Al-Falaq
 * Jadu doesn't happens from outside. It happens because of your own weaknesses (weakness of your hearts). Not having firm Imaan on Allah SWT. Satan exploits that.
@@ -17,7 +17,7 @@
 
 ***
 
-#### [Surah An-Naas, Al-Falaq aur Jadu-ka-Elaj | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=EcIx5DJqlxw)
+#### [Surah An-Naas, Al-Falaq aur Jadu-ka-Elaj | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=EcIx5DJqlxw)
 * Jadu causes Obsessional though, Neurosis, Psychosis
 * Treatment: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
 * __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)

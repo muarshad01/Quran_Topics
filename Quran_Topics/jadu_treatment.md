@@ -41,12 +41,16 @@
 
 ***
 
-### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
+#### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
 * The power of human mind
 * Self suggestion to improve psychological condition
 * Our own planning is faulty...
 * __Surah 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Birla and Tata 
+
+***
+
+### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
 
 ***
 
@@ -75,10 +79,6 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ```
 * __Surah 2/104__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَقُولُوا۟ رَٰعِنَا وَقُولُوا۟ ٱنظُرْنَا وَٱسْمَعُوا۟ ۗ](https://quranwbw.com/2/104)
 * Unzurna: Nazr-e-Karam adhir Pharayee
-
-***
-
-### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
 
 ***
 

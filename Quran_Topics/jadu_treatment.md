@@ -50,11 +50,15 @@
 
 ***
 
-### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
+#### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
+* Unusual things, sudden changes start to happen.
+* He who worships regularly (offer prayers and reads quaran regularly) is saved from such things.
+* Before sleeping read Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
+* Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening!
 
 ***
 
-### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
+##3# [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
 
 ```
 Ye Faizan-e-Nazar Tha Ya Ke Maktab-Ki-Karamat Thi

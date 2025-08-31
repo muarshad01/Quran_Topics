@@ -110,6 +110,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+### [Jadu jinnat ki hakikat our bachav ke tarike ......](https://www.youtube.com/watch?v=0gWXO2lHEpc)
+
+***
+
+
 #### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
 
 ***

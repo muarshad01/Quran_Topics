@@ -99,12 +99,16 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-#### [Kaala Jaadu Aur Is Ka Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
+#### [Kaala-Jaadu Aur Is-Ka-Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
+* __Surah 13/26__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ وَفَرِحُوا۟ بِٱلْحَيَوٰةِ ٱلدُّنْيَا وَمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا فِى ٱلْـَٔاخِرَةِ إِلَّا مَتَـٰعٌۭ](https://quran.com/13/26)
+* __Surah 34/39__: [قُلْ إِنَّ رَبِّى يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥ ۚ وَمَآ أَنفَقْتُم مِّن شَىْءٍۢ فَهُوَ يُخْلِفُهُۥ ۖ وَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/34/39)
+* __Surah__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥٓ ۚ إِنَّ ٱللَّهَ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/29/62)
 
 * __Surah Taha 20/69__: [](https://quranwbw.com/20#69)
 * __Surah Taha 20/70__: [](https://quranwbw.com/20#70)
 * __Surah Taha 20/111__: [And (all) faces shall be humbled before (Allah), the Ever Living,](https://quranwbw.com/20#111)
 
+***
 
 ### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
 

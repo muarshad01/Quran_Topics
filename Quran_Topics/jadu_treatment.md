@@ -83,6 +83,10 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+### [Syed Sarfaraz Shah exclusive talk | Jadu Ka Ilaj Kaise Kare | 24 April 2021](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+***
+
+
 ### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
 * https://quranwbw.com/6/59
 

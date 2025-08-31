@@ -27,7 +27,7 @@
 
 ***
 
-#### [Jadu Ki Nishaniya | SSA](https://www.youtube.com/shorts/kjyit2mfNJs)
+#### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
 * Three things make you weak from inside.
 1. Waswasa (Lurking Whisperer)
 2. Fear
@@ -50,7 +50,7 @@
 
 ***
 
-#### [Protect Yourself from Evil Eye | SSA Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
+#### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
 * Unusual things, sudden changes start to happen.
 * He who worships regularly (offer prayers and reads quaran regularly) is saved from such things.
 * Before sleeping read Surah Ikhlas, Surah An-Naas, Surah Al-Falaq

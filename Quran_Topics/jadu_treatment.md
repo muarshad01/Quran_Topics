@@ -108,7 +108,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-### [JAADU KA MUKAMAL ILAAJ | Irfan ul Haq | Light of Wisdom](https://www.youtube.com/watch?v=0BrcnDwYzsY)
+#### [JAADU KA MUKAMAL ILAAJ | Irfan-ul-Haq](https://www.youtube.com/watch?v=0BrcnDwYzsY)
 
 ***
 

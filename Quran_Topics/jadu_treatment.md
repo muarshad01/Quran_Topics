@@ -2,7 +2,7 @@
 
 ***
 
-### [Jadu Ki Nishaniya | SSA](https://www.youtube.com/shorts/kjyit2mfNJs)
+#### [Jadu Ki Nishaniya | SSA](https://www.youtube.com/shorts/kjyit2mfNJs)
 * Three things make you weak from inside.
 1. Waswasa (Lurking Whisperer)
 2. Fear
@@ -10,15 +10,23 @@
 
 *** 
 
-### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
+#### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
 * Mera Rabb sab-say-ziada taqat-war hai.
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 
 ***
 
-### [Black magic and Quran | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)
+#### [Black magic and Quran | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)
 * __Surah 2/102 (يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ......وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ)__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
 * Remember: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
+
+***
+
+#### [Black Magic and Islam | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=O7j5u1Zahns)
+* Yaqeen
+* Surah An-Naas and Surah Al-Falaq
+* Jadu doesn't happens from outside. It happens because of your own weaknesses (weakness of your hearts). Not having firm Imaan on Allah SWT. Satan exploits that.
+* __Surah 2/102__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
 
 ***
 
@@ -27,10 +35,6 @@
 ***
 
 ### [Don't believe in black magic, Jadu ka elaaj Quran mein hai | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=jP53yjYqcMU)
-
-***
-
-### [Black Magic and Islam | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=O7j5u1Zahns)
 
 ***
 

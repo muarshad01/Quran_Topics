@@ -67,6 +67,19 @@
 
 ***
 
+#### [Kaala-Jaadu Aur Is-Ka-Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
+* __Surah 13/26__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ وَفَرِحُوا۟ بِٱلْحَيَوٰةِ ٱلدُّنْيَا وَمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا فِى ٱلْـَٔاخِرَةِ إِلَّا مَتَـٰعٌۭ](https://quran.com/13/26)
+* __Surah 34/39__: [قُلْ إِنَّ رَبِّى يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥ ۚ وَمَآ أَنفَقْتُم مِّن شَىْءٍۢ فَهُوَ يُخْلِفُهُۥ ۖ وَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/34/39)
+* __Surah 29/62__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥٓ ۚ إِنَّ ٱللَّهَ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/29/62)
+
+***
+
+#### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna Chahiye? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
+* Best Approach: Repeat Azaan
+* Du Wudu, drink water
+* White Hen
+***
+
 #### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
 
 ```
@@ -95,25 +108,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-#### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna ChahiyeH? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
+### [JAADU KA MUKAMAL ILAAJ | Irfan ul Haq | Light of Wisdom](https://www.youtube.com/watch?v=0BrcnDwYzsY)
 
 ***
-
-#### [Kaala-Jaadu Aur Is-Ka-Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
-* __Surah 13/26__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ وَفَرِحُوا۟ بِٱلْحَيَوٰةِ ٱلدُّنْيَا وَمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا فِى ٱلْـَٔاخِرَةِ إِلَّا مَتَـٰعٌۭ](https://quran.com/13/26)
-* __Surah 34/39__: [قُلْ إِنَّ رَبِّى يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥ ۚ وَمَآ أَنفَقْتُم مِّن شَىْءٍۢ فَهُوَ يُخْلِفُهُۥ ۖ وَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/34/39)
-* __Surah 29/62__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥٓ ۚ إِنَّ ٱللَّهَ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/29/62)
-
-* __Surah Taha 20/69__: [وَأَلْقِ مَا فِى يَمِينِكَ تَلْقَفْ مَا صَنَعُوٓا۟ ۖ إِنَّمَا صَنَعُوا۟ كَيْدُ سَـٰحِرٍۢ ۖ وَلَا يُفْلِحُ ٱلسَّاحِرُ حَيْثُ أَتَىٰ](https://quranwbw.com/20#69)
-* __Surah Taha 20/70__: [فَأُلْقِىَ ٱلسَّحَرَةُ سُجَّدًۭا قَالُوٓا۟ ءَامَنَّا بِرَبِّ هَـٰرُونَ وَمُوسَىٰ](https://quranwbw.com/20#70)
-* __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quranwbw.com/20#111)
-
-***
-
-### [Jadu jinnat ki hakikat our bachav ke tarike ......](https://www.youtube.com/watch?v=0gWXO2lHEpc)
-
-***
-
 
 #### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
 
@@ -121,5 +118,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 #### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
 * https://quranwbw.com/6/59
+
+***
+
+* __Surah Taha 20/69__: [وَأَلْقِ مَا فِى يَمِينِكَ تَلْقَفْ مَا صَنَعُوٓا۟ ۖ إِنَّمَا صَنَعُوا۟ كَيْدُ سَـٰحِرٍۢ ۖ وَلَا يُفْلِحُ ٱلسَّاحِرُ حَيْثُ أَتَىٰ](https://quranwbw.com/20#69)
+* __Surah Taha 20/70__: [فَأُلْقِىَ ٱلسَّحَرَةُ سُجَّدًۭا قَالُوٓا۟ ءَامَنَّا بِرَبِّ هَـٰرُونَ وَمُوسَىٰ](https://quranwbw.com/20#70)
+* __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quranwbw.com/20#111)
 
 ***

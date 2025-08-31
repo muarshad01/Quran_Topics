@@ -89,7 +89,7 @@
 |1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |2. | [99 Names of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/99_names_of_Allah_SWT.md) |August 2025|
 |25.| [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah-koon-hai.md) | July 2025|
-|26.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | July 2025|
+|26.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | August 31, 2025|
 |27.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
 |2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 

@@ -84,15 +84,15 @@
 * Best Approach: Repeat Azaan
 * Du Wudu, drink water
 * White Hen
+
 ***
 
 #### [Bad-Nazar Say Bachnay-Ka-Tariqa | Irfan-ul-Haq](https://www.youtube.com/watch?v=8lC7gZM5tDo)
-
 ```
 Ye Faizan-e-Nazar Tha Ya Ke Maktab-Ki-Karamat Thi
 Sikhaye Kis Ne Ismaeel (A.S.) Ko Adaab-e-Farzandi
 ```
-* Faizan-e-Nazar: Naseeb waloon ko Naseeb hota hai
+* __Faizan-e-Nazar__: Naseeb-waloon-ko Naseeb-hota-hai
 * Mohabbat-bhari tawajah; Acha-guman dusray-kay-liye
     
 #### Three Qualities
@@ -115,6 +115,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
+* Allah ki-raah-mayn-khairat kartay-jao aur Allah ka-safar kartay-jao.
 
 ***
 

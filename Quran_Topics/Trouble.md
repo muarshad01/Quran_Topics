@@ -35,8 +35,8 @@
 
 ***
 
-### [Hazrat Musa ko Allah nay kon C Tasbeeh btai |  Professor Ahmad Rafique Akhta](https://www.youtube.com/shorts/H_bEsU6u-e0)
-
+#### [Hazrat Musa ko Allah nay kon C Tasbeeh btai |  Professor Ahmad Rafique Akhta](https://www.youtube.com/shorts/H_bEsU6u-e0)
+* __Surah 20/12__: [إِنِّىٓ أَنَا۠ رَبُّكَ فَٱخْلَعْ نَعْلَيْكَ ۖ إِنَّكَ بِٱلْوَادِ ٱلْمُقَدَّسِ طُوًۭى......إِنَّنِىٓ أَنَا ٱللَّهُ لَآ إِلَـٰهَ إِلَّآ أَنَا۠ فَٱعْبُدْنِى وَأَقِمِ ٱلصَّلَوٰةَ لِذِكْرِىٓ]()
 ***
 
 * __Surah Al-Baqarag 2/156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)

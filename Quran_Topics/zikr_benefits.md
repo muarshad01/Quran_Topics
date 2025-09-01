@@ -29,24 +29,25 @@
 
 ***
 
-#### [Zikar Ky Zindgi Pr Asaraat | Baba Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
+#### [Zikar Ky Zindgi-Pr-Asaraat | Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
 * Physical, Psychological, Economic, Social, Moral, ...
 * Attitudes, Behavior, Temperament, Moral, Genes Change (Genetic Problems), All-issues
 * __Under Debt__: `Ya Zuljalal Wal Ikram`
 * ...
-* Don't leave Zikr ever...All problems will be solved!
-* 
+* Don't leave Zikr ever...All problems will be solved! 
+
+***
 
 #### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
 * https://quranwbw.com/2/200 (فَاذْكُرُوا اللَّهَ كَذِكْرِكُمْ آبَاءَكُمْ أَوْ أَشَدَّ ذِكْرًا)
-* __Surah Anbiyaa__: [Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87-88)
-* __Surah Saaffaat [Those Drawn up in Ranks] 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
+* __Surah Anbiyaa 21/87-88__: [Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87-88)
+* __Surah Saaffaat 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
 * Friend-of-Friend (FoF)
 * Tasbeeh walay BRAVE hotay hayn.
 * `SECRET`: No body can fight that person because Allah SWT takes care of ememies-:)
 
-
 ***
+
 ### Hadith
 * [Abu Ad-Darda [may Allah be pleased with him] narrated that : the Prophet said: “Should I not inform you of the best of your deed, and the purest of them with your Master, and the highest of them in your ranks, and what is better for you than spending gold and silver, and better for you than meeting your enemy and striking their necks, and they strike your necks?” They said: “Of course.” He said, “The remembrance of Allah [Most High].” [Then] Mu’adh bin Jabal [may Allah be pleased with him] said: “There is nothing that brings more salvation from the punishment of Allah than the remembrance of Allah.”](https://sunnah.com/tirmidhi:3377) -- Jami` at-Tirmidhi 3377
 

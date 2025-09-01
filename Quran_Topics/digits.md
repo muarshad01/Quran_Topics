@@ -161,6 +161,10 @@
 
 ***
 
+* __Surah An-Naml 27/19__: [تَرْضَىٰهُ وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
+
+***
+
 ### Digit (23)
 * https://quran.com/7/23
 ***
@@ -319,6 +323,7 @@ https://quran.com/12/101
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 
 

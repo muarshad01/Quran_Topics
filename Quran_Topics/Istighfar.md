@@ -1,5 +1,5 @@
 ## Istigfar
-* Istighfar, in Islam, is the act of seeking forgiveness from Allah (God). It's a common practice among Muslims, typically involving the recitation of `Astaghfirullah" (أَسْتَغْفِرُ ٱللَّٰهَ)`, which means "I seek forgiveness from Allah". It's a way to acknowledge one's sins and seek divine pardon
+* Istighfar, in Islam, is the act of seeking forgiveness from Allah (God). It's a common practice among Muslims, typically involving the recitation of `Astaghfirullah" (أَسْتَغْفِرُ ٱللَّٰهَ)`, which means __"I seek forgiveness from Allah".__ It's a way to acknowledge-one's-sins and seek-divine-pardon.
 
 ***
 

@@ -20,19 +20,19 @@
 
 ***
 
-
 #### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
 
 ***
 
-### [Moqam-e-Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+#### [Moqam-e-Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 * __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
-* __Surah Ash-SHuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
+* __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
 
 ***
 
-
 * Paki: Intellectual Paki and Maturity
+
+***
 
 ## Prophet PBUH prayer
 * `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`

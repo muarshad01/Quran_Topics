@@ -62,6 +62,7 @@
 #### Seven Heavens and Seven Sky
 * [Seven Heavens and Seven Sky](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/seven_heavens_and_earth.md)
 * __Surah Ghafir 40/7__: [Those ˹angels˺ who carry the Throne and those around it glorify the praises of their Lord, have faith in Him, and seek forgiveness for the believers, ˹praying:˺ “Our Lord! You encompass everything in ˹Your˺ mercy and knowledge. So forgive those who repent and follow Your Way, and protect them from the torment of the Hellfire.](https://quran.com/40/7)
+* __Surah Al-Hashr 59/16__: [كَمَثَلِ ٱلشَّيْطَـٰنِ إِذْ قَالَ لِلْإِنسَـٰنِ ٱكْفُرْ فَلَمَّا كَفَرَ قَالَ إِنِّى بَرِىٓءٌۭ مِّنكَ إِنِّىٓ أَخَافُ ٱللَّهَ رَبَّ ٱلْعَـٰلَمِينَ](https://quran.com/59/16)
 
 #### Colors of Light
 * 7 - VIBGYOR
@@ -318,6 +319,7 @@ https://quran.com/12/101
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 
 

@@ -34,14 +34,14 @@
 
 ***
 
-## Prophet PBUH prayer
+#### Prophet PBUH prayer
 * `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`
 * `al-masakeen`, which refers to the needy. 
-  * The distinction between the two (poor, needy) lies in the fact that the `poor have nothing` at all, while the `needy have very little` to sustain themselves.
+  * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
 
 ***
 
-## Concentric Circles of Noor
+#### Concentric Circles of Noor
 * Nool-ul-Alqaa (Laqa: So bright that it became blackish-shiny) [فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ](https://quranwbw.com/18/110)
 * Noor-ul-Marwareed (Prophet PBUH; very shiny-white; Like a drop) - Wajha Takhleeq-e-Kainaat
 * Noor-ul-Huda:

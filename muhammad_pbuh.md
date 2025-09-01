@@ -1,3 +1,7 @@
+## [Unlock the Power of Durood Shareef at These Times | Irfan-ul-Haq](https://www.youtube.com/watch?v=LTArBH4IXuU)
+
+***
+
 ## [Darood and Salaam](https://www.youtube.com/shorts/1RZv-ybxYQU)
 
 ***

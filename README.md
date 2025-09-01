@@ -8,6 +8,7 @@
 * [Notes](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md)
 * [Rewards of True Worship | بے غرض عبادت کا صلہ](https://www.youtube.com/watch?v=OOU18bsazh0)
 * [Allah Ko Jann nah](https://www.youtube.com/shorts/TwDJhC5TcPQ)
+* [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 
 ***
 

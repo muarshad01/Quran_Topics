@@ -228,11 +228,10 @@
 
 *** 
 
-### The Exile
-* __Surah Al-Hashr 59/16__: [˹They are˺ like Satan when he lures someone to disbelieve. Then after they have done so, he will say ˹on Judgment Day˺, “I have absolutely nothing to do with you. I truly fear Allah—the Lord of all worlds.”](https://quran.com/59/16)
+* __Surah Al-Hashr 59/16__: [كَمَثَلِ ٱلشَّيْطَـٰنِ إِذْ قَالَ لِلْإِنسَـٰنِ ٱكْفُرْ فَلَمَّا كَفَرَ قَالَ إِنِّى بَرِىٓءٌۭ مِّنكَ إِنِّىٓ أَخَافُ ٱللَّهَ رَبَّ ٱلْعَـٰلَمِينَ](https://quran.com/59/16)
 
 *** 
 
-* __Surah Al-Mulk 67/5__: [And indeed, We adorned the lowest heaven with ˹stars like˺ lamps, and made them ˹as missiles˺ for stoning ˹eavesdropping˺ devils, for whom We have also prepared the torment of the Blaze.1 ](https://quranwbw.com/67/5)
+* __Surah Al-Mulk 67/5__: [وَلَقَدْ زَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا بِمَصَـٰبِيحَ وَجَعَلْنَـٰهَا رُجُومًۭا لِّلشَّيَـٰطِينِ ۖ وَأَعْتَدْنَا لَهُمْ عَذَابَ ٱلسَّعِيرِ](https://quranwbw.com/67/5)
 
 ***

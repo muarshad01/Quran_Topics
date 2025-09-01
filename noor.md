@@ -49,14 +49,18 @@
 * 3.2 Noor-ul-Huda-Al-alameen (All other human beings; Aulia Ikram)
 * 3.3 Wardatul-Noor-ul Huda
 
-#### [13. Q&A Session With Syed Sarfraz A. Shah | Haqq Al Yaqin ki Manzil]()
-* Rohe-Insani was brought to 6th heaven and was given a bath in Noor (The Pious Soul), then
-* Rohe-Insani was brought to 3th heaven and was given a bath in Noor (The Moving Soul).
-* Afterwards, all Rooh were placed in Alam-e-Arwah.
+***
+
+#### [Haqq Al Yaqin ki Manzil | SSA Shah](https://www.youtube.com/watch?v=H3YP83cN4F4)
+* Rohe-Insani was brought to 6th heaven and was given a bath in Noor (`The Pious Soul`), then
+* Rohe-Insani was brought to 3th heaven and was given a bath in Noor (`The Moving Soul`).
+* Afterwards, all Rooh were placed in `Alam-e-Arwah`.
 * There is a VOID in the centre of heart. Rooh lives in that VOID. Opposote to heard is NAFAS.
+
 #### Levels
-* Deen Ki Fehem
+* Deen Ki Fehem (__Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ]())
 * Ilm
 * Aqal
 * Essance of windom is Rabb.
+
 ***

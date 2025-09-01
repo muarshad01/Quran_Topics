@@ -1,6 +1,3 @@
-#### [The Olive Tree in Surah Noor | SSA Shah](https://www.youtube.com/shorts/KQq1DEkEf3g)
-***
-
 #### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
 
 ***
@@ -23,12 +20,12 @@
 
 ***
 
-#### Zaitoon (Olive) Tree - Oil 
+#### [The Olive Tree (Oil) in Surah Noor | SSA Shah](https://www.youtube.com/shorts/KQq1DEkEf3g)
 * Ilm-aur-Imaan
    * [..and if he comes to Me walking, I go to him running.](https://sunnah.com/bukhari/97/34)
    * `Imaan` is ready to be ignited, `barkhanay ko tayar-hai (yakaadu zaituhaa yudeee)`
-      * He who adopts the `path-of-Naaki`, to aus kay dil-mayn soay-huay imaan-ki-changari barhak-uthti-hai 
-      * Iman-ki-taraf Pehla-qadam uthata-hai (Zara-si-effort karta-hai) to aus-kay dil-mayn iman-panapnay lagta-hai
+      * He who adopts the `path-of-Naaki`, to aus-kay dil-mayn soay-huay imaan-ki-changari barhak-uthti-hai 
+      * Imaan-ki-taraf pehla-qadam uthata-hai (Zara-si-effort karta-hai) to aus-kay dil-mayn iman-panapnay lagta-hai
 
 #### La Shar-qe-ya-tin wa-la Ghar-bi-ya-tin (Not of the East and Not of the West)
 * Since, `Imaan` has no `haad-o-hisab (limts)` thats why it has been mentioned that it is `Not-of-the-East and Not-of-the-West`

@@ -3,6 +3,15 @@
 
 ***
 
+#### [Maqbool Tauba Ki Nishanian](https://www.youtube.com/shorts/03wYpOdXxoY)
+* You'll start forgetting your sin. Just like you wash a TAPE. They're written off your book.
+* You don't commit that sin again.
+* Start moving towards goodness.
+* Aus kay andar, Tahrao, Itminan, aur Sakoon gagha bana laylaita hai.
+* He starts forgiving other people.
+
+***
+
 #### [ Astaghfar Ki Kasrat Karo | Mufti Zar Wali Khan](https://www.youtube.com/shorts/auAnGsWR0Ag)
 * __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quranwbw.com/8#33)
 * __Surah Hud 11/52 (${\color{red}Strength ~and ~Power ~will ~Increase}$)__: [وَيَـٰقَوْمِ ٱسْتَغْفِرُوا۟ رَبَّكُمْ ثُمَّ تُوبُوٓا۟ إِلَيْهِ يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا وَيَزِدْكُمْ قُوَّةً إِلَىٰ قُوَّتِكُمْ وَلَا تَتَوَلَّوْا۟ مُجْرِمِينَ](https://quranwbw.com/11#52)

@@ -40,7 +40,7 @@
 
 ### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 * Brain power is tremendous
-* Three parts: Unconcious, Sub-concious (La-Shaoar), Concious mind.
+* Three parts: Unconcious, Sub-concious (La-Shahoar), Concious mind.
 
 ***
 

@@ -42,12 +42,12 @@
 ***
 
 ## Concentric Circles of Noor
-* 1. Nool-ul-Alqaa (Laqa: So bright that it became blackish-shiny) [فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ](https://quranwbw.com/18/110)
-* 2. Noor-ul-Marwareed (Prophet PBUH; very shiny-white; Like a drop) - Wajha Takhleeq-e-Kainaat
-* 3. Noor-ul-Huda:
-* 3.1 Noor-ul-Huda-Al-momineen [Noor-ul-mutaqeen] (All Anbiaa; Messengers)
-* 3.2 Noor-ul-Huda-Al-alameen (All other human beings; Aulia Ikram)
-* 3.3 Wardatul-Noor-ul Huda
+1. Nool-ul-Alqaa (Laqa: So bright that it became blackish-shiny) [فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ](https://quranwbw.com/18/110)
+2. Noor-ul-Marwareed (Prophet PBUH; very shiny-white; Like a drop) - Wajha Takhleeq-e-Kainaat
+3. Noor-ul-Huda:
+3.1 Noor-ul-Huda-Al-momineen [Noor-ul-mutaqeen] (All Anbiaa; Messengers)
+3.2 Noor-ul-Huda-Al-alameen (All other human beings; Aulia Ikram)
+3.3 Wardatul-Noor-ul Huda
 
 ***
 

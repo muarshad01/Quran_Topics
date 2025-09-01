@@ -122,6 +122,8 @@
 * __Surah Al-Ahzaab 33/56 (${\color{red}Darood ~Sharif}$)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
 * __Surah Muhammad 47/38 (${\color{red}He ~will ~replace ~you}$)__: [Here you are, being invited to donate ˹a little˺ in the cause of Allah. Still some of you withhold. And whoever does so, it is only to their own loss. For Allah is the Self-Sufficient, whereas you stand in need ˹of Him˺. If you ˹still˺ turn away, He will replace you with another people. And they will not be like you.](https://quranwbw.com/47/38)
 
+* __Surah 12/101__: [فَاطِرَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ أَنتَ وَلِىِّۦ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ تَوَفَّنِى مُسْلِمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/12/101)
+
 ***
 
 ### Digit (12)
@@ -316,6 +318,7 @@ https://quran.com/12/101
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 
 

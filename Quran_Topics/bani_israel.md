@@ -3,7 +3,7 @@
 1. Ibrahim (Abraham) -- Ishaq (Issac) -- Yaqoob (Jacob) [Israel]-- Yusuf (Joseph)
 2. Musa (Moses) / Haroon (Aaron) AS -to- Issa AS = 1,400 years
 3. [248] Talut (Saul) -- Dawood (David) AS -- Sulayman (Soloman) - about 100 years
-4. Issa AS -to- Muhammad PBUH = 1,400 years
+4. Issa AS -to- Muhammad PBUH = 500 years
 
 ***
 
@@ -242,14 +242,14 @@
 
 #### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
 
-### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
+#### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
 1. When Moutain was lifted and then Allah brought it down, but they refused again. 
 2. Sabath (Catching Fisth by Net)
 3. Murder at the time of Prophet Musa (Cow story)
 
 ***
 
-## [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)
+#### [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)
 * Made Monkeys & Swine (Sabaath)
 * Killed Prophets morning / evening
 * 6 tribes fought against 6 other tribes
@@ -258,33 +258,32 @@
 
 ***
 
-## [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 
 ***
 
-## [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
+#### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
 * https://quranwbw.com/20/85-98
 
 ***
 
-## [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
+#### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
 * https://quranwbw.com/2/50
 
 ***
 
-## [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
+#### [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
 * https://quranwbw.com/62/6
 * https://quranwbw.com/2/91
 * 600,000 people of Bani Israel left with prophet Moses
 
 ***
 
-## [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon]()
+#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon]()
 * 
 
 ***
 
-  
 #### Muslims
 * You can't change a word in Quran
 * We have Imam of ALL Nabi

@@ -1,3 +1,7 @@
+#### [The Jews began preparations to welcome their Messiah](https://www.youtube.com/watch?v=49Pj92awx88)
+
+***
+
 #### https://www.youtube.com/shorts/HHW-QcAEfbU
 
 ***

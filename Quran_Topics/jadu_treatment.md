@@ -18,6 +18,10 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 (O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
 ```
 
+```
+بسم الله الذي لا يضر مع اسمه شيء في الأرض ولا في السماء وهو السميع العليم
+```
+
 ***
 
 #### [Black magic and Quran | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)

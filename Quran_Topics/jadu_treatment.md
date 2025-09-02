@@ -21,6 +21,8 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 ```
 بسم الله الذي لا يضر مع اسمه شيء في الأرض ولا في السماء وهو السميع العليم
 ```
+* 4th Kalma 100 times
+* All 4-quls each 3-time
 
 ***
 

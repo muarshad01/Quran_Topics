@@ -1,3 +1,7 @@
+#### [Hazrat Hussain (RA) Ks Sabar](https://www.youtube.com/shorts/0s-gMoG1lvs)
+
+***
+
 ## [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
 * Sons: Ali Akbar (Bharchi in the chest), Ali Asghar (6 months old; Arrow in the heart), Qasim
 * Brother Abbas: Hands were cut

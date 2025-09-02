@@ -3,6 +3,21 @@
 * 3 - __Surah Taha 20/69__: [وَلَا يُفْلِحُ ٱلسَّاحِرُ حَيْثُ أَتَىٰٰ](https://quranwbw.com/20#69)
 * 4- __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://quran.com/10/81)
 * __Dua__: [اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ][“O Allah, we make You our shield against them, and take refuge in You from their evils.”]
+
+***
+
+#### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
+* First 10-ayats of Surah Kahf after Fajr / Maghrib
+* Ayatul Kursi, Tasbeeh-e-Fatima
+* Last two ayats of Surah Baqarah
+```
+أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ
+
+A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min kulli ‛aynin laammah
+
+(O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
+```
+
 ***
 
 #### [Black magic and Quran | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)

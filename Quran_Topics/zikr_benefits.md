@@ -63,7 +63,11 @@
 ***
 
 #### After prayers: Zikr Standing, Sitting, or Lying-down
-* [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
+* __Surah 4/103__: [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
+
+***
+
+* __Surah 9/67__: [أَيْدِيَهُمْ ۚ نَسُوا۟ ٱللَّهَ فَنَسِيَهُمْ ۗ إِنَّ](https://quran.com/9/67)
 
 ***
 

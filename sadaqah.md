@@ -53,67 +53,67 @@
 
 ***
 
-* __Surah Surah At-Taubah Ayat 5__: []()
-* __Surah Surah At-Taubah Ayat 18__: []()
-* __Surah Surah At-Taubah Ayat 58__: []()
-* __Surah Surah At-Taubah Ayat 60__: []()
-* __Surah Surah At-Taubah Ayat 71__: []()
-* __Surah Surah At-Taubah Ayat 75__: []()
-* __Surah Surah At-Taubah Ayat 79__: []()
-* __Surah Surah At-Taubah Ayat 92__: []()
-* __Surah Surah At-Taubah Ayat 103__: []()
-* __Surah Surah At-Taubah Ayat 104__: []()
+* __Surah At-Taubah Ayat 5__: []()
+* __Surah At-Taubah Ayat 18__: []()
+* __Surah At-Taubah Ayat 58__: []()
+* __Surah At-Taubah Ayat 60__: []()
+* __Surah At-Taubah Ayat 71__: []()
+* __Surah At-Taubah Ayat 75__: []()
+* __Surah At-Taubah Ayat 79__: []()
+* __Surah At-Taubah Ayat 92__: []()
+* __Surah At-Taubah Ayat 103__: []()
+* __Surah At-Taubah Ayat 104__: []()
 
 *** 
 
-* __Surah Surah Yusuf Ayat 88__: []()
+* __Surah Yusuf Ayat 88__: []()
 
 *** 
 
-* __Surah Surah Maryam Ayat 31__: []()
+* __Surah Maryam Ayat 31__: []()
 
 ***
 
-* __Surah Surah Al-Hajj Ayat 35__: []()
-* __Surah Surah Al-Hajj Ayat 41__: []()
+* __Surah Al-Hajj Ayat 35__: []()
+* __Surah Al-Hajj Ayat 41__: []()
 
 ***
 
-* __Surah Surah Luqman Ayat 4__: []()
+* __Surah Luqman 31/4__: [](https://quran.com/31/4)
 
 *** 
 
-* __Surah Surah Al-Ahzab Ayat 35__: []()
+* __Surah Al-Ahzab 33/35__: [](https://quran.com/33/35)
 
 ***
 
-* __Surah Surah Fatir Ayat 29__: []()
+* __Surah Fatir 35/29__: [](https://quran.com/35/29)
 
 *** 
 
-* __Surah Surah Fussilat Ayat 7__: []()
+* __Surah Fussilat 41/7__: [](https://quran.com/41/7)
 
 *** 
 
-* __Surah Surah Al-Hadid Ayat 7__: []()
-* __Surah Surah Al-Hadid Ayat 18__: []()
+* __Surah Al-Hadid 57/7__: [](https://quran.com/57/7)
+* __Surah Al-Hadid 57/18__: [](https://quran.com/57/18)
 
 *** 
 
-* __Surah Surah Al-Mujadila Ayat 12__: []()
-* __Surah Surah Al-Mujadila Ayat 13__: []()
+* __Surah Al-Mujadila 58/12__: [](https://quran.com/58/12)
+* __Surah Al-Mujadila 58/13__: [](https://quran.com/58/13)
 
 *** 
 
-* __Surah Surah Al-Hashr Ayat 7__: []()
-* __Surah Surah Al-Hashr Ayat 9__: []()
+* __Surah Al-Hashr 59/7__: [مَّآ أَفَآءَ ٱللَّهُ عَلَىٰ رَسُولِهِۦ مِنْ أَهْلِ ٱلْقُرَىٰ فَلِلَّهِ وَلِلرَّسُولِ وَلِذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَٱبْنِ ٱلسَّبِيلِ كَىْ لَا يَكُونَ دُولَةًۢ بَيْنَ ٱلْأَغْنِيَآءِ مِنكُمْ ۚ وَمَآ ءَاتَىٰكُمُ ٱلرَّسُولُ فَخُذُوهُ وَمَا نَهَىٰكُمْ عَنْهُ فَٱنتَهُوا۟ ۚ وَٱتَّقُوا۟ ٱللَّهَ ۖ إِنَّ ٱللَّهَ شَدِيدُ ٱلْعِقَابِ](https://quran.com/59/7)
+* __Surah Al-Hashr 59/9__: [وَٱلَّذِينَ تَبَوَّءُو ٱلدَّارَ وَٱلْإِيمَـٰنَ مِن قَبْلِهِمْ يُحِبُّونَ مَنْ هَاجَرَ إِلَيْهِمْ وَلَا يَجِدُونَ فِى صُدُورِهِمْ حَاجَةًۭ مِّمَّآ أُوتُوا۟ وَيُؤْثِرُونَ عَلَىٰٓ أَنفُسِهِمْ وَلَوْ كَانَ بِهِمْ خَصَاصَةٌۭ ۚ وَمَن يُوقَ شُحَّ نَفْسِهِۦ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ](https://quran.com/59/9)
 
 *** 
 
-* __Surah Surah Al-Munafiqun Ayat 10__: []()
+* __Surah Al-Munafiqun 63/10__: [وَأَنفِقُوا۟ مِن مَّا رَزَقْنَـٰكُم مِّن قَبْلِ أَن يَأْتِىَ أَحَدَكُمُ ٱلْمَوْتُ فَيَقُولَ رَبِّ لَوْلَآ أَخَّرْتَنِىٓ إِلَىٰٓ أَجَلٍۢ قَرِيبٍۢ فَأَصَّدَّقَ وَأَكُن مِّنَ ٱلصَّـٰلِحِينَ](https://quran.com/63/10)
 
 *** 
 
-* __Surah Surah Al-Insan Ayat 8__: []()
+* __Surah Al-Insan 76/8__: [وَيُطْعِمُونَ ٱلطَّعَامَ عَلَىٰ حُبِّهِۦ مِسْكِينًۭا وَيَتِيمًۭا وَأَسِيرًا](https://quran.com/76/8)
 
 ***

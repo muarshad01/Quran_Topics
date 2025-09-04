@@ -4,7 +4,10 @@
 ***
 
 #### [Dil Ki batain | Allam Talib Jauhari](https://www.youtube.com/watch?v=gtrqgcgFrcc)
-* Sattar Al-Ayub
+* __Sattar Al-Ayub__
+* Apni zindi ko uss ALlah kay hawalay kar do jo naimatoon ka khaliq hai
+* Ibadat: Allah SWT say baat karna
+* __Surah An-Nur 24/30-31__: [](https://quran.com/24/30-31)
 
 ***
 

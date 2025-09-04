@@ -1,3 +1,7 @@
+#### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
+
+***
+
 #### [Unlock the Power of Durood Shareef at These Times | Irfan-ul-Haq](https://www.youtube.com/watch?v=LTArBH4IXuU)
 
 ***

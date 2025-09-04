@@ -3,6 +3,11 @@
 
 ***
 
+#### [Dil Ki batain | Allam Talib Jauhari](https://www.youtube.com/watch?v=gtrqgcgFrcc)
+* Sattar Al-Ayub
+
+***
+
 #### [Maqbool Tauba Ki Nishanian](https://www.youtube.com/shorts/03wYpOdXxoY)
 * You'll start forgetting your sin. Just like you wash a TAPE. They're written off your book.
 * You don't commit that sin again.

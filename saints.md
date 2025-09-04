@@ -1,4 +1,6 @@
 ### [The Secret Work of Auliya Allah | SSA Shah](https://www.youtube.com/watch?v=q4mFuGygFps)
+* Auliaa akram are sahib-e-ilm. Ilm kay natijay me unhayn aqal-o-farast ataa ki jaati hai.
+* Woh apni aqal-o-farast say kam laitay hayn.
 
 ***
 

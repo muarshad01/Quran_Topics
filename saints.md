@@ -173,3 +173,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * https://hazratmehboob-e-elahi.org/chapter-II-1.htm
 
 * https://www.youtube.com/watch?v=5Ud5gxc2MIM
+
+***
+
+### [Ali RA](https://www.youtube.com/shorts/R932ZSVCots)
+   * Animal who give eggs versues animals who give birth to children.

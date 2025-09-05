@@ -19,7 +19,7 @@
 
 ***
 
-* __Surah Al-Maaida 5/11__: [O believers! Remember Allah’s favour upon you: when a people sought to harm you, but He held their hands back from you. Be mindful of Allah. And in Allah let the believers put their trust.](https://quranwbw.com/5#11)
+* __Surah Al-Maaida 5/11__: [وَتَوَكَّلْ عَلَى ٱللَّهِ ۚ وَكَفَىٰ بِٱللَّهِ وَكِيلًا](https://quranwbw.com/5#11)
 
 ***
 

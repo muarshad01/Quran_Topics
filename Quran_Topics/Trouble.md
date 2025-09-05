@@ -105,7 +105,7 @@
 
 ***
 
-* __Surah At-Taghaabun 64/11 (مَآ أَصَابَ مِن مُّصِيبَةٍ إِلَّا بِإِذْنِ ٱللَّهِ ۗ)__: [No calamity befalls ˹anyone˺ except by Allah’s Will. And whoever has faith in Allah, He will ˹rightly˺ guide their hearts ˹through adversity˺. And Allah has ˹perfect˺ knowledge of all things.](https://quranwbw.com/64/11)
+* __Surah At-Taghaabun 64/11 (مَآ أَصَابَ مِن مُّصِيبَةٍ إِلَّا بِإِذْنِ ٱللَّهِ ۗ)__: [مَآ أَصَابَ مِن مُّصِيبَةٍ إِلَّا بِإِذْنِ ٱللَّهِ ۗ وَمَن يُؤْمِنۢ بِٱللَّهِ يَهْدِ قَلْبَهُۥ ۚ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quranwbw.com/64/11)
 
 ***
 

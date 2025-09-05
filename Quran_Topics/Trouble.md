@@ -9,6 +9,15 @@
 
 ***
 
+### [How to Deal with bad times in Life | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=ulL2Kxbij90)
+* Allah uss sakhs ki zindagi barha daita hai, look jis kay liye dua kartay hayn
+* Dua bala-ko talti-hai: 
+  * 1 - Jo anay-wali-hai, ruk jaiti-hai
+  * 2 - Jo aa-jati-hai, thum thum kay guzar-jati-hai
+  * 3 - Jo aa chuki hai, sawab aur faida
+* 
+***
+
 ### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
 
 ***

@@ -9,7 +9,7 @@
 
 ***
 
-* __Surah Ale-i-Imran 3/122__: [˹Remember˺ when two groups among you ˹believers˺ were about to cower, then Allah reassured them. So in Allah let the believers put their trust.](https://quranwbw.com/3#122)
+* __Surah Ale-i-Imran 3/122__: [إِذْ هَمَّت طَّآئِفَتَانِ مِنكُمْ أَن تَفْشَلَا وَٱللَّهُ وَلِيُّهُمَا ۗ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quranwbw.com/3/122)
 
 * __Surah Ale-i-Imran 3/159 (Allah Loves those)__: [It is out of Allah’s mercy that you ˹O Prophet˺ have been lenient with them. Had you been cruel or hard-hearted, they would have certainly abandoned you. So pardon them, ask Allah’s forgiveness for them, and consult with them in ˹conducting˺ matters. Once you make a decision, put your trust in Allah. Surely Allah loves those who trust in Him.](https://quranwbw.com/3#159)
 

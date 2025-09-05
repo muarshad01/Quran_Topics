@@ -14,11 +14,11 @@
 ***
 
 #### [How to Deal with bad times in Life | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=ulL2Kxbij90)
-* Allah uss sakhs ki zindagi barha daita hai, look jis kay liye dua kartay hayn
-* Dua bala-ko talti-hai: 
+* Allah uss-sakhs-ki zindagi barha-daita-hai, loag jis-kay-liye dua-kartay-hayn
+* Dua balaa-ko tall-ti-hai: 
   * 1 - Jo anay-wali-hai, ruk jaiti-hai
-  * 2 - Jo aa-jati-hai, thum thum kay guzar-jati-hai
-  * 3 - Jo aa chuki hai, sawab aur faida
+  * 2 - Jo aa-jati-hai, thum-thum-kay guzar-jati-hai
+  * 3 - Jo aa-chuki-hai, sawab-aur-faida
 * __Surah Al-Baqarah 2/156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
  * For every big trouble...read this tasbeeh
 * __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quran.com/2/157)

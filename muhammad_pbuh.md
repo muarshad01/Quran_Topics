@@ -6,6 +6,10 @@
 
 ***
 
+### [Milad-un-Nabi Special Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=fQX-IyAwRqI)
+
+***
+
 ## [Darood and Salaam](https://www.youtube.com/shorts/1RZv-ybxYQU)
 
 ***

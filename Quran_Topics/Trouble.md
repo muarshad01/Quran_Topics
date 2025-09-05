@@ -2,14 +2,14 @@
 
 ***
 
-### [Remember Allah In Hard Time... | Professor Ahmed Rafique Akhtar](https://www.youtube.com/watch?v=qpV8dowbTjE)
+#### [Remember Allah In Hard Time... | Professor Ahmed Rafique Akhtar](https://www.youtube.com/watch?v=qpV8dowbTjE)
 * __Surah 3/140__: [وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ](https://quran.com/3/140)
 * __Surah 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
 * __Surah 11/56__: [وَرَبِّكُم ۚ مَّا مِن دَآبَّةٍ إِلَّا هُوَ ءَاخِذٌۢ بِنَاصِيَتِهَآ ۚ](https://quran.com/11/56)
 
 ***
 
-### [How to Deal with bad times in Life | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=ulL2Kxbij90)
+#### [How to Deal with bad times in Life | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=ulL2Kxbij90)
 * Allah uss sakhs ki zindagi barha daita hai, look jis kay liye dua kartay hayn
 * Dua bala-ko talti-hai: 
   * 1 - Jo anay-wali-hai, ruk jaiti-hai
@@ -18,11 +18,11 @@
 * 
 ***
 
-### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
+#### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
 
 ***
 
-### [Nature Awakes us by Different Incidents | SSA Shah](https://www.youtube.com/watch?v=TgjoxwA3Pmg)
+#### [Nature Awakes us by Different Incidents | SSA Shah](https://www.youtube.com/watch?v=TgjoxwA3Pmg)
 * Causes -- Root Causes
 * Responsibility
 * Remedies

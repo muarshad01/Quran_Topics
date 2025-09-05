@@ -176,5 +176,13 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
-### [Ali RA](https://www.youtube.com/shorts/R932ZSVCots)
-   * Animal who give eggs versues animals who give birth to children.
+#### [Ali RA | SSA Shah](https://www.youtube.com/shorts/R932ZSVCots)
+* Animal who give eggs versues animals who give birth to children.
+
+***
+
+#### [Tasawwuf Main Hazrat Ali (R.A) Ki Dehleez Tak Kaise Pohancha Ja Sakta Hai? | SSA Shah](https://www.youtube.com/watch?v=mAVhDV7symc)
+* Rabb ko mann-na
+* Rabb ki mann-aa
+
+*** 

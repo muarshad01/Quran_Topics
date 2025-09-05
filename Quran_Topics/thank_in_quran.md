@@ -2,6 +2,20 @@
 
 ***
 
+### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
+* __Surah 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
+* Ah Allah mayn terey shukar ka haqq ada hi nahi kar sakta
+* Tongue: Jis zaban say Alhamadulillah kehta hoon, wo zaban bhi tu nay ata ki hai
+* Jis mathay ko zameen pay tekhta hoon, woh matha bhi tu nay hi ata kiya hai
+* Jis zameen par tekta hoon, who zameen bhi tu nay paida ki hai
+* Eyes: Jin ankhoon say ansoo bahata hoon, woh ansoo bhi tu nay ata kayay hayn
+* Aankhayn bhi teri hayn
+* Dawood ka apna kuch bhi nahi kay jis baat par mayn shukar ada karon
+* O Dawd, yeah tera itaraaf hai joo, yehi shukar hai jis par tu nay haqq ada kar diya.
+* Shukar kay alfaz bhi tu nay hi shikai.
+
+***
+
 ### Shukr [Thankfulness, gratitude, or acknowledgment]
 * Shukr -> Jannat
 * Sabr -> Allah SWT

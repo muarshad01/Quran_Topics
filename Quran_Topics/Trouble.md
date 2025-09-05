@@ -2,6 +2,11 @@
 
 ***
 
+### [Remember Allah In Hard Time... | Professor Ahmed Rafique Akhtar](https://www.youtube.com/watch?v=qpV8dowbTjE)
+* __Surah 3/140__: [وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ](https://quran.com/3/140)
+
+***
+
 ### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
 
 ***

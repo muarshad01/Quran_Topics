@@ -29,23 +29,23 @@
 
 ***
 
-* __Surah Hud 11/88 (Taufeeq)__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَرَزَقَنِى مِنْهُ رِزْقًا حَسَنًۭا ۚ وَمَآ أُرِيدُ أَنْ أُخَالِفَكُمْ إِلَىٰ مَآ أَنْهَىٰكُمْ عَنْهُ ۚ إِنْ أُرِيدُ إِلَّا ٱلْإِصْلَـٰحَ مَا ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quranwbw.com/11/88)
-  
-***
-
 * __Surah Yunus 10/85__: [فَقَالُوا۟ عَلَى ٱللَّهِ تَوَكَّلْنَا رَبَّنَا لَا تَجْعَلْنَا فِتْنَةًۭ لِّلْقَوْمِ ٱلظَّـٰلِمِينَ](https://quranwbw.com/10/85)
 
 ***
 
-* __Surah Ibrahim 14/11-12__: [Their messengers said to them, “We are ˹indeed˺ only humans like you, but Allah favours whoever He chooses of His servants. It is not for us to bring you any proof without Allah’s permission. And in Allah let the believers put their trust.](https://quranwbw.com/14#11-12)
-
-***
-
-* __Sura Raad 13/30__: [And so We have sent you ˹O Prophet˺ to a community, like ˹We did with˺ earlier communities, so that you may recite to them what We have revealed to you. Yet they deny the Most Compassionate.1 Say, “He is my Lord! There is no god ˹worthy of worship˺ except Him. In Him I put my trust, and to Him I turn ˹in repentance˺.”](https://quranwbw.com/13/30)
+* __Surah Hud 11/88 (Taufeeq)__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَرَزَقَنِى مِنْهُ رِزْقًا حَسَنًۭا ۚ وَمَآ أُرِيدُ أَنْ أُخَالِفَكُمْ إِلَىٰ مَآ أَنْهَىٰكُمْ عَنْهُ ۚ إِنْ أُرِيدُ إِلَّا ٱلْإِصْلَـٰحَ مَا ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quranwbw.com/11/88)
   
 ***
 
-* __Surah Al-Ahzaab 33/3 (Allah is sufficient as a Trustee of Affairs.)__: [And put your trust in Allah, and Sufficient is Allah as a Wakil (Trustee, or Disposer of affairs)](https://quranwbw.com/33#3)
+* __Surah Raad 13/30__: [كَذَٰلِكَ أَرْسَلْنَـٰكَ فِىٓ أُمَّةٍۢ قَدْ خَلَتْ مِن قَبْلِهَآ أُمَمٌۭ لِّتَتْلُوَا۟ عَلَيْهِمُ ٱلَّذِىٓ أَوْحَيْنَآ إِلَيْكَ وَهُمْ يَكْفُرُونَ بِٱلرَّحْمَـٰنِ ۚ قُلْ هُوَ رَبِّى لَآ إِلَـٰهَ إِلَّا هُوَ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ مَتَابِ](https://quranwbw.com/13/30)
+  
+***
+
+* __Surah Ibrahim 14/11-12__: [وَلَـٰكِنَّ ٱللَّهَ يَمُنُّ عَلَىٰ مَن يَشَآءُ......وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُتَوَكِّلُونَ](https://quranwbw.com/14/11-12)
+
+***
+
+* __Surah Al-Ahzaab 33/3 (Allah is sufficient as a Trustee of Affairs.)__: [وَتَوَكَّلْ عَلَى ٱللَّهِ ۚ وَكَفَىٰ بِٱللَّهِ وَكِيلًۭا](https://quranwbw.com/33/3)
 
 ***
 
@@ -53,10 +53,10 @@
 
 ***
 
-* __Surah Taghuban 64/13__: [Allah! La ilaha illa Huwa (none has the right to be worshipped but He), and in Allah (Alone), therefore, let the believers put their trust](https://quranwbw.com/64#13)
+* __Surah Taghuban 64/13__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ۚ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quranwbw.com/64/13)
 
 ***
 
-* __Surah At-Talaq 65/2-3 (Taqwa)__: [And whosoever fears Allah and keeps his duty to Him, He will make a way for him to get out (from every difficulty). And He will provide him from (sources) he never could imagine. And whosoever puts his trust in Allah, then He will suffice him. Verily, Allah will accomplish his purpose. Indeed Allah has set a measure for all things](https://quranwbw.com/65#2-3)
+* __Surah At-Talaq 65/2-3 (Taqwa)__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا......وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quranwbw.com/65/2-3)
 
 *** 

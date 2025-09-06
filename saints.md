@@ -80,6 +80,7 @@
       * `Syed Sarfarz A. Shah`
    * `Ruler over all Qura-e-Ardh`   
    * `Ruler over all Qutubs`
+   * Ghaus-e-Zaman / Qutub-ul-Aqtab - Sheikh Abdul Qadir Julani
 
 ***
 
@@ -187,5 +188,16 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 #### [Tasawwuf Main Hazrat Ali (R.A) Ki Dehleez Tak Kaise Pohancha Ja Sakta Hai? | SSA Shah](https://www.youtube.com/watch?v=mAVhDV7symc)
 * Rabb ko mann-na
 * Rabb ki mann-aa
+
+*** 
+
+### [How Sufi deals with Psychological problems | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=fVYeVISIDcQ)
+* Ghaus-e-Zamana
+* Qutub-ul-Aqtab
+
+* Hazrat Junaid Baghdati - Definition of Tauheed
+   * Seperate the Eternal from the Accidental
+* Sheikh Ali Hajveri - Why Allah SWT is in Hijab
+   * Agar Allah SWT nazar aa-jata to imaan jabar-hoo jata
 
 *** 

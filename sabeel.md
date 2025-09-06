@@ -10,7 +10,7 @@
 * __Surah Al-Insaan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
 * __Surah Al-Insaan 76/29__: [إِنَّ هَـٰذِهِۦ تَذْكِرَةٌۭ ۖ فَمَن شَآءَ ٱتَّخَذَ إِلَىٰ رَبِّهِۦ سَبِيلًۭا](https://quran.com/76/29)
 
-##### Sirat versus Sabeel
+#### Sirat versus Sabeel
 * Sirat hai Allah SWT Ki (6/153), Sabeel hai Rasool SAW ki (12/108)
 * Sabeel ki Hifazat Allah Karay Ga (16/9)
 * Sabeel ki Hidayat Allah Karay (76/3)

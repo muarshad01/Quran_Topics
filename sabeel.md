@@ -11,13 +11,13 @@
 * __Surah Al-Insaan 76/29__: [إِنَّ هَـٰذِهِۦ تَذْكِرَةٌۭ ۖ فَمَن شَآءَ ٱتَّخَذَ إِلَىٰ رَبِّهِۦ سَبِيلًۭا](https://quran.com/76/29)
 
 ##### Sirat versus Sabeel
-* Sirat hai Allah SWT Ki, Sabeel hai Rasool SAW ki
-* Sabeel ki Hifazat Allah Karay
-* Sabeel ki Hidayat Allah Karay
-* Sabeel ki Dawat Muhammad SAW dayn
+* Sirat hai Allah SWT Ki (6/153), Sabeel hai Rasool SAW ki (12/108)
+* Sabeel ki Hifazat Allah Karay Ga (16/9)
+* Sabeel ki Hidayat Allah Karay (76/3)
+* Sabeel ki Dawat Muhammad SAW dayn Gay (16/125)
 * Sabeel Ale-Muhammad
-* Sabeel Ale-Muhammad ki mohabbat
-* Sabeel Ale-Muhammad Ka Zikr
+* Sabeel Ale-Muhammad ki mohabbat (42/23)
+* Sabeel Ale-Muhammad Ka Zikr (76/29)
 
 ***
 

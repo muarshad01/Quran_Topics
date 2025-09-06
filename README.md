@@ -26,7 +26,7 @@
 |5. | [Zikr (Remembrance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_benefits.md) | July 29, 2025| 
 |6. | [Tasbeeh (Act of glorifying and praising Allah (SWT))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tasbeeh_in_quran.md) | July 29, 2025 | 
 |7. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 31, 2025 |
-|8. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | July 29, 2025 |
+|8. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | Sept 05, 2025 |
 |9. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 30, 2025 |
 |10.| [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | Aug 29, 2025 |
 

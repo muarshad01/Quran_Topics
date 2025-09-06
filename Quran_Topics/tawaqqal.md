@@ -11,29 +11,29 @@
 
 * __Surah Ale-i-Imran 3/122__: [إِذْ هَمَّت طَّآئِفَتَانِ مِنكُمْ أَن تَفْشَلَا وَٱللَّهُ وَلِيُّهُمَا ۗ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quranwbw.com/3/122)
 
-* __Surah Ale-i-Imran 3/159 (Allah Loves those)__: [It is out of Allah’s mercy that you ˹O Prophet˺ have been lenient with them. Had you been cruel or hard-hearted, they would have certainly abandoned you. So pardon them, ask Allah’s forgiveness for them, and consult with them in ˹conducting˺ matters. Once you make a decision, put your trust in Allah. Surely Allah loves those who trust in Him.](https://quranwbw.com/3#159)
+* __Surah Ale-i-Imran 3/159 (Allah Loves those)__: [فَبِمَا رَحْمَةٍۢ مِّنَ ٱللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ ٱلْقَلْبِ لَٱنفَضُّوا۟ مِنْ حَوْلِكَ ۖ فَٱعْفُ عَنْهُمْ وَٱسْتَغْفِرْ لَهُمْ وَشَاوِرْهُمْ فِى ٱلْأَمْرِ ۖ فَإِذَا عَزَمْتَ فَتَوَكَّلْ عَلَى ٱللَّهِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ](https://quranwbw.com/3/159)
 
-* __Surah Ale-i-Imran 3/160__: [If Allah helps you, none can defeat you. But if He denies you help, then who else can help you? So in Allah let the believers put their trust.](https://quranwbw.com/3#160)
-
-***
-
-* __Surah An-Nisaa 4/81__: [And they say, “We obey,” but when they leave you, a group of them would spend the night contradicting what they said. Allah records all their schemes. So turn away from them, and put your trust in Allah. And Allah is sufficient as a Trustee of Affairs.](https://quranwbw.com/4#81)
+* __Surah Ale-i-Imran 3/160__: [إِن يَنصُرْكُمُ ٱللَّهُ فَلَا غَالِبَ لَكُمْ ۖ وَإِن يَخْذُلْكُمْ فَمَن ذَا ٱلَّذِى يَنصُرُكُم مِّنۢ بَعْدِهِۦ ۗ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quranwbw.com/3/160)
 
 ***
 
-* __Surah Al-Maaida 5/11__: [وَتَوَكَّلْ عَلَى ٱللَّهِ ۚ وَكَفَىٰ بِٱللَّهِ وَكِيلًا](https://quranwbw.com/5#11)
+* __Surah An-Nisaa 4/81__: [وَيَقُولُونَ طَاعَةٌۭ فَإِذَا بَرَزُوا۟ مِنْ عِندِكَ بَيَّتَ طَآئِفَةٌۭ مِّنْهُمْ غَيْرَ ٱلَّذِى تَقُولُ ۖ وَٱللَّهُ يَكْتُبُ مَا يُبَيِّتُونَ ۖ فَأَعْرِضْ عَنْهُمْ وَتَوَكَّلْ عَلَى ٱللَّهِ ۚ وَكَفَىٰ بِٱللَّهِ وَكِيلًا](https://quranwbw.com/4/81)
 
 ***
 
-* __Surah At-Tawba 9/129__: [But if they turn away, then say, ˹O Prophet,˺ “Allah is sufficient for me. There is no god ˹worthy of worship˺ except Him. In Him I put my trust. And He is the Lord of the Mighty Throne.”](https://quranwbw.com/9#129)
+* __Surah Al-Maaida 5/11__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱذْكُرُوا۟ نِعْمَتَ ٱللَّهِ عَلَيْكُمْ إِذْ هَمَّ قَوْمٌ أَن يَبْسُطُوٓا۟ إِلَيْكُمْ أَيْدِيَهُمْ فَكَفَّ أَيْدِيَهُمْ عَنكُمْ ۖ وَٱتَّقُوا۟ ٱللَّهَ ۚ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quranwbw.com/5/11)
 
 ***
 
-* __Surah Hud 11/88 (Taufeeq)__: [He said, “O my people! Consider if I stand on a clear proof from my Lord and He has blessed me with a good provision from Him. I do not want to do what I am forbidding you from. I only intend reform to the best of my ability. My success comes only through Allah. In Him I trust and to Him I turn.](https://quranwbw.com/11/88)
+* __Surah At-Tawba 9/129__: [فَإِن تَوَلَّوْا۟ فَقُلْ حَسْبِىَ ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ۖ عَلَيْهِ تَوَكَّلْتُ ۖ وَهُوَ رَبُّ ٱلْعَرْشِ ٱلْعَظِيمِ](https://quranwbw.com/9/129)
+
+***
+
+* __Surah Hud 11/88 (Taufeeq)__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَرَزَقَنِى مِنْهُ رِزْقًا حَسَنًۭا ۚ وَمَآ أُرِيدُ أَنْ أُخَالِفَكُمْ إِلَىٰ مَآ أَنْهَىٰكُمْ عَنْهُ ۚ إِنْ أُرِيدُ إِلَّا ٱلْإِصْلَـٰحَ مَا ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quranwbw.com/11/88)
   
 ***
 
-* __Surah Yunus 10/85__: [They replied, “In Allah we trust. Our Lord! Do not subject us to the persecution of the oppressive people,](https://quranwbw.com/10#85)
+* __Surah Yunus 10/85__: [فَقَالُوا۟ عَلَى ٱللَّهِ تَوَكَّلْنَا رَبَّنَا لَا تَجْعَلْنَا فِتْنَةًۭ لِّلْقَوْمِ ٱلظَّـٰلِمِينَ](https://quranwbw.com/10/85)
 
 ***
 

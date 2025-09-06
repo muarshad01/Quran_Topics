@@ -1,7 +1,7 @@
 #### [How to Rely on Allah (SWT)](https://www.youtube.com/shorts/RoGI9xMJJaI)
 * Allah SWT doesn't like lazy-people.
 * Allah SWT likes those who strive like-Mujahids
-* We should try our best and leave-the-result to Allah SWT.
+* We should try-our-best and leave-the-result to Allah SWT.
 
 ***
 

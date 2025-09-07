@@ -22,6 +22,10 @@
 ***
 
 #### [Wa Anna Haza Siraati Mustaqeema | Allama Talib Johri](https://www.youtube.com/watch?v=VqC_9POao3U)
-* __Surah 6/153__: [وَأَنَّ هَـٰذَا صِرَٰطِى مُسْتَقِيمًۭا](https://quran.com/6/153)
+* __Surah 6/153__: [وَأَنَّ هَـٰذَا صِرَٰطِى مُسْتَقِيمًۭا فَٱتَّبِعُوهُ ۖ وَلَا تَتَّبِعُوا۟ ٱلسُّبُلَ فَتَفَرَّقَ بِكُمْ عَن سَبِيلِهِۦ ۚ ذَٰلِكُمْ وَصَّىٰكُم بِهِۦ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/6/153)
+* __Surah 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
+* Itayat versus Itabah
+  * Itayat: Baat pay amal karna; Baat ko maan layna
+  * Itabah: Pechay pechay chalna; Jaisa woh kar raha hai, waisay karna
 
 ***

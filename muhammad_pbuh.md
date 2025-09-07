@@ -1,3 +1,8 @@
+#### [https://www.youtube.com/watch?v=SstVer_Qopo](https://www.youtube.com/watch?v=SstVer_Qopo)
+* Darood-e-Khizri
+
+***
+
 #### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
 
 ***

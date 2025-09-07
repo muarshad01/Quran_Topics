@@ -27,5 +27,8 @@
 * Itayat versus Itabah
   * Itayat: Baat pay amal karna; Baat ko maan layna
   * Itabah: Pechay pechay chalna; Jaisa woh kar raha hai, waisay karna
+* __Surah 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)
+* Sirat Mustaqeem Zaat-e-Muhammad SAW hai
+* __Surah 10/15__: [قَالَ ٱلَّذِينَ لَا يَرْجُونَ لِقَآءَنَا ٱئْتِ بِقُرْءَانٍ غَيْرِ هَـٰذَآ أَوْ بَدِّلْهُ ۚ](https://quran.com/10/15)
 
 ***

@@ -22,6 +22,9 @@
 ***
 
 #### [Wa Anna Haza Siraati Mustaqeema | Allama Talib Johri](https://www.youtube.com/watch?v=VqC_9POao3U)
+* Itayat versus Itabah
+   * Itayat: Baat pay amal karna; Baat ko maan layna
+   * Itabah: Pechay pechay chalna; Jaisa woh kar raha hai, waisay karna
 * __Surah Ale-Imran 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)
   * Sirat Mustaqeem Zaat-e-Muhammad SAW hai
 * __Surah Al-Anaam 6/153__: [وَأَنَّ هَـٰذَا صِرَٰطِى مُسْتَقِيمًۭا فَٱتَّبِعُوهُ ۖ وَلَا تَتَّبِعُوا۟ ٱلسُّبُلَ فَتَفَرَّقَ بِكُمْ عَن سَبِيلِهِۦ ۚ ذَٰلِكُمْ وَصَّىٰكُم بِهِۦ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/6/153)
@@ -30,9 +33,6 @@
 * __Surah Yusuf 12/108__: [قُلْ هَـٰذِهِۦ سَبِيلِىٓ أَدْعُوٓا۟ إِلَى ٱللَّهِ ۚ عَلَىٰ بَصِيرَةٍ أَنَا۠ وَمَنِ ٱتَّبَعَنِى ۖ وَسُبْحَـٰنَ ٱللَّهِ وَمَآ أَنَا۠ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/12/108)
 * __Surah Ash-Shuaraa 26/214-215__: [وَأَنذِرْ عَشِيرَتَكَ ٱلْأَقْرَبِينَ......وَٱخْفِضْ جَنَاحَكَ لِمَنِ ٱتَّبَعَكَ مِنَ ٱلْمُؤْمِنِينَ](https://quran.com/26/214-215)
 * __Surah Qaaf 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
-* Itayat versus Itabah
-  * Itayat: Baat pay amal karna; Baat ko maan layna
-  * Itabah: Pechay pechay chalna; Jaisa woh kar raha hai, waisay karna
 * __Surah An-Najm 53/1-4__: [وَٱلنَّجْمِ إِذَا هَوَىٰ......مَا ضَلَّ صَاحِبُكُمْ وَمَا غَوَىٰ......وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ......إِنْ هُوَ إِلَّا وَحْىٌۭ يُوحَىٰ](https://quran.com/53/1-4)
 * __Surah 20/47__: [وَٱلسَّلَـٰمُ عَلَىٰ مَنِ ٱتَّبَعَ ٱلْهُدَىٰٓ](https://quran.com/20/47)
 

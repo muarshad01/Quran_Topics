@@ -1,3 +1,7 @@
+#### [Dua Ki Qabuliyat Ki Bunyadi Shart | SSA Shah](https://www.youtube.com/shorts/LVcRw-Fsd28)
+
+***
+
 #### [The True Essence of Sadaqah | صدقہ کی حقیقت کیا ہے؟](https://www.youtube.com/watch?v=0bQBMSOAWhA)
 
 ***

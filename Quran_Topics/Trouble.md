@@ -5,7 +5,17 @@
 ### [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
 * __Surah 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
 * __Surah 29/45__: [وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ](https://quran.com/29/45)
+
 ***
+
+### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
+
+***
+
+### [Psychotic Depression Treatment, Anxiety aur Depression ka elaj | Professor ARA](https://www.youtube.com/watch?v=_4f6uVGgaqc)
+
+***
+
 
 * __Surah 20/46__: [قَالَ لَا تَخَافَآ ۖ إِنَّنِى مَعَكُمَآ أَسْمَعُ وَأَرَىٰ](https://quran.com/20/46)
 

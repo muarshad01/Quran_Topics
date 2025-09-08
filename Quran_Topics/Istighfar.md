@@ -15,7 +15,7 @@
 * You'll start forgetting your sin. Just like you wash a TAPE. They're written off your book.
 * You don't commit that sin again.
 * Start moving towards goodness.
-* Aus kay andar, Tahrao, Itminan, aur Sakoon gagha bana laylaita hai.
+* Aus kay andar, Tahrao, Itminan, aur Sakoon gagha-bana laylaita-hai.
 * He starts forgiving other people.
 
 ***

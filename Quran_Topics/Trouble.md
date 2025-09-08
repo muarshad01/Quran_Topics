@@ -4,7 +4,7 @@
 
 ### [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
 * __Surah 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
-
+* __Surah 29/45__: [وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ](https://quran.com/29/45)
 ***
 
 * __Surah 20/46__: [قَالَ لَا تَخَافَآ ۖ إِنَّنِى مَعَكُمَآ أَسْمَعُ وَأَرَىٰ](https://quran.com/20/46)

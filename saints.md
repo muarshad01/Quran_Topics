@@ -201,3 +201,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
    * Agar Allah SWT nazar aa-jata to imaan jabar-hoo jata
 
 *** 
+
+### Hazrat Ali RA
+* __Ghurbat-aur-Musibat ka muqabla Sadqah-aur-khairaat say karo - Hazrat Ali RA__
+
+***

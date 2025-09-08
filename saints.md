@@ -1,3 +1,7 @@
+* __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
+
+***
+
 ### [The Secret Work of Auliya Allah | SSA Shah](https://www.youtube.com/watch?v=q4mFuGygFps)
 * Auliaa akram are sahib-e-ilm. Ilm kay natijay me unhayn aqal-o-farast ataa ki jaati hai.
 * Woh apni aqal-o-farast say kam laitay hayn.
@@ -104,7 +108,7 @@
 ```
 * 18 Hazrat Ali RA
    * `Bab al-Ilm` or `Abu Turab` are titles
-* 19  `Prophet Muhammad PBUH`: Chair
+* 19 `Prophet Muhammad PBUH`: Chair
 
 ***
 
@@ -123,7 +127,7 @@
 
 ***
 
-### [Ki Roza e Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq](https://www.youtube.com/)
+### [Roza-e-Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq](https://www.youtube.com/)
 
 ***
 

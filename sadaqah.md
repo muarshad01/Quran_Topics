@@ -55,9 +55,9 @@
 
 *** 
 
-* __Surah Surah Al-Ma’idah Ayat 12__: []()
-* __Surah Surah Al-Ma’idah Ayat 45__: []()
-* __Surah Surah Al-Ma’idah Ayat 55__: []()
+* __Surah Al-Ma’idah 5/12__: [](https://quran.com/5/12)
+* __Surah Al-Ma’idah 5/45__: [](https://quran.com/5/45)
+* __Surah Al-Ma’idah 5/55__: [](https://quran.com/5/55)
 
 ***
 

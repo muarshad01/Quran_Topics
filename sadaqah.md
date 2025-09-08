@@ -1,9 +1,3 @@
-#### [Dua Ki Qabuliyat-Ki Bunyadi-Shart | SSA Shah](https://www.youtube.com/shorts/LVcRw-Fsd28)
-* Insaan naa-sirf pur-umeed rehay balkay pur-yaqeen rehay.
-* Mera Rabb, zaroor meri-duaa qabool-keray-gaa.
-  
-***
-
 #### [The True Essence of Sadaqah | صدقہ کی حقیقت کیا ہے؟](https://www.youtube.com/watch?v=0bQBMSOAWhA)
 * Sadaqah Khairaat ki-hi aik-shakal-hai
 * Sadqah raad-e-balaa kehlata-hai

@@ -1,4 +1,8 @@
-#### [https://www.youtube.com/watch?v=SstVer_Qopo](https://www.youtube.com/watch?v=SstVer_Qopo)
+#### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
+
+***
+
+#### [Rasool Allah ﷺ Ki Tawajjo Ka Raaz | Ye Darood Zindagi Badal Dega! | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SstVer_Qopo)
 * Darood-e-Khizri
 
 ***

@@ -4,6 +4,7 @@
 * 3 - __Surah Taha 20/69__: [وَلَا يُفْلِحُ ٱلسَّاحِرُ حَيْثُ أَتَىٰٰ](https://quranwbw.com/20#69)
 * 4 - __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ](https://quran.com/10/81)
 * __Dua__: [اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ][“O Allah, we make You our shield against them, and take refuge in You from their evils.”]
+* __Surah 3/173__: [حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
 
 ***
 

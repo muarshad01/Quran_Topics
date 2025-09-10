@@ -1,6 +1,11 @@
 ## SIRATUL MUSTAQEEM (STRAIGHT PATH) AYATS
 * https://quranawareness.wordpress.com/siratul-mustaqeem-straight-path-ayats/
 
+
+***
+
+### [Sirat-e-Mustaqeem par kon-hain | Allama Talib Jauhari](https://www.youtube.com/watch?v=8oCdNbsZdog)
+
 *** 
 
 * __Surah Fatiha (1:6-7)__: [Guide us along the Straight Path (1:6), the Path of those You have blessed—not those You are displeased with, or those who are astray.(1:7)](https://quran.com/1/6-7)

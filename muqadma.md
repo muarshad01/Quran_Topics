@@ -15,5 +15,6 @@
 ***
 
 ### [fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
+* __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
 
 ***

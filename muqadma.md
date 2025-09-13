@@ -10,7 +10,7 @@
   
 *** 
 
-### [Ya Mueebu](https://www.youtube.com/shorts/vAJLp2QyB80)
+### [Ya Mujeebu](https://www.youtube.com/shorts/vAJLp2QyB80)
 * Apnay haqq mayn faisla karwanay ki laye
 
 ***

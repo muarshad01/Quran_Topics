@@ -1,4 +1,4 @@
-#### [Case Muqaddama Me Kamyabi Ka Asan Wazifa | Ya Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
+#### [Ya Khafizu - Case Muqaddama Me Kamyabi Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
 * Ya Khafidu (Ism-e-Ilahi numbr 23) - Adad 1481 - 14 - 5
 * For success in muqadima:
   * 3 fasts - after every prayer recite 70 times.

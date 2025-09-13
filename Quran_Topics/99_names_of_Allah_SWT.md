@@ -26,7 +26,6 @@ https://99namesofallah.name/
 
 ### [00. Benefits of Allah Name Ar-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
 ### [01. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
-
 ### [02. Benefits of Allah Name Al-Raheemo | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=3DDo4dY-Yy4)
 ### [03. Benefits of Allah Name Al-Malik   | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=jFOb-rgL9rc)
 ### [04. Benefits of Allah Name Al-Quddus  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=n2z_uCg3X8M)
@@ -46,9 +45,24 @@ https://99namesofallah.name/
 ### [17. ]()
 ### [18. ]()
 ### [19. Benefits of Allah Name Al-Aleem  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=kg8aW630tuc)
+### [20. ]()
+### [21. ]()
+### [22. ]()
+### [23. ] Ya Khafidu (Ism-e-Ilahi numbr 23) - Adad 1481 - 14 - 5
+### [24. ]()
+### [25. ]()
+### [26. ]()
+### [27. ]()
+### [28. ]()
+### [29. ]()
+### [30. ]()
+### [31. ]()
+### [32. ]()
+### [33. ] Ya Haleemu (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7
+
+...
 
 ***
-
 
 ### [Meaning Virtues and Benefits of Name Al-Wahabu By Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
 

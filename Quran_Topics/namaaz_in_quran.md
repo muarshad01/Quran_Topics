@@ -1,5 +1,13 @@
 #### [Sadjah Sahoo](https://www.youtube.com/shorts/xwem1gEiG1g)
 
+
+***
+### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
+* Salat-e-Hajat (21 days regularly)
+* First rakat Surah Al-Kaifroon
+* Second rake Surah Al-Akhlas
+* 
+
 ***
 
 #### [Universe in Prayer | Sahil Adeem](https://www.youtube.com/watch?v=-SCGRha-9rk)

@@ -5,19 +5,18 @@
 
 ***
 
-### [Ha-Meem La-Yunsiroon](https://www.youtube.com/shorts/ELSrBfUGWmQ)
+#### [Ha-Meem La-Yunsiroon](https://www.youtube.com/shorts/ELSrBfUGWmQ)
 * Case - custody of kids!
   
 *** 
 
-### [Ya Mujeebu](https://www.youtube.com/shorts/vAJLp2QyB80)
+#### [Ya Mujeebu](https://www.youtube.com/shorts/vAJLp2QyB80)
 * Apnay haqq mayn faisla karwanay ki laye
 
 ***
 
-#### [Judge Boss Haakim Apke Haq Me Faisla Karne Ka Asan Wazifa | Ya Haleemu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
+#### [Ya Haleemu - Judge Boss Haakim Apke Haq Me Faisla Karne Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
 * Ya Haleemu
-
 
 ***
 

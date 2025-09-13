@@ -10,6 +10,11 @@
   
 *** 
 
+### [Ya Mueebu](https://www.youtube.com/shorts/vAJLp2QyB80)
+* Apnay haqq mayn faisla karwanay ki laye
+
+***
+
 #### [Judge Boss Haakim Apke Haq Me Faisla Karne Ka Asan Wazifa | Ya Haleemu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
 * Ya Haleemu
 

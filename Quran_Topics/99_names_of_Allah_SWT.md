@@ -67,3 +67,5 @@ https://99namesofallah.name/
 ### [Meaning Virtues and Benefits of Name Al-Wahabu By Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
 
 ***
+
+#### [Allah Kay 4 Nam Ju Na-Mumkin Ko Mumkin Bana Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)

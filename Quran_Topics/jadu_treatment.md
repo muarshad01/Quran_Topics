@@ -161,3 +161,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * __Surah 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quranwbw.com/6/59)
 
 ***
+
+#### [Jadu Ka Tor Bus Ek Minute Mean | Azmoda Wazifa | wazifa for black magic in urdu | Nazeer Ahmad Ghazi](https://www.youtube.com/watch?v=ZIV1BYeq5fs)
+
+***

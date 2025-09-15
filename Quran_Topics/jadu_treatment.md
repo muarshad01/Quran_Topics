@@ -163,5 +163,8 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Jadu Ka Tor Bus Ek Minute Mean | Azmoda Wazifa | wazifa for black magic in urdu | Nazeer Ahmad Ghazi](https://www.youtube.com/watch?v=ZIV1BYeq5fs)
+* Mauzatain: 
+1. Surah Al-Falaq
+2. Surah An-Nas
 
 ***

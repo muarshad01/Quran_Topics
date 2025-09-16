@@ -3,6 +3,10 @@
 
 ***
 
+#### [Sahib-e-Ilm Ki Pehchan Kya Hai? | صاحب علم کی پہچان کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
+
+***
+
 ### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
 * If you want to acquire Ilm then first become obedient with everyone.
 

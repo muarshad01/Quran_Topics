@@ -205,3 +205,9 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
    * Agar Allah SWT nazar aa-jata to imaan jabar-hoo jata
 
 *** 
+
+### [Hazrat Nizamuddin auliya - Mahbub-e-Ilahi](https://www.youtube.com/shorts/_b6TTruskHo)
+* Fariduddin Ganjshakar
+* Qutbuddin Bakhtiyar Kaki
+* Moinuddin Chishti
+*** 

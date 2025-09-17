@@ -5,6 +5,10 @@
 
 ***
 
+#### [Allah Par Tawwakul Ke Fayde | Dr Israr Ahmad](https://www.youtube.com/watch?v=swpClaCqDFk)
+
+***
+
 #### [Quran verses on Tawakkul](https://myislam.org/quran-verses/tawakkul/)
 
 ***

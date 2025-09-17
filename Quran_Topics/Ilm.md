@@ -126,3 +126,15 @@
 * __Surah Al-Anbiyaa 21/79__: [](https://quranwbw.com/21/79)
 
 * __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
+
+***
+
+### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
+* Five Question
+1. Your complete Life
+2. Especially your young age
+3. Where did you earn
+4. Where did you spend
+5. How much did you acted up the Ilm you acquired
+
+***

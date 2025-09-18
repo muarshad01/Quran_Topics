@@ -31,3 +31,7 @@
 * __Surah 8/40__: [نِعْمَ ٱلْمَوْلَىٰ وَنِعْمَ ٱلنَّصِيرُ](https://quran.com/4/40)
 
 ***
+
+* rabbi inni maghlubun fantasir 
+
+***

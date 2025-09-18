@@ -5,9 +5,14 @@
 
 ***
 
-#### [Allah Par Tawwakul Ke Fayde | Dr Israr Ahmad](https://www.youtube.com/watch?v=swpClaCqDFk)
+#### [Allah-Par-Tawwakul Ke Fayde | Dr Israr Ahmad](https://www.youtube.com/watch?v=swpClaCqDFk)
 * Asbab
 * Allah SWT is Musabab-ul-Asbab" (مُسَبِّبَ الاَسْبَاب)
+
+* 1 Khidajah Kubra RA - Adult Woman (Siddiqua Kubra)
+* 2 Hazrat Abubakar RA - Adult Man (Siddique Akbar)
+* 3 Hazarat Ali RA - Kid
+* 4 Zyad ibn Haris
 
 ***
 

@@ -72,6 +72,14 @@
 * __Surha Taha 20/102__: [Blue Eyed(Zurqa)](https://quran.com/20/102)
 * __Surah Fatir 35/27__: [White (Bidun), Red (Wagharabibu Sudun), Black (Sudun)](https://quran.com/35/27)
 
+#### [Tawaf Ke 7 Chakar Kyun HainHAIN? | Irfan-ul-Haq](https://www.youtube.com/watch?v=HHMeqhOuucg)
+* __Surah__: [](https://quran.com/40/60)
+* __Surah__: [](https://quran.com/50/16)
+
+* Tawaf - 7 Rounds (Anti Clock-wise; your heart will remain towards Kabba)
+* Days of Week - 7
+* All 7 days your thoughts, thinking, planning, acts, business, jdobs, dealings, Ibadat... should revolve around me.
+
 ***
 
 #### Digit (8)
@@ -323,6 +331,7 @@ https://quran.com/12/101
 * __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
 
 ***
+
 
 
 

@@ -6,7 +6,7 @@
 #### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
 * Offer 2-rakat Salat-e-Hajat (21 days regularly)
 * First rakat recite Surah Al-Kaifroon
-* Second rake recite Surah Al-Akhlas
+* Second raket recite Surah Al-Akhlas
 * Recite Duai-e-Hajjat
 
 ***

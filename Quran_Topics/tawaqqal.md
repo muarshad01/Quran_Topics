@@ -1,3 +1,7 @@
+#### [Tawakkul ALLAH | توکل اللہ | Irfan-ul-Haq](https://www.youtube.com/watch?v=8qCH4FrvpU0&list=PLbL0UiWW7AylndYVrq-HaofHtwSPTjnPu&index=30)
+
+***
+
 #### [How to Rely on Allah (SWT)](https://www.youtube.com/shorts/RoGI9xMJJaI)
 * Allah SWT doesn't like lazy-people.
 * Allah SWT likes those who strive like-Mujahids

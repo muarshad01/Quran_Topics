@@ -6,6 +6,9 @@
 ***
 
 #### [Allah Par Tawakal (Bharosa) | Irfan-ul-Haq](https://www.youtube.com/watch?v=yf7XXEmFzis)
+* Zikr, dua, nazr, guftagoo say, tuwajoo say...restore confidence on Allah
+* Umeet ko zinda kar-dena
+* Umeed and Tawakkat are adjancet
 
 ***
 

@@ -5,6 +5,10 @@
 
 ***
 
+#### [Allah Par Tawakal (Bharosa) | Irfan-ul-Haq](https://www.youtube.com/watch?v=yf7XXEmFzis)
+
+***
+
 #### [Allah-Par-Tawwakul Ke Fayde | Dr Israr Ahmad](https://www.youtube.com/watch?v=swpClaCqDFk)
 * Asbab
 * Allah SWT is Musabab-ul-Asbab" (مُسَبِّبَ الاَسْبَاب)

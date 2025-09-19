@@ -31,6 +31,15 @@
 
 ***
 
+#### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
+* Discipline (Timing, Commitment, ...)
+* Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
+* Sit respectfully in a grouping...
+* Good Chararacter
+* __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
+
+***
+
 #### [Universe in Prayer | Sahil Adeem](https://www.youtube.com/watch?v=-SCGRha-9rk)
 * __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
 
@@ -47,13 +56,6 @@
 #### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
 
 ***
-
-#### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
-* Discipline (Timing, Commitment, ...)
-* Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
-* Sit respectfully in a grouping...
-* Good Chararacter
-* __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
 
 #### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)
 * __Surah Al-ANkabut 29/45 (Tanhaa anil fahshaaa'i wal-munkar)__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quranwbw.com/29/45)

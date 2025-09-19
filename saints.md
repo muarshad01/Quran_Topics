@@ -222,3 +222,9 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 ### [Khilafat of Syed Sarfraz A. Shah Sahab | سید سرفراز احمد شاہ صاحب کی خلافت](https://www.youtube.com/watch?v=IeUni1dniLM)
 
 ***
+
+### Abdul Latif Bari Imam (1617–1705)
+* Recite __Shahshah-e-Behr-o-Bar Ya Latif__ for spiritual connection.
+* Descendent of __Imam Musa al-Kadhim__
+
+***

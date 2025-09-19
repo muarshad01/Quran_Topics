@@ -11,6 +11,26 @@
 
 ***
 
+#### [How Salah Transforms Your Life?](https://www.youtube.com/watch?v=3BDhsfse1oo)
+1. Araday ki pukhtagi
+2. Taharat / Pakeezgi
+3. Waqt ki pabandi
+4. Apnay Imaan ki Itayat
+5. Discipline
+6. Doosron kay liyat isaar
+7. Barabri
+* __Roza__
+* Bardashat ko barhata hai
+* Bardashat ko sabr kay muqaan par lay jaata hai
+* Bardashat ka ajar nahi
+* Sabr kaynay waloon kay saath Allah hai
+* Bardashat mayn Insaan jabr karta hai. Uski Zuban say gila shikwa hota rahta hai.
+* Woh Bardashat jo shukar kay saath ki jaati hai, woh sabr hai.
+* Khanda paishani kay saath masaib ko Bardashat karna Sabr hai.
+* Shukar kaynay walay par Naimatyn barha dee jaati hayn.
+
+***
+
 #### [Universe in Prayer | Sahil Adeem](https://www.youtube.com/watch?v=-SCGRha-9rk)
 * __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
 

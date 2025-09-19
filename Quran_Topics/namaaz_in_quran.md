@@ -12,22 +12,22 @@
 ***
 
 #### [How Salah Transforms Your Life?](https://www.youtube.com/watch?v=3BDhsfse1oo)
-1. Araday ki pukhtagi
-2. Taharat / Pakeezgi
-3. Waqt ki pabandi
+1. Araday ki Pukhtaagi (Strong determination)
+2. Taharat / Pakeezgi ()
+3. Waqt ki Pabandi (Punctuality)
 4. Apnay Imaan ki Itayat
 5. Discipline
-6. Doosron kay liyat isaar
-7. Barabri
+6. Doosron kay liyah isaar (Sacrifice)
+7. Barabri (Equality)
 * __Roza__
 * Bardashat ko barhata hai
-* Bardashat ko sabr kay muqaan par lay jaata hai
-* Bardashat ka ajar nahi
-* Sabr kaynay waloon kay saath Allah hai
-* Bardashat mayn Insaan jabr karta hai. Uski Zuban say gila shikwa hota rahta hai.
-* Woh Bardashat jo shukar kay saath ki jaati hai, woh sabr hai.
-* Khanda paishani kay saath masaib ko Bardashat karna Sabr hai.
-* Shukar kaynay walay par Naimatyn barha dee jaati hayn.
+* Bardashat ko Sabr-kay-muqaan par lay-jaata-hai
+* Bardashat ka ajar-nahi
+* Sabr karnay-waloon kay-saath Allah hai
+* Bardashat mayn Insaan jabr-karta-hai. Uski Zuban say gila-shikwa hota rahta-hai
+* Woh Bardashat jo shukar-kay-saath ki-jaati-hai, woh sabr-hai.
+* Khanda-paishani kay-saath masaib-ko Bardashat karna Sabr-hai.
+* Shukar kaynay walay par Naimatyn barha-dee-jaati-hayn.
 
 ***
 

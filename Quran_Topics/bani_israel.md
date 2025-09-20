@@ -284,6 +284,10 @@
 
 ***
 
+#### [Yahudi Paighambaron Ko Qatal Kyun Karte? Asal Wajah Janiye 😢 |Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sk7v7wa1O9Q)
+
+***
+
 #### Muslims
 * You can't change a word in Quran
 * We have Imam of ALL Nabi

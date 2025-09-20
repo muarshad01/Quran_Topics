@@ -1,5 +1,6 @@
 ### [Podcast With Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=ulOkpO__JBo)
 * Things will settle down in another year or so...things will be smooth afterwards
+
 #### Problem versus Symptons-of-Problem
 1. Find out the actual problem
 2. We should establish the root-cause of that problem
@@ -30,8 +31,8 @@
 * Our mistake: We broke Allah Order; Munkir-Khuda versus Mushrik-Khuda
 * We broker the Super-Power
 * Success has many fathers whereas failure has none
-* Just wait for one and half year...Pakistan will go up like a Rocket...InShaa Allah!
-* People will come here from Europe to find Jobs in Pakistan.
+* __Just wait for one and half year...Pakistan will go up like a Rocket...InShaa Allah!__
+* __People will come here from Europe to find Jobs in Pakistan.__
 * We'll be issuing work permit.
 
 ***

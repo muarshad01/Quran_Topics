@@ -6,3 +6,11 @@
 3. To fix the responsiblity
 4. We try to find out remedies
 5. Take preventive measures
+
+#### Islam gives concept of "Muslim Ummah" (Root Cause!)
+* No Pakistan, No Qatari, ALL Muslims
+* We became Slaves of our own interests
+* Muslims have abundant wealth
+* Deposited that wealth with enemies
+
+  

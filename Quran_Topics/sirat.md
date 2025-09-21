@@ -9,6 +9,8 @@
 ***
 
 ### [Sirat-e-Mustaqeem par kon-hain | Allama Talib Jauhari](https://www.youtube.com/watch?v=8oCdNbsZdog)
+* You like good things
+* Allah SWT also does the same...He pulls good people towards Him
 
 *** 
 

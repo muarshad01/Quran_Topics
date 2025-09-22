@@ -2,6 +2,10 @@
 
 ***
 
+### [Pakistan's Future Revealed - Shocking Predictions That Could Change Your Life | SSA Shah](https://www.youtube.com/watch?v=iVZ9pIKSuLE)
+
+***
+
 ### [Future Predictions - Hazrat Naimatullah Shah Wali | SSA Shah](https://www.youtube.com/watch?v=D8t-phlphJo)
 * Chup kar jaa, Rabb dah raaz nah khool
 

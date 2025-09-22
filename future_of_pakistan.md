@@ -1,4 +1,4 @@
-### [A Dialogue With History | Orya Maqbool Jan Podcast Episode #028 | Irfan-ul-Haq](https://www.youtube.com/watch?v=OZxi6DJonRM)
+### [A Dialogue With History | Orya Maqbool Jan | Irfan-ul-Haq](https://www.youtube.com/watch?v=OZxi6DJonRM)
 
 ***
 

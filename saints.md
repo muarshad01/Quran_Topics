@@ -228,3 +228,15 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * Descendent of __Imam Musa al-Kadhim__
 
 ***
+
+### [Khilafat of Syed Sarfraz A. Shah Sahab | سید سرفراز احمد شاہ صاحب کی خلافت](https://www.youtube.com/watch?v=IeUni1dniLM)
+
+***
+
+### `Syed Sarfaraz Ahmad Shah`
+* Baba Rehmat Warshi Shb
+    * Syed Yaqoob Ali Shah
+        * Syed Sarfaz A. Shah: Chishtia, Sabriya, Warsia (`Chishtia Sabria`, but was trained under `Warsia`)
+      * Khurrum (Khalifa of Syed Sarfaraz A. Shah)
+
+***

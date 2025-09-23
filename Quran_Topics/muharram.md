@@ -174,3 +174,12 @@
 ### [Maidan-e-Karbala Mayn Hazrat Imam Hussain (R.A) | SSA Shah](https://www.youtube.com/watch?v=UhG4KZ3pewQ)
 
 ***
+
+#### [Hazrat Imam Hussain (R.A.) Ka Qissa Qurbani | SSA Shah](https://www.youtube.com/watch?v=BHKee2SId7s)
+* Hazrat Ibrahim AS say qurbani mangi gaye thee. Hukum kay tehat woh qurbani kar rahey thay
+* Allah SWT ka hukum
+* Siffat Rahemi: Lamb was placed 
+* Allah SWT kay Deen ko apni asal shakal mayn rakhnay kay liye, yeah faisla khud hazrat Imam Hussain nay kiya
+* Allak SWT ka hukum hai...burai kay khalaf jahad karo
+
+***

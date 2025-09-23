@@ -1,3 +1,8 @@
+### [Noor-e-Sehar with Syed Sarfraz Ahmad Shah Sahab | 20 September 2025 on Channel 24 Part 1](https://www.youtube.com/watch?v=I-_fq2wnsUg)
+* In the next war, India with be defeated such that it will take 50 years to recover.
+
+***
+
 ### [Exclusive Interview with Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=s6T4gXdttC0)
 
 ***

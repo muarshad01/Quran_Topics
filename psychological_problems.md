@@ -1,3 +1,7 @@
+#### [Will 2025 be Lucky For You？Find Out Sarfraz Shah's Stimulating Predictions ｜ Imran Khan's Future](https://www.youtube.com/watch?v=FeZQCNMPP_4)
+
+***
+
 #### [08. Q&A Session With Syed Sarfraz A. Shah | Importance of Tilawat-e-Quran?](https://www.youtube.com/watch?v=Q-BoK1oCfns)
 
 ***

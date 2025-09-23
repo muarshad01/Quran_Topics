@@ -49,6 +49,16 @@
 
 ***
 
+#### [Baroz Itwar Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
+* Yeh Rohaniat mayn bohot-tezi say aadmi ko agay lay-jaadi-hai
+* Insaan kay dil say dunya-ki-mohabbat nikalnay lagti-hai
+* Rabb-par-Taqwa bharnay lagta-hai
+* Bala-ka-bharoosa paidao-hota-hai iss say Rabb-Tallah par
+* Wasail say hi bay-nayaz ho jaata-hai
+* Allah-Tallah kay qareeb ho jaata-hai
+
+***
+
 #### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
 
 ***

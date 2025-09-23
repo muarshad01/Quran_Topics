@@ -10,3 +10,8 @@
 * Mujhay azmana nahi makhlooq say.
 
 *** 
+
+### [ Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=pvrqASpPbs4)
+* In Quran, Gunah has another meaning too, Israaf.
+
+*** 

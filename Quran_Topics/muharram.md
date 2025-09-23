@@ -2,6 +2,11 @@
 
 ***
 
+#### [Hussain sey Ishq and Battle of Karbala| Professor ARA](https://www.youtube.com/watch?v=BgD8272HidQ)
+* Hussain 
+
+***
+
 ## [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
 * Sons: Ali Akbar (Bharchi in the chest) [18-27] years, Ali Asghar (6 months old; Arrow in the heart), Qasim
 * Brother Abbas: Hands were cut

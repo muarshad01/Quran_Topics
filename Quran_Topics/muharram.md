@@ -83,18 +83,18 @@
 ### 10th Muharram (Ashura): The day of the martyrdom of Imam Hussein (AS) and his companions at Karbala. 
 
 * [Nafawal for Hazrat Imam Hussain](https://www.youtube.com/shorts/JIk9YFk0w34)
-* [10 Muharram Ki Ahmiyat o Fazelat - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=ie-6amqrW2o)
-* Zameen-aur-Asman were created
+
+***
+
+#### [10 Muharram Ki Ahmiyat o Fazelat | SSA Shah](https://www.youtube.com/watch?v=ie-6amqrW2o)
 * Rabb-Talaa established himself on Arshe-e-Mualaa
+* Zameen-aur-Asman were created
 * First Rain on Zameen
-* First Rehmat of Rabb-Talaa was send on Zameen
+* First Rehmat of Rabb-Talaa was sent on Zameen
 * Qayamat will be on 10th of Muharram
-
 * Prophet Adam AS entered Jannah on Yum-e-Ashoor
-
 * Prophet Idrees AS was raised to a higher-level on the same day
-  
-* Prophet Daud AS was forgiven for his mistake on 10th of Muharram
+  * Prophet Daud AS was forgiven for his mistake on 10th of Muharram
 * Prophet Solom AS was given kingdom/rule over Jinns and Animals on Yum-e-Ashoor
 
 * Pharoah was drowned on 10th of Muharram

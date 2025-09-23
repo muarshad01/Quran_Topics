@@ -51,8 +51,9 @@
 
 ***
 
-#### [Hazrat Hussain’s (RA) Painful Moment |The Karbala Scene That Shakes Every Heart](https://www.youtube.com/watch?v=4kjeLFOWnpk)
-
+#### [Hazrat Hussain’s (RA) Painful Moment |The Karbala Scene That Shakes Every Heart | SSA Shah](https://www.youtube.com/watch?v=4kjeLFOWnpk)
+* In the whole human history, no-body has ever shown such a bravery...
+* Na koi shikwa, na koi gila, na koi tasbeeh, na koi wazifa
 ***
 
 #### [1st Muharram - Martyrdom anniversary of the conqueror-of-Jerusalem, Hazrat Umar (RA) | Suno Muslim](https://www.youtube.com/watch?v=K_mVoljgqCk)

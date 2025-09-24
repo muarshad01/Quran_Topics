@@ -1,3 +1,11 @@
+### [Sarfaraz Shah's Big Prediction Proved True](https://www.youtube.com/watch?v=UNG_jo5bax8)
+* Best of the bad lot expires
+* Rabb iss-mulk-ko abb theek kar-raha-hai
+* 2 to 2.5 years
+* Country will improve...who ever is the Ruler.
+
+***
+
 ### [Noor-e-Sehar with Syed Sarfraz Ahmad Shah Sahab | 20 September 2025 on Channel 24 Part 1](https://www.youtube.com/watch?v=I-_fq2wnsUg)
 * In the next war, forseeable future, India with be defeated such that it will take 50 years to recover.
 * We're not so weak, Bani Israel attack us...it will start their own downfall.

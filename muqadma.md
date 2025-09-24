@@ -35,3 +35,7 @@
 * Rabbi Inni-maghlubun Fan-tasir 
 
 ***
+
+![Kaf-Ha-Ya-Ain-Saa](https://github.com/muarshad01/Quran_Topics/blob/main/images/kaf-ha-ya-ain-saad.png)
+
+***

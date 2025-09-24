@@ -11,7 +11,7 @@
 *** 
 
 #### [Ya Mujeebu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/vAJLp2QyB80)
-* Apnay haqq mayn faisla karwanay ki laye
+* Apnay haqq-mayn faisla karwanay-ki-laye
 
 ***
 
@@ -32,6 +32,6 @@
 
 ***
 
-* rabbi inni maghlubun fantasir 
+* Rabbi Inni-maghlubun Fan-tasir 
 
 ***

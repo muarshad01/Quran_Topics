@@ -32,7 +32,7 @@
 
 ***
 
-* Rabbi Inni-maghlubun Fan-tasir 
+* Rabbi Inni-Maghlubun Fantasir (رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ)
 
 ***
 

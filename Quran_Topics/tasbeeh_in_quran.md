@@ -79,3 +79,5 @@
     * Nighe-e-Muhammad PBUH has seen the Tasbeeh of every particle of this Universe...
 
 ***
+
+* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)

@@ -308,13 +308,13 @@
 
 ***
 
-* __Surah Fatir [The Originator] 35/18 (${\color{red}Bear ~the ~Burden}$)__: [No soul burdened with sin will bear the burden of another. And if a sin-burdened soul cries for help with its burden, none of it will be carried—even by a close relative. You ˹O Prophet˺ can only warn those who stand in awe of their Lord without seeing Him and establish prayer. Whoever purifies themselves, they only do so for their own good. And to Allah is the final return.](https://quranwbw.com/35/18)
+* __Surah Fatir 35/18__: [وَلَا تَزِرُ وَازِرَةٌۭ وِزْرَ أُخْرَىٰ ۚ وَإِن تَدْعُ مُثْقَلَةٌ إِلَىٰ حِمْلِهَا لَا يُحْمَلْ مِنْهُ شَىْءٌۭ وَلَوْ كَانَ ذَا قُرْبَىٰٓ ۗ إِنَّمَا تُنذِرُ ٱلَّذِينَ يَخْشَوْنَ رَبَّهُم بِٱلْغَيْبِ وَأَقَامُوا۟ ٱلصَّلَوٰةَ ۚ وَمَن تَزَكَّىٰ فَإِنَّمَا يَتَزَكَّىٰ لِنَفْسِهِۦ ۚ وَإِلَى ٱللَّهِ ٱلْمَصِيرُ](https://quranwbw.com/35/18)
 
-* __Surah Fatir [The Originator] 35/29__: [Surely those who recite the Book of Allah, establish prayer, and donate from what We have provided for them—secretly and openly—˹can˺ hope for an exchange that will never fail,](https://quranwbw.com/35/29)
+* __Surah Fatir [The Originator] 35/29__: [إِنَّ ٱلَّذِينَ يَتْلُونَ كِتَـٰبَ ٱللَّهِ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَأَنفَقُوا۟ مِمَّا رَزَقْنَـٰهُمْ سِرًّۭا وَعَلَانِيَةًۭ يَرْجُونَ تِجَـٰرَةًۭ لَّن تَبُورَ](https://quranwbw.com/35/29)
 
 ***
 
-* __Surah Ghafir [The Forgiver] 40/55__: [So be patient ˹O Prophet˺, ˹for˺ Allah’s promise is certainly true. Seek forgiveness for your shortcomings.1 And glorify the praises of your Lord morning and evening.](https://quranwbw.com/40/55)
+* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
 
 ***
 

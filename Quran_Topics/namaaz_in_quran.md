@@ -270,9 +270,9 @@
 
 ***
 
-* __Surah Al-Mu’minun Ayat 23/2 (${\color{red}Humility}$)__: [those who humble themselves in prayer;](https://quranwbw.com/23/2)
+* __Surah Al-Mu’minun 23/2 (${\color{red}Humility}$)__: [ٱلَّذِينَ هُمْ فِى صَلَاتِهِمْ خَـٰشِعُونَ](https://quranwbw.com/23/2)
 
-* __Surah Al-Mu’minun Ayat 23/9(${\color{red} Observant/Protector}$)__: [and those who are ˹properly˺ observant of their prayers.](https://quranwbw.com/23/9)
+* __Surah Al-Mu’minun 23/9(${\color{red} Observant/Protector}$)__: [وَٱلَّذِينَ هُمْ عَلَىٰ صَلَوَٰتِهِمْ يُحَافِظُونَ](https://quranwbw.com/23/9)
 
 ***
 
@@ -286,25 +286,25 @@
 
 ***
 
-* __Surah An-Naml 27/3__: [˹those˺ who establish prayer, pay alms-tax, and have sure faith in the Hereafter.](https://quranwbw.com/27/3)
+* __Surah An-Naml 27/3__: [ٱلَّذِينَ يُقِيمُونَ ٱلصَّلَوٰةَ وَيُؤْتُونَ ٱلزَّكَوٰةَ وَهُم بِٱلْـَٔاخِرَةِ هُمْ يُوقِنُونَ](https://quranwbw.com/27/3)
 
 ***
 
-* __Surah Al-Ankabut 29/45__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quranwbw.com/29/45)
+* __Surah Al-Ankabut 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quranwbw.com/29/45)
 
 ***
 
-* __Surah Ar-Rum 30/31__: [˹O believers!˺ Always turn to Him ˹in repentance˺, be mindful of Him, and establish prayers. And do not be polytheists—](https://quranwbw.com/30/31)
+* __Surah Ar-Rum 30/31__: [۞ مُنِيبِينَ إِلَيْهِ وَٱتَّقُوهُ وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَلَا تَكُونُوا۟ مِنَ ٱلْمُشْرِكِينَ](https://quranwbw.com/30/31)
 
 ***
 
-* __Surah Luqman 31/17 (* ${PATIENCE}$)__: [“O my dear son! Establish prayer, encourage what is good and forbid what is evil, and endure patiently whatever befalls you. Surely this is a resolve to aspire to.](https://quranwbw.com/31/17)
+* __Surah Luqman 31/17 (${PATIENCE}$)__: [يَـٰبُنَىَّ أَقِمِ ٱلصَّلَوٰةَ وَأْمُرْ بِٱلْمَعْرُوفِ وَٱنْهَ عَنِ ٱلْمُنكَرِ وَٱصْبِرْ عَلَىٰ مَآ أَصَابَكَ ۖ إِنَّ ذَٰلِكَ مِنْ عَزْمِ ٱلْأُمُورِ](https://quranwbw.com/31/17)
   
 ***
 
-* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ~pre-Islamic ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)
+* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Women}$)__: [وَقَرْنَ فِى بُيُوتِكُنَّ وَلَا تَبَرَّجْنَ تَبَرُّجَ ٱلْجَـٰهِلِيَّةِ ٱلْأُولَىٰ ۖ وَأَقِمْنَ ٱلصَّلَوٰةَ وَءَاتِينَ ٱلزَّكَوٰةَ وَأَطِعْنَ ٱللَّهَ وَرَسُولَهُۥٓ ۚ إِنَّمَا يُرِيدُ ٱللَّهُ لِيُذْهِبَ عَنكُمُ ٱلرِّجْسَ أَهْلَ ٱلْبَيْتِ وَيُطَهِّرَكُمْ تَطْهِيرًۭا](https://quranwbw.com/33/33)
 
-* __Surah Al-Ahzab [The Clans] 33/56 (${color{red}Darood ~Sharif}$)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
+* __Surah Al-Ahzab [The Clans] 33/56 (${color{red}Darood ~Sharif}$)__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا](https://quranwbw.com/33/56)
 
 ***
 

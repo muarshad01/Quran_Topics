@@ -9,7 +9,7 @@
 ***
 
 #### CovENANT of Bani Israel
-* __Surah Al-Baqarah 2/83__: [And ˹remember˺ when We took a COVENANT from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.]()
+* __Surah Al-Baqarah 2/83 (Covenant of Bani Israel)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَ بَنِىٓ إِسْرَٰٓءِيلَ لَا تَعْبُدُونَ إِلَّا ٱللَّهَ وَبِٱلْوَٰلِدَيْنِ إِحْسَانًۭا وَذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَقُولُوا۟ لِلنَّاسِ حُسْنًۭا وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ ثُمَّ تَوَلَّيْتُمْ إِلَّا قَلِيلًۭا مِّنكُمْ وَأَنتُم مُّعْرِضُونَ](https://quranwbw.com/2/83)
 * __Surah Al-Ma’idah 5/12__: [۞ وَلَقَدْ أَخَذَ ٱللَّهُ مِيثَـٰقَ بَنِىٓ إِسْرَٰٓءِيلَ وَبَعَثْنَا مِنْهُمُ ٱثْنَىْ عَشَرَ نَقِيبًۭا ۖ وَقَالَ ٱللَّهُ إِنِّى مَعَكُمْ ۖ لَئِنْ أَقَمْتُمُ ٱلصَّلَوٰةَ وَءَاتَيْتُمُ ٱلزَّكَوٰةَ وَءَامَنتُم بِرُسُلِى وَعَزَّرْتُمُوهُمْ وَأَقْرَضْتُمُ ٱللَّهَ قَرْضًا حَسَنًۭا لَّأُكَفِّرَنَّ عَنكُمْ سَيِّـَٔاتِكُمْ وَلَأُدْخِلَنَّكُمْ جَنَّـٰتٍۢ تَجْرِى مِن تَحْتِهَا ٱلْأَنْهَـٰرُ ۚ فَمَن كَفَرَ بَعْدَ ذَٰلِكَ مِنكُمْ فَقَدْ ضَلَّ سَوَآءَ ٱلسَّبِيلِ](https://quran.com/5/12)
 
 #### COVENANT of Ibrahim and Ismail AS

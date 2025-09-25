@@ -330,13 +330,13 @@
 
 ***
 
-* __Surah Al-Ma’arij [The ascending stairways] 70/22__: [except those who pray,](https://quranwbw.com/70/22)
-* __Surah Al-Ma’arij [The ascending stairways] 70/23 (${\color{red}CONSISTENT}$)__: [consistently performing their prayers;](https://quranwbw.com/70/23)
-* __Surah Al-Ma’arij [The ascending stairways] 70/34(${\color{red}Observant/Protectors}$)__: [and who are ˹properly˺ observant of their prayers.](https://quranwbw.com/70/34)
+* __Surah Al-Ma’arij 70/22__: [إِلَّا ٱلْمُصَلِّينَ](https://quranwbw.com/70/22)
+* __Surah Al-Ma’arij 70/23 (${\color{red}Consistent}$)__: [ٱلَّذِينَ هُمْ عَلَىٰ صَلَاتِهِمْ دَآئِمُونَ](https://quranwbw.com/70/23)
+* __Surah Al-Ma’arij 70/34(${\color{red}Protectors}$)__: [وَٱلَّذِينَ هُمْ عَلَىٰ صَلَاتِهِمْ يُحَافِظُونَ](https://quranwbw.com/70/34)
 
 ***
 
-* __Surah Al-Muzzammil [The enshrouded one] 73/20__: [Surely your Lord knows that you ˹O Prophet˺ stand ˹in prayer˺ for nearly two-thirds of the night, or ˹sometimes˺ half of it, or a third, as do some of those with you. Allah ˹alone˺ keeps a ˹precise˺ measure of the day and night. He knows that you ˹believers˺ are unable to endure this, and has turned to you in mercy.1 So recite ˹in prayer˺ whatever you can from the Quran. He knows that some of you will be sick, some will be travelling throughout the land seeking Allah’s bounty, and some fighting in the cause of Allah. So recite whatever you can from it. And ˹continue to˺ perform ˹regular˺ prayers, pay alms-tax, and lend to Allah a good loan.2 Whatever good you send forth for yourselves, you will find it with Allah far better and more rewarding.3 And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/73/20)
+* __Surah Al-Muzzammil 73/20__: [۞ إِنَّ رَبَّكَ يَعْلَمُ أَنَّكَ تَقُومُ أَدْنَىٰ مِن ثُلُثَىِ ٱلَّيْلِ وَنِصْفَهُۥ وَثُلُثَهُۥ وَطَآئِفَةٌۭ مِّنَ ٱلَّذِينَ مَعَكَ ۚ وَٱللَّهُ يُقَدِّرُ ٱلَّيْلَ وَٱلنَّهَارَ ۚ عَلِمَ أَن لَّن تُحْصُوهُ فَتَابَ عَلَيْكُمْ ۖ فَٱقْرَءُوا۟ مَا تَيَسَّرَ مِنَ ٱلْقُرْءَانِ ۚ عَلِمَ أَن سَيَكُونُ مِنكُم مَّرْضَىٰ ۙ وَءَاخَرُونَ يَضْرِبُونَ فِى ٱلْأَرْضِ يَبْتَغُونَ مِن فَضْلِ ٱللَّهِ ۙ وَءَاخَرُونَ يُقَـٰتِلُونَ فِى سَبِيلِ ٱللَّهِ ۖ فَٱقْرَءُوا۟ مَا تَيَسَّرَ مِنْهُ ۚ وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَأَقْرِضُوا۟ ٱللَّهَ قَرْضًا حَسَنًۭا ۚ وَمَا تُقَدِّمُوا۟ لِأَنفُسِكُم مِّنْ خَيْرٍۢ تَجِدُوهُ عِندَ ٱللَّهِ هُوَ خَيْرًۭا وَأَعْظَمَ أَجْرًۭا ۚ وَٱسْتَغْفِرُوا۟ ٱللَّهَ ۖ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌۢ](https://quranwbw.com/73/20)
 
 ***
 

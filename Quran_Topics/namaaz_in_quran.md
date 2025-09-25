@@ -117,24 +117,24 @@
 
 ## Surah Al-Baqarah (2)
 
-* __Surah Al-Baqarah 2/3__: [who believe in the unseen,1 establish prayer, and donate from what We have provided for them,](https://quranwbw.com/2/3)
+* __Surah Al-Baqarah 2/3__: [ٱلَّذِينَ يُؤْمِنُونَ بِٱلْغَيْبِ وَيُقِيمُونَ ٱلصَّلَوٰةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quranwbw.com/2/3)
 
-* __Surah Al-Baqarah 2/43__: [Establish prayer, pay alms-tax,1 and bow down with those who bow down.](https://quranwbw.com/2/43)
+* __Surah Al-Baqarah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quranwbw.com/2/43)
 
-* __Surah Al-Baqarah 2/45 (Burden EXCEPT on Humble)__: [And seek help through patience and prayer. Indeed, it is a burden except for the humble—](https://quranwbw.com/2/45)
+* __Surah Al-Baqarah 2/45 (Seek Help)__: [وَٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ وَإِنَّهَا لَكَبِيرَةٌ إِلَّا عَلَى ٱلْخَـٰشِعِينَ](https://quranwbw.com/2/45)
 
-* __Surah Al-Baqarah 2/83 (Covenant of Bani Israel)__: [And ˹remember˺ when We took a covenant from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.](https://quranwbw.com/2/83)
+* __Surah Al-Baqarah 2/83 (Covenant of Bani Israel)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَ بَنِىٓ إِسْرَٰٓءِيلَ لَا تَعْبُدُونَ إِلَّا ٱللَّهَ وَبِٱلْوَٰلِدَيْنِ إِحْسَانًۭا وَذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَقُولُوا۟ لِلنَّاسِ حُسْنًۭا وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ ثُمَّ تَوَلَّيْتُمْ إِلَّا قَلِيلًۭا مِّنكُمْ وَأَنتُم مُّعْرِضُونَ](https://quranwbw.com/2/83)
  
-* __Surah Al-Baqarah 2/110__: [Establish prayer, and pay alms-tax. Whatever good you send forth for yourselves, you will ˹certainly˺ find ˹its reward˺ with Allah. Surely Allah is All-Seeing of what you do.](https://quranwbw.com/2/110)
+* __Surah Al-Baqarah 2/110__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ ۚ وَمَا تُقَدِّمُوا۟ لِأَنفُسِكُم مِّنْ خَيْرٍۢ تَجِدُوهُ عِندَ ٱللَّهِ ۗ إِنَّ ٱللَّهَ بِمَا تَعْمَلُونَ بَصِيرٌۭ](https://quranwbw.com/2/110)
 
 #### COVENANT of Ibrahim and Ismail AS
-* __Surah Al-Baqarah 2/125__: [And ˹remember˺ when We made the Sacred House1 a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham2 as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
+* __Surah Al-Baqarah 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ](https://quranwbw.com/2/125)
 
-* __Surah Al-Baqarah 2/153 (Allah SWT is with Sabareen)__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
+* __Surah Al-Baqarah 2/153__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ إِنَّ ٱللَّهَ مَعَ ٱلصَّـٰبِرِينَ](https://quranwbw.com/2/153)
 
-* __Surah Al-Baqarah 2/157__: [They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided.](https://quranwbw.com/2/157)
+* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quranwbw.com/2/157)
 
-* __Surah Al-Baqarah 2/177 (${\color{red}Righteousness}$)__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
+* __Surah Al-Baqarah 2/177 (${\color{red}Righteousness}$)__: [۞ لَّيْسَ ٱلْبِرَّ أَن تُوَلُّوا۟ وُجُوهَكُمْ قِبَلَ ٱلْمَشْرِقِ وَٱلْمَغْرِبِ وَلَـٰكِنَّ ٱلْبِرَّ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَٱلْمَلَـٰٓئِكَةِ وَٱلْكِتَـٰبِ وَٱلنَّبِيِّـۧنَ وَءَاتَى ٱلْمَالَ عَلَىٰ حُبِّهِۦ ذَوِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينَ وَٱبْنَ ٱلسَّبِيلِ وَٱلسَّآئِلِينَ وَفِى ٱلرِّقَابِ وَأَقَامَ ٱلصَّلَوٰةَ وَءَاتَى ٱلزَّكَوٰةَ وَٱلْمُوفُونَ بِعَهْدِهِمْ إِذَا عَـٰهَدُوا۟ ۖ وَٱلصَّـٰبِرِينَ فِى ٱلْبَأْسَآءِ وَٱلضَّرَّآءِ وَحِينَ ٱلْبَأْسِ ۗ أُو۟لَـٰٓئِكَ ٱلَّذِينَ صَدَقُوا۟ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُتَّقُونَ](https://quranwbw.com/2/177)
 
 * __Surah Al-Baqarah 2/238 (${\color{red}Guard ~Strictly ~on ~Prayers ~- ~especially, ~ASR}$)__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quranwbw.com/2/238)
 

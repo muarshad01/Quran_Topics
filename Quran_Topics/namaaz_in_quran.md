@@ -356,7 +356,7 @@
 
 ***
 
-* __Surah Al-Bayyina [The Evidance] 98/5 (${\color{red}Sincere ~devotion}$)__: [even though they were only commanded to worship Allah ˹alone˺ with sincere devotion to Him in all uprightness, establish prayer, and pay alms-tax. That is the upright Way.](https://quranwbw.com/98/5)
+* __Surah Al-Bayyina 98/5 (${\color{red}Sincere ~Devotion}$)__: [وَمَآ أُمِرُوٓا۟ إِلَّا لِيَعْبُدُوا۟ ٱللَّهَ مُخْلِصِينَ لَهُ ٱلدِّينَ حُنَفَآءَ وَيُقِيمُوا۟ ٱلصَّلَوٰةَ وَيُؤْتُوا۟ ٱلزَّكَوٰةَ ۚ وَذَٰلِكَ دِينُ ٱلْقَيِّمَةِ](https://quranwbw.com/98/5)
 
 ***
 
@@ -365,6 +365,6 @@
   
 ***
 
-* __Surah Al-Kawthar 108/2__: [So pray and sacrifice to your Lord ˹alone˺.](https://quranwbw.com/108/2)
+* __Surah Al-Kawthar 108/2__: [فَصَلِّ لِرَبِّكَ وَٱنْحَرْ](https://quranwbw.com/108/2)
 
 ***

@@ -216,15 +216,15 @@
 
 ***
 
-* __Surah Ar-Rad [Thunder] 13/22 (${\color{red} Respond ~to ~Evil ~with ~Good}$)__: [And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure,1 establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:](https://quranwbw.com/13/22)
+* __Surah Ar-Rad 13/22 (${\color{red} Respond ~to ~Evil ~with ~Good}$)__: [وَٱلَّذِينَ صَبَرُوا۟ ٱبْتِغَآءَ وَجْهِ رَبِّهِمْ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَأَنفَقُوا۟ مِمَّا رَزَقْنَـٰهُمْ سِرًّۭا وَعَلَانِيَةًۭ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ أُو۟لَـٰٓئِكَ لَهُمْ عُقْبَى ٱلدَّارِ](https://quranwbw.com/13/22)
 
 ***
 
-* __Surah Ibrahim 14/31__: [Tell My believing servants to establish prayer and donate from what We have provided for them—openly and secretly—before the arrival of a Day in which there will be no ransom or friendly connections.](https://quranwbw.com/14/31)
+* __Surah Ibrahim 14/31__: [قُل لِّعِبَادِىَ ٱلَّذِينَ ءَامَنُوا۟ يُقِيمُوا۟ ٱلصَّلَوٰةَ وَيُنفِقُوا۟ مِمَّا رَزَقْنَـٰهُمْ سِرًّۭا وَعَلَانِيَةًۭ مِّن قَبْلِ أَن يَأْتِىَ يَوْمٌۭ لَّا بَيْعٌۭ فِيهِ وَلَا خِلَـٰلٌ](https://quranwbw.com/14/31)
 
-* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quranwbw.com/14/37)
+* __Surah Ibrahim 14/37__: [رَّبَّنَآ إِنِّىٓ أَسْكَنتُ مِن ذُرِّيَّتِى بِوَادٍ غَيْرِ ذِى زَرْعٍ عِندَ بَيْتِكَ ٱلْمُحَرَّمِ رَبَّنَا لِيُقِيمُوا۟ ٱلصَّلَوٰةَ فَٱجْعَلْ أَفْـِٔدَةًۭ مِّنَ ٱلنَّاسِ تَهْوِىٓ إِلَيْهِمْ وَٱرْزُقْهُم مِّنَ ٱلثَّمَرَٰتِ لَعَلَّهُمْ يَشْكُرُونَ](https://quranwbw.com/14/37)
 
-* __Surah Ibrahim 14/40__: [My Lord! Make me and those ˹believers˺ of my descendants keep up prayer. Our Lord! Accept my prayers.](https://quranwbw.com/14/40)
+* __Surah Ibrahim 14/40__: [رَبِّ ٱجْعَلْنِى مُقِيمَ ٱلصَّلَوٰةِ وَمِن ذُرِّيَّتِى ۚ رَبَّنَا وَتَقَبَّلْ دُعَآءِ](https://quranwbw.com/14/40)
 
 ***
 

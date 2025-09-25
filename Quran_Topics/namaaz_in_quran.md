@@ -318,15 +318,15 @@
 
 ***
 
-* __Surah Ash-Shura [The Consultation] 42/38 (${\color{red}Donate}$)__: [who respond to their Lord, establish prayer, conduct their affairs by mutual consultation, and donate from what We have provided for them](https://quranwbw.com/42/38)
+* __Surah Ash-Shura 42/38__: [وَٱلَّذِينَ ٱسْتَجَابُوا۟ لِرَبِّهِمْ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَأَمْرُهُمْ شُورَىٰ بَيْنَهُمْ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quranwbw.com/42/38)
 
 ***
 
-* __Surah Al-Mujadila [The Pleading Woman] 58/13__: [Are you afraid of spending in charity before your private consultations ˹with him˺? Since you are unable to do so, and Allah has turned to you in mercy, then ˹continue to˺ establish prayer, pay alms-tax, and obey Allah and His Messenger. And Allah is All-Aware of what you do.](https://quranwbw.com/58/13)
+* __Surah Al-Mujadila 58/13__: [ءَأَشْفَقْتُمْ أَن تُقَدِّمُوا۟ بَيْنَ يَدَىْ نَجْوَىٰكُمْ صَدَقَـٰتٍۢ ۚ فَإِذْ لَمْ تَفْعَلُوا۟ وَتَابَ ٱللَّهُ عَلَيْكُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَأَطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ ۚ وَٱللَّهُ خَبِيرٌۢ بِمَا تَعْمَلُونَ](https://quranwbw.com/58/13)
 
 ***
 
-* __Surah Al-Jumuah 62/10 (${\color{red}Remeber ~Allah ~-> ~successful}$)__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
+* __Surah Al-Jumuah 62/10 (${\color{red}Remeber ~Allah ~...~Successful}$)__: [فَإِذَا قُضِيَتِ ٱلصَّلَوٰةُ فَٱنتَشِرُوا۟ فِى ٱلْأَرْضِ وَٱبْتَغُوا۟ مِن فَضْلِ ٱللَّهِ وَٱذْكُرُوا۟ ٱللَّهَ كَثِيرًۭا لَّعَلَّكُمْ تُفْلِحُونَ](https://quranwbw.com/62/10)
 
 ***
 

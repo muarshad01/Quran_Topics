@@ -340,19 +340,19 @@
 
 ***
 
-* __Surah Al-Muddaththir [The Cloaked One] 74/43__: [They will reply, “We were not of those who prayed,](https://quranwbw.com/74/43)
+* __Surah Al-Muddaththir 74/43__: [قَالُوا۟ لَمْ نَكُ مِنَ ٱلْمُصَلِّينَ](https://quranwbw.com/74/43)
 
 ***
 
-* __Surah Al-Qiyamah [The Resurrection] 75/31__: [This denier neither believed nor prayed,](https://quranwbw.com/75/31)
+* __Surah Al-Qiyamah [The Resurrection] 75/31__: [فَلَا صَدَّقَ وَلَا صَلَّىٰ](https://quranwbw.com/75/31)
 
 ***
 
-* __Surah Al-Alaa [The most high] 87/15__: [remember the Name of their Lord, and pray.](https://quranwbw.com/87/15)
+* __Surah Al-Alaa [The most high] 87/15__: [وَذَكَرَ ٱسْمَ رَبِّهِۦ فَصَلَّىٰ](https://quranwbw.com/87/15)
 
 *** 
 
-* __Surah Al-Alaq [The Clot] 96/10__: [a servant ˹of Ours˺ from praying?1](https://quranwbw.com/96/10)
+* __Surah Al-Alaq 96/10__: [عَبْدًا إِذَا صَلَّىٰٓ](https://quranwbw.com/96/10)
 
 ***
 
@@ -360,11 +360,11 @@
 
 ***
 
-* __Surah Al-Maun [Almsgiving -  Small Kindnesses] 107/4__: [So woe to those ˹hypocrites˺ who pray](https://quranwbw.com/107/4)
-* __Surah Al-Maun [Almsgiving - Small Kindnesses] 107/5 (${\color{red}Unmindful ~of ~Prayers}$)__: [yet are unmindful of their prayers;](https://quranwbw.com/107/5)
+* __Surah Al-Maun 107/4__: [فَوَيْلٌۭ لِّلْمُصَلِّينَ](https://quran.com/107/4)
+* __Surah Al-Maun 107/5 (${\color{red}Unmindful ~of ~Prayers}$)__: [ٱلَّذِينَ هُمْ عَن صَلَاتِهِمْ سَاهُونَ](https://quran.com/107/5)
   
 ***
 
-* __Surah Al-Kawthar [Abundance] 108/2 (Pray and Sacrifice)__: [So pray and sacrifice to your Lord ˹alone˺.](https://quranwbw.com/108/2)
+* __Surah Al-Kawthar 108/2__: [So pray and sacrifice to your Lord ˹alone˺.](https://quranwbw.com/108/2)
 
 ***

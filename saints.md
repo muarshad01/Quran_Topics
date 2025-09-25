@@ -240,3 +240,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
       * Khurrum (Khalifa of Syed Sarfaraz A. Shah)
 
 ***
+
+## "Shah Shams Tabrez"
+* "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
+
+*** 

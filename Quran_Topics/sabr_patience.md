@@ -52,6 +52,8 @@ And so are Badr and Hunayn in the battle of existence.
 
 * __Surah Az-Zumar [The Groups] 39/9__: [[If you disbelieve, then ˹know that˺ Allah is truly not in need of you, nor does He approve of disbelief from His servants. But if you become grateful ˹through faith˺, He will appreciate that from you. No soul burdened with sin will bear the burden of another. Then to your Lord is your return, and He will inform you of what you used to do. He certainly knows best what is ˹hidden˺ in the heart.](https://quranwbw.com/39/7)]
 
+* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
+
 * __Surah Fussilat [Explained in Detail] 41/35 (Truly fortunate...)__: [But this cannot be attained except by those who are patient and who are truly fortunate.](https://quranwbw.com/41/35)
 
 * __Surah At-Tur 52/48 (Be patient with your Lord’s decree)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)

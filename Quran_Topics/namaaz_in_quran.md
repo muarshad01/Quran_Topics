@@ -136,17 +136,17 @@
 
 * __Surah Al-Baqarah 2/177 (${\color{red}Righteousness}$)__: [۞ لَّيْسَ ٱلْبِرَّ أَن تُوَلُّوا۟ وُجُوهَكُمْ قِبَلَ ٱلْمَشْرِقِ وَٱلْمَغْرِبِ وَلَـٰكِنَّ ٱلْبِرَّ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَٱلْمَلَـٰٓئِكَةِ وَٱلْكِتَـٰبِ وَٱلنَّبِيِّـۧنَ وَءَاتَى ٱلْمَالَ عَلَىٰ حُبِّهِۦ ذَوِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينَ وَٱبْنَ ٱلسَّبِيلِ وَٱلسَّآئِلِينَ وَفِى ٱلرِّقَابِ وَأَقَامَ ٱلصَّلَوٰةَ وَءَاتَى ٱلزَّكَوٰةَ وَٱلْمُوفُونَ بِعَهْدِهِمْ إِذَا عَـٰهَدُوا۟ ۖ وَٱلصَّـٰبِرِينَ فِى ٱلْبَأْسَآءِ وَٱلضَّرَّآءِ وَحِينَ ٱلْبَأْسِ ۗ أُو۟لَـٰٓئِكَ ٱلَّذِينَ صَدَقُوا۟ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُتَّقُونَ](https://quranwbw.com/2/177)
 
-* __Surah Al-Baqarah 2/238 (${\color{red}Guard ~Strictly ~on ~Prayers ~- ~especially, ~ASR}$)__: [Observe the ˹five obligatory˺ prayers—especially the middle prayer1—and stand in true devotion to Allah.](https://quranwbw.com/2/238)
+* __Surah Al-Baqarah 2/238 (${\color{red}Guard ~Strictly ~on ~Prayers ~- ~especially, ~ASR}$)__: [حَـٰفِظُوا۟ عَلَى ٱلصَّلَوَٰتِ وَٱلصَّلَوٰةِ ٱلْوُسْطَىٰ وَقُومُوا۟ لِلَّهِ قَـٰنِتِينَ](https://quranwbw.com/2/238)
 
-* __Surah Al-Baqarah 2/277__: [Indeed, those who believe, do good, establish prayer, and pay alms-tax will receive their reward from their Lord, and there will be no fear for them, nor will they grieve.](https://quranwbw.com/2/277)
-
-***
-
-* __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
+* __Surah Al-Baqarah 2/277__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَءَاتَوُا۟ ٱلزَّكَوٰةَ لَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quranwbw.com/2/277)
 
 ***
 
-* __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; ~Impure; ~Toilet; ~Fatayammamu}$)__: [O believers! Do not approach prayer while intoxicated1 until you are aware of what you say, nor in a state of ˹full˺ impurity2—unless you merely pass through ˹the mosque˺—until you have bathed. But if you are ill, on a journey, or have relieved yourselves, or been intimate with your wives and cannot find water, then purify yourselves with clean earth, wiping your faces and hands.3 And Allah is Ever-Pardoning, All-Forgiving.](https://quranwbw.com/4/43)
+* __Surah Al-Imran 3/39 (Yahya (John) AS)__: [فَنَادَتْهُ ٱلْمَلَـٰٓئِكَةُ وَهُوَ قَآئِمٌۭ يُصَلِّى فِى ٱلْمِحْرَابِ أَنَّ ٱللَّهَ يُبَشِّرُكَ بِيَحْيَىٰ مُصَدِّقًۢا بِكَلِمَةٍۢ مِّنَ ٱللَّهِ وَسَيِّدًۭا وَحَصُورًۭا وَنَبِيًّۭا مِّنَ ٱلصَّـٰلِحِينَ](https://quranwbw.com/3/39)
+
+***
+
+* __Surah An-Nisa Ayat 4/43 (${\color{red}Intoxicated; ~Impure; ~Toilet; ~Fatayammamu}$)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَقْرَبُوا۟ ٱلصَّلَوٰةَ وَأَنتُمْ سُكَـٰرَىٰ حَتَّىٰ تَعْلَمُوا۟ مَا تَقُولُونَ وَلَا جُنُبًا إِلَّا عَابِرِى سَبِيلٍ حَتَّىٰ تَغْتَسِلُوا۟ ۚ وَإِن كُنتُم مَّرْضَىٰٓ أَوْ عَلَىٰ سَفَرٍ أَوْ جَآءَ أَحَدٌۭ مِّنكُم مِّنَ ٱلْغَآئِطِ أَوْ لَـٰمَسْتُمُ ٱلنِّسَآءَ فَلَمْ تَجِدُوا۟ مَآءًۭ فَتَيَمَّمُوا۟ صَعِيدًۭا طَيِّبًۭا فَٱمْسَحُوا۟ بِوُجُوهِكُمْ وَأَيْدِيكُمْ ۗ إِنَّ ٱللَّهَ كَانَ عَفُوًّا غَفُورًا](https://quranwbw.com/4/43)
 
 * __Surah An-Nisa Ayat 4/77 (${(فَتِيلًا") ~[4:49, 4:77, 17:71] ~hair ~on ~a ~date ~seed}$)__: [Have you ˹O Prophet˺ not seen those who had been told, “Do not fight! Rather, establish prayer and pay alms-tax.”? Then once the order came to fight, a group of them feared those ˹hostile˺ people as Allah should be feared—or even more. They said, “Our Lord! Why have You ordered us to fight? If only You had delayed ˹the order for˺ us for a little while!” Say, ˹O Prophet,˺ “The enjoyment of this world is so little, whereas the Hereafter is far better for those mindful ˹of Allah˺. And none of you will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/77)
 
@@ -164,33 +164,31 @@
 
 * __Surah Al-Maidah 5/6 (${\color{red}Wudu}$)__: [O believers! When you rise up for prayer, wash your faces and your hands up to the elbows, wipe your heads, and wash your feet to the ankles. And if you are in a state of ˹full˺ impurity,1 then take a full bath. But if you are ill, on a journey, or have relieved yourselves, or have been intimate with your wives and cannot find water, then purify yourselves with clean earth by wiping your faces and hands.2 It is not Allah’s Will to burden you, but to purify you and complete His favour upon you, so perhaps you will be grateful.](https://quranwbw.com/5/6)
 
-* __Surah Al-Maidah 5/55__: [Your only guardians are Allah, His Messenger, and fellow believers—who establish prayer and pay alms-tax with humility.
-](https://quranwbw.com/5/55)
+* __Surah Al-Maidah 5/55__: [إِنَّمَا وَلِيُّكُمُ ٱللَّهُ وَرَسُولُهُۥ وَٱلَّذِينَ ءَامَنُوا۟ ٱلَّذِينَ يُقِيمُونَ ٱلصَّلَوٰةَ وَيُؤْتُونَ ٱلزَّكَوٰةَ وَهُمْ رَٰكِعُونَ](https://quranwbw.com/5/55)
 
-* __Surah Al-Maidah 5/58__: [When you call to prayer, they mock it in amusement. This is because they are a people without understanding.](https://quranwbw.com/5/58)
+* __Surah Al-Maidah 5/58__: [وَإِذَا نَادَيْتُمْ إِلَى ٱلصَّلَوٰةِ ٱتَّخَذُوهَا هُزُوًۭا وَلَعِبًۭا ۚ ذَٰلِكَ بِأَنَّهُمْ قَوْمٌۭ لَّا يَعْقِلُونَ](https://quranwbw.com/5/58)
 
-* __Surah Al-Maidah 5/91 (${\color{red}Intoxicants; ~Gambling}$)__: [Satan’s plan is to stir up hostility and hatred between you with intoxicants and gambling and to prevent you from remembering Allah and praying. Will you not then abstain?](https://quranwbw.com/5/91)
+* __Surah Al-Maidah 5/91 (${\color{red}Intoxicants; ~Gambling}$)__: [إِنَّمَا يُرِيدُ ٱلشَّيْطَـٰنُ أَن يُوقِعَ بَيْنَكُمُ ٱلْعَدَٰوَةَ وَٱلْبَغْضَآءَ فِى ٱلْخَمْرِ وَٱلْمَيْسِرِ وَيَصُدَّكُمْ عَن ذِكْرِ ٱللَّهِ وَعَنِ ٱلصَّلَوٰةِ ۖ فَهَلْ أَنتُم مُّنتَهُونَ](https://quranwbw.com/5/91)
 
 * __Surah Al-Maidah 5/106__: [O believers! When death approaches any of you, call upon two just Muslim men to witness as you make a bequest; otherwise, two non-Muslims if you are afflicted with death while on a journey.1 If you doubt ˹their testimony˺, keep them after prayer and let them testify under oath ˹saying˺, “By Allah! We would never sell our testimony for any price, even in favour of a close relative, nor withhold the testimony of Allah. Otherwise, we would surely be sinful.”](https://quranwbw.com/5/106)
 
 ***
 
-* __Surah Al-Anam 6/72__: [establish prayer, and be mindful of Him. To Him you will all be gathered together.](https://quranwbw.com/6/72)
+* __Surah Al-Anam 6/72__: [وَأَنْ أَقِيمُوا۟ ٱلصَّلَوٰةَ وَٱتَّقُوهُ ۚ وَهُوَ ٱلَّذِىٓ إِلَيْهِ تُحْشَرُونَ](https://quranwbw.com/6/72)
 
 * __Surah Al-Anam 6/92 (${\color{red}Guard ~prayers}$)__: [This is a blessed Book which We have revealed—confirming what came before it—so you may warn the Mother-of-Cities and everyone around it. Those who believe in the Hereafter ˹truly˺ believe in it and guard their prayers.](https://quranwbw.com/6/92)
 
-* __Surah Al-Anam 6/162__: [Say, “Surely my prayer, my sacrifice, my life, and my death are all for Allah—Lord of all worlds.](https://quranwbw.com/6/162)
+* __Surah Al-Anam 6/162__: [قُلْ إِنَّ صَلَاتِى وَنُسُكِى وَمَحْيَاىَ وَمَمَاتِى لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quranwbw.com/6/162)
 
 ***
 
-* __Surah Al-A’raf 170__: [As for those who firmly abide by the Scripture and establish prayer—surely We never discount the reward of those acting righteously.](https://quranwbw.com/7/170)
+* __Surah Al-A’raf 170__: [وَٱلَّذِينَ يُمَسِّكُونَ بِٱلْكِتَـٰبِ وَأَقَامُوا۟ ٱلصَّلَوٰةَ إِنَّا لَا نُضِيعُ أَجْرَ ٱلْمُصْلِحِينَ](https://quranwbw.com/7/170)
 
 ***
 
-* __Surah Al-Anfal 8/3__: [˹They are˺ those who establish prayer and donate from what We have provided for them.](https://quranwbw.com/8/3)
-  * ${\color{red}DONATE}$
+* __Surah Al-Anfal 8/3__: [ٱلَّذِينَ يُقِيمُونَ ٱلصَّلَوٰةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quranwbw.com/8/3)
 
-* __Surah Al-Anfal 8/35__: [Their prayer at the Sacred House was nothing but whistling and clapping. So taste the punishment for your disbelief.](https://quranwbw.com/8/35)
+* __Surah Al-Anfal 8/35__: [وَمَا كَانَ صَلَاتُهُمْ عِندَ ٱلْبَيْتِ إِلَّا مُكَآءًۭ وَتَصْدِيَةًۭ ۚ فَذُوقُوا۟ ٱلْعَذَابَ بِمَا كُنتُمْ تَكْفُرُونَ](https://quranwbw.com/8/35)
 
 ***
 
@@ -206,13 +204,13 @@
 
 ***
 
-* __Surah Yunus 10/87__: [We revealed to Moses and his brother, “Appoint houses for your people in Egypt. Turn these houses into places of worship, establish prayer, and give good news to the believers!”](https://quranwbw.com/10/87)
+* __Surah Yunus 10/87__: [وَأَوْحَيْنَآ إِلَىٰ مُوسَىٰ وَأَخِيهِ أَن تَبَوَّءَا لِقَوْمِكُمَا بِمِصْرَ بُيُوتًۭا وَٱجْعَلُوا۟ بُيُوتَكُمْ قِبْلَةًۭ وَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۗ وَبَشِّرِ ٱلْمُؤْمِنِينَ](https://quranwbw.com/10/87)
 
 ***
 
-* __Surah Hud 11/87 (${\color{red}Shuabi ~AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quranwbw.com/11/87)
+* __Surah Hud 11/87 (${\color{red}Shuabi ~AS}$)__: [قَالُوا۟ يَـٰشُعَيْبُ أَصَلَوٰتُكَ تَأْمُرُكَ أَن نَّتْرُكَ مَا يَعْبُدُ ءَابَآؤُنَآ أَوْ أَن نَّفْعَلَ فِىٓ أَمْوَٰلِنَا مَا نَشَـٰٓؤُا۟ ۖ إِنَّكَ لَأَنتَ ٱلْحَلِيمُ ٱلرَّشِيدُ](https://quranwbw.com/11/87)
 
-* __Surah Hud 11/114 (${\color{red}Good ~deeds ~wipe ~out ~evil ~deeds}$)__: [Establish prayer ˹O Prophet˺ at both ends of the day and in the early part of the night. Surely good deeds wipe out evil deeds. That is a reminder for the mindful.](https://quranwbw.com/11/114)
+* __Surah Hud 11/114__: [وَأَقِمِ ٱلصَّلَوٰةَ طَرَفَىِ ٱلنَّهَارِ وَزُلَفًۭا مِّنَ ٱلَّيْلِ ۚ إِنَّ ٱلْحَسَنَـٰتِ يُذْهِبْنَ ٱلسَّيِّـَٔاتِ ۚ ذَٰلِكَ ذِكْرَىٰ لِلذَّٰكِرِينَ](https://quranwbw.com/11/114)
 
 ***
 

@@ -104,6 +104,11 @@
 
 ***
 
+* __Surah Al-Ankabut 29/45 (وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ)__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quranwbw.com/29/45)
+
+
+***
+
 * __Surah Ar-Room 30/17-18 (Evening [Maghrib, Isha] and Morning; Afternoon & Noon)__: [(17) So glorify Allah in the evening and in the morning—(18) all praise is for Him in the heavens and the earth—as well as in the afternoon, and at noon.1 ](https://quranwbw.com/30/17-18)
 
 ***

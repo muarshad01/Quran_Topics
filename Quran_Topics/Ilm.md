@@ -7,6 +7,16 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
+### [The World Is a Snake – Shah Shams Tabrizi's Wisdom | ’دنیا ایک سانپ ہے'](https://www.youtube.com/watch?v=ohPcpxp0OHY)
+* "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
+* Rohani Ustad
+* Rohani Ustad gives you Ilm, which takes you close to Allah SWT.
+* Ilm jab milta hai...
+* Ilm jo-app-ko Rabb-Tallah kay qareeb lay-jai
+* Uss ilm ka hasool kitaboon say too mumkin nahi-hota
+
+***
+
 #### [Sahib-e-Ilm Ki Pehchan Kya Hai? | صاحب علم کی پہچان کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
 
 ***

@@ -270,19 +270,19 @@
 
 ***
 
-* __Surah Al-Mu’minun 23/2 (${\color{red}Humility}$)__: [ٱلَّذِينَ هُمْ فِى صَلَاتِهِمْ خَـٰشِعُونَ](https://quranwbw.com/23/2)
+* __Surah Al-Mu’minun 23/2 (${\color{red} Humility}$)__: [ٱلَّذِينَ هُمْ فِى صَلَاتِهِمْ خَـٰشِعُونَ](https://quranwbw.com/23/2)
 
 * __Surah Al-Mu’minun 23/9(${\color{red} Observant/Protector}$)__: [وَٱلَّذِينَ هُمْ عَلَىٰ صَلَوَٰتِهِمْ يُحَافِظُونَ](https://quranwbw.com/23/9)
 
 ***
 
-* __Surah An-Nur 24/37__: [by men who are not distracted—either by buying or selling—from Allah’s remembrance, or performing prayer, or paying alms-tax. They fear a Day when hearts and eyes will tremble,](https://quranwbw.com/24/37)
+* __Surah An-Nur 24/37__: [رِجَالٌۭ لَّا تُلْهِيهِمْ تِجَـٰرَةٌۭ وَلَا بَيْعٌ عَن ذِكْرِ ٱللَّهِ وَإِقَامِ ٱلصَّلَوٰةِ وَإِيتَآءِ ٱلزَّكَوٰةِ ۙ يَخَافُونَ يَوْمًۭا تَتَقَلَّبُ فِيهِ ٱلْقُلُوبُ وَٱلْأَبْصَـٰرُ](https://quranwbw.com/24/37)
 
-* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ ~knows ~their ~manner ~of ~prayer ~and ~glorification.; ~Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
+* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ ~knows ~their ~manner ~of ~Prayer ~and ~Glorification.; ~Birds.}$)__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quranwbw.com/24/41)
 
-* __Surah An-Nur 24/56__: [Moreover, establish prayer, pay alms-tax, and obey the Messenger, so you may be shown mercy.](https://quranwbw.com/24/56)
+* __Surah An-Nur 24/56__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَأَطِيعُوا۟ ٱلرَّسُولَ لَعَلَّكُمْ تُرْحَمُونَ](https://quranwbw.com/24/56)
 
-* __Surah An-Nur 24/58 ($\color{red}THREE ~Times ~of ~Permission/Privacy$)__: [O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at THREE TIMES: before dawn prayer, when you take off your ˹outer˺ clothes at noon, and after the late evening prayer. ˹These are˺ three times of privacy for you. Other than these times, there is no blame on you or them to move freely, attending to one another. This is how Allah makes the revelations clear to you, for Allah is All-Knowing, All-Wise.](https://quranwbw.com/24/58)
+* __Surah An-Nur 24/58 ($\color{red}Three ~Times ~of ~Permission/Privacy$)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لِيَسْتَـْٔذِنكُمُ ٱلَّذِينَ مَلَكَتْ أَيْمَـٰنُكُمْ وَٱلَّذِينَ لَمْ يَبْلُغُوا۟ ٱلْحُلُمَ مِنكُمْ ثَلَـٰثَ مَرَّٰتٍۢ ۚ مِّن قَبْلِ صَلَوٰةِ ٱلْفَجْرِ وَحِينَ تَضَعُونَ ثِيَابَكُم مِّنَ ٱلظَّهِيرَةِ وَمِنۢ بَعْدِ صَلَوٰةِ ٱلْعِشَآءِ ۚ ثَلَـٰثُ عَوْرَٰتٍۢ لَّكُمْ ۚ لَيْسَ عَلَيْكُمْ وَلَا عَلَيْهِمْ جُنَاحٌۢ بَعْدَهُنَّ ۚ طَوَّٰفُونَ عَلَيْكُم بَعْضُكُمْ عَلَىٰ بَعْضٍۢ ۚ كَذَٰلِكَ يُبَيِّنُ ٱللَّهُ لَكُمُ ٱلْـَٔايَـٰتِ ۗ وَٱللَّهُ عَلِيمٌ حَكِيمٌۭ](https://quranwbw.com/24/58)
 
 ***
 

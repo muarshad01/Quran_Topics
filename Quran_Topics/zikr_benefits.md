@@ -131,6 +131,11 @@
 
 ***
 
+* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
+
+
+***
+
 ### Devil as a Close Associate
 * __Surah Az-Zukhruf [Ornaments of Gold] 43/36-38__: [(36) And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate, (37) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (38) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/36-38)
 

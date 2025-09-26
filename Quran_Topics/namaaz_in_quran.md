@@ -1,6 +1,5 @@
 #### [Sadjah Sahoo](https://www.youtube.com/shorts/xwem1gEiG1g)
 
-
 ***
 
 #### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
@@ -36,7 +35,7 @@
 * Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
 * Sit respectfully in a grouping...
 * Good Chararacter
-* __Surah Al-Baqara 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
+* __Surah Al-Baqara 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ](https://quranwbw.com/2/125)
 
 ***
 
@@ -49,8 +48,8 @@
 
 ***
 
-#### [Baroz Itwar Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
-* Yeh Rohaniat mayn bohot-tezi say aadmi ko agay lay-jaadi-hai
+#### [Baroz Itwar Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
+* Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai
 * Insaan kay dil say dunya-ki-mohabbat nikalnay lagti-hai
 * Rabb-par-Taqwa bharnay lagta-hai
 * Bala-ka-bharoosa paidao-hota-hai iss say Rabb-Tallah par
@@ -68,24 +67,37 @@
 ***
 
 #### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)
-* __Surah Al-ANkabut 29/45 (Tanhaa anil fahshaaa'i wal-munkar)__: [Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.](https://quranwbw.com/29/45)
+* __Surah Al-ANkabut 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quranwbw.com/29/45)
   * Deter from Indecency and Wickedness - Things having limits set-up by Allah SWT.
   * There is some issue with our `Nayat-and-Ikhlas`
   * Self-monitoring (Tazkia) need to be done...
 
 ***
 
-## Special Nafals
-* [Importance of Namaz e Jumu’ah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
-  * Zawaal time:  
-* [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
-* [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
-* [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
-* [Jummah Ke Din Ki Ahmiyat (Ilm Ki Baarish) | SSA Shah](https://www.youtube.com/watch?v=iHTNHcZc-CI)
-* __Surah Al-Israa (${Fatahajjad; Maqaamam Mahmoodaa}$)__: [And rise at ˹the last˺ part of the night, offering additional prayers, so your Lord may raise you to a station of praise.](https://quranwbw.com/17/79)
+#### [Importance of Namaz e Jumu’ah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
+* Zawaal time:  
+
+***
+
+#### [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
+
+***
+
+#### [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+
+***
+
+#### [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
+
+***
+
+#### [Jummah Ke Din Ki Ahmiyat (Ilm Ki Baarish) | SSA Shah](https://www.youtube.com/watch?v=iHTNHcZc-CI)
+* __Surah Al-Israa__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quranwbw.com/17/79)
+
+***
 
 #### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
-* __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ ~knows ~their ~manner ~of ~prayer ~and ~glorification.; ~Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
+* __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quranwbw.com/24/41)
 
 ***
 

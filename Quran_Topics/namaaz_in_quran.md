@@ -114,8 +114,8 @@
 ***
 
 ## Hadith
-* `Namaz momin ki Miraj Hai` - Hadith
-* `Momin aur kafir mayn faraq karnay wali cheez Namaz hai.` - Hadith
+* `Namaz momin-ki-Miraj Hai` - Hadith
+* `Momin-aur-kafir mayn faraq-karnay wali-cheez Namaz hai.` - Hadith
 
 ***
 

@@ -6,6 +6,13 @@
 
 ***
 
+### [Sarfaraz Shah's Big Prediction Proved True | Pak-Saudi Defence Deal | PM Shehbaz Sharif | Economy](https://www.youtube.com/watch?v=UNG_jo5bax8)
+* Rabb iss mulk ko teekh kar rahai hai
+* Chanay koi bhi hukumran hoo
+* 2 to 2.5 years
+
+***
+
 ### [Noor-e-Sehar with Syed Sarfraz Ahmad Shah Sahab | 20 September 2025 on Channel 24 Part 1](https://www.youtube.com/watch?v=I-_fq2wnsUg)
 * In the next war, forseeable future, India with be defeated such that it will take 50 years to recover.
 * We're not so weak, Bani Israel attack us...it will start their own downfall.

@@ -74,7 +74,7 @@
 
 ***
 
-#### [Importance of Namaz e Jumu’ah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
+#### [Importance of Namaz-e-Jumah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
 * Zawaal time:  
 
 ***

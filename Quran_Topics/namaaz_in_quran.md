@@ -226,28 +226,28 @@
 
 ***
 
-* __Surah Al-Isra Ayat 17/78__: [Observe the prayer from the decline of the sun until the darkness of the night and the dawn prayer, for certainly the dawn prayer is witnessed ˹by angels˺.1](https://quran.com/17/78)
+* __Surah Al-Isra Ayat 17/78__: [أَقِمِ ٱلصَّلَوٰةَ لِدُلُوكِ ٱلشَّمْسِ إِلَىٰ غَسَقِ ٱلَّيْلِ وَقُرْءَانَ ٱلْفَجْرِ ۖ إِنَّ قُرْءَانَ ٱلْفَجْرِ كَانَ مَشْهُودًۭا](https://quran.com/17/78)
   * ${ANGELS ~are ~WITNESS ~at ~FAJR ~Ibadah}$
 
-* __Surah Al-Isra Ayat 17/110__: [Say, ˹O Prophet,˺ “Call upon Allah or call upon the Most Compassionate—whichever you call, He has the Most Beautiful Names.” Do not recite your prayers too loudly or silently, but seek a way between.](https://quran.com/17/110)
+* __Surah Al-Isra Ayat 17/110__: [قُلِ ٱدْعُوا۟ ٱللَّهَ أَوِ ٱدْعُوا۟ ٱلرَّحْمَـٰنَ ۖ أَيًّۭا مَّا تَدْعُوا۟ فَلَهُ ٱلْأَسْمَآءُ ٱلْحُسْنَىٰ ۚ وَلَا تَجْهَرْ بِصَلَاتِكَ وَلَا تُخَافِتْ بِهَا وَٱبْتَغِ بَيْنَ ذَٰلِكَ سَبِيلًۭا](https://quran.com/17/110)
 
 ***
 
-* __Surah Maryam 19/31__: [He has made me a blessing wherever I go, and bid me to establish prayer and give alms-tax as long as I live,](https://quranwbw.com/19/31)
+* __Surah Maryam 19/31__: [وَجَعَلَنِى مُبَارَكًا أَيْنَ مَا كُنتُ وَأَوْصَـٰنِى بِٱلصَّلَوٰةِ وَٱلزَّكَوٰةِ مَا دُمْتُ حَيًّۭا](https://quranwbw.com/19/31)
 
-* __Surah Maryam 19/55 (${\color{red}Order, Enjoin, Urge ~your ~Family ~to ~Pray}$)__: [He used to urge his people to pray and give alms-tax. And his Lord was well pleased with him.](https://quranwbw.com/19/55)
+* __Surah Maryam 19/55__: [وَكَانَ يَأْمُرُ أَهْلَهُۥ بِٱلصَّلَوٰةِ وَٱلزَّكَوٰةِ وَكَانَ عِندَ رَبِّهِۦ مَرْضِيًّۭا](https://quranwbw.com/19/55)
 
-* __Surah Maryam 19/59__: [But they were succeeded by generations who neglected prayer and followed their lusts and so will soon face the evil consequences.1](https://quranwbw.com/19/59)
-
-***
-
-* __Surah Ta-Ha 20/14 (${\color{red}Rememberance}$)__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
-
-* __Surah Ta-Ha 20/132 (${\color{red}Order/Enjoin/Urge ~your ~Family ~to ~Pray}$)__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quranwbw.com/20/132)
+* __Surah Maryam 19/59__: [۞ فَخَلَفَ مِنۢ بَعْدِهِمْ خَلْفٌ أَضَاعُوا۟ ٱلصَّلَوٰةَ وَٱتَّبَعُوا۟ ٱلشَّهَوَٰتِ ۖ فَسَوْفَ يَلْقَوْنَ غَيًّا](https://quranwbw.com/19/59)
 
 ***
 
-* __Surah Al-Anbiya Ayat 21/73 (${\color{red}We ~made ~them ~Leaders}$)__: [We ˹also˺ made them leaders, guiding by Our command, and inspired them to do good deeds, establish prayer, and pay alms-tax. And they were devoted to Our worship.](https://quranwbw.com/21/73)
+* __Surah Ta-Ha 20/14__: [إِنَّنِىٓ أَنَا ٱللَّهُ لَآ إِلَـٰهَ إِلَّآ أَنَا۠ فَٱعْبُدْنِى وَأَقِمِ ٱلصَّلَوٰةَ لِذِكْرِىٓ](https://quranwbw.com/20/14)
+
+* __Surah Ta-Ha 20/132__: [وَأْمُرْ أَهْلَكَ بِٱلصَّلَوٰةِ وَٱصْطَبِرْ عَلَيْهَا ۖ لَا نَسْـَٔلُكَ رِزْقًۭا ۖ نَّحْنُ نَرْزُقُكَ ۗ وَٱلْعَـٰقِبَةُ لِلتَّقْوَىٰ](https://quranwbw.com/20/132)
+
+***
+
+* __Surah Al-Anbiya Ayat 21/73__: [وَجَعَلْنَـٰهُمْ أَئِمَّةًۭ يَهْدُونَ بِأَمْرِنَا وَأَوْحَيْنَآ إِلَيْهِمْ فِعْلَ ٱلْخَيْرَٰتِ وَإِقَامَ ٱلصَّلَوٰةِ وَإِيتَآءَ ٱلزَّكَوٰةِ ۖ وَكَانُوا۟ لَنَا عَـٰبِدِينَ](https://quranwbw.com/21/73)
 
 ***
 

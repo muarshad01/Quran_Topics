@@ -170,3 +170,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 2. Surah An-Nas
 
 ***
+
+## [Remove Nazr (evil eye) through Fitkari, whole black peppers or whole dried red chilies 🌶️ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8evp-q-qHx8)
+
+***

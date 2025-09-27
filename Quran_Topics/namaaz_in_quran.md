@@ -204,15 +204,15 @@
 
 ***
 
-* __Surah At-Taubah 9/5 (${\color{red}Wa-jattumoohum ~Wa-khuzoohum ~Wa-hsuroohum ~waqudoo ~lahum ~kulla ~marsad}$)__: [But once the Sacred Months have passed, kill the polytheists ˹who violated their treaties˺ wherever you find them, capture them, besiege them, and lie in wait for them on every way. But if they repent, perform prayers, and pay alms-tax, then set them free. Indeed, Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/9/5)
+* __Surah At-Taubah 9/5__: [فَإِذَا ٱنسَلَخَ ٱلْأَشْهُرُ ٱلْحُرُمُ فَٱقْتُلُوا۟ ٱلْمُشْرِكِينَ حَيْثُ وَجَدتُّمُوهُمْ وَخُذُوهُمْ وَٱحْصُرُوهُمْ وَٱقْعُدُوا۟ لَهُمْ كُلَّ مَرْصَدٍۢ ۚ فَإِن تَابُوا۟ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَءَاتَوُا۟ ٱلزَّكَوٰةَ فَخَلُّوا۟ سَبِيلَهُمْ ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/9/5)
 
-* __Surah At-Taubah 9/11__: [But if they repent, perform prayer, and pay alms-tax, then they are your brothers in faith. This is how We make the revelations clear for people of knowledge.](https://quranwbw.com/9/11)
+* __Surah At-Taubah 9/11__: [فَإِن تَابُوا۟ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَءَاتَوُا۟ ٱلزَّكَوٰةَ فَإِخْوَٰنُكُمْ فِى ٱلدِّينِ ۗ وَنُفَصِّلُ ٱلْـَٔايَـٰتِ لِقَوْمٍۢ يَعْلَمُونَ](https://quranwbw.com/9/11)
 
-* __Surah At-Taubah 9/18 (${\color{red}Truly ~Guided}$)__: [The mosques of Allah should only be maintained by those who believe in Allah and the Last Day, establish prayer, pay alms-tax, and fear none but Allah. It is right to hope that they will be among the ˹truly˺ guided.](https://quranwbw.com/9/18)
+* __Surah At-Taubah 9/18__: [إِنَّمَا يَعْمُرُ مَسَـٰجِدَ ٱللَّهِ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَأَقَامَ ٱلصَّلَوٰةَ وَءَاتَى ٱلزَّكَوٰةَ وَلَمْ يَخْشَ إِلَّا ٱللَّهَ ۖ فَعَسَىٰٓ أُو۟لَـٰٓئِكَ أَن يَكُونُوا۟ مِنَ ٱلْمُهْتَدِينَ](https://quranwbw.com/9/18)
 
-* __Surah At-Taubah 9/54__: [And what prevented their donations from being accepted is that they have lost faith in Allah and His Messenger, they never come to prayer except half-heartedly, and they never donate except resentfully.](https://quranwbw.com/9/54)
+* __Surah At-Taubah 9/54__: [وَمَا مَنَعَهُمْ أَن تُقْبَلَ مِنْهُمْ نَفَقَـٰتُهُمْ إِلَّآ أَنَّهُمْ كَفَرُوا۟ بِٱللَّهِ وَبِرَسُولِهِۦ وَلَا يَأْتُونَ ٱلصَّلَوٰةَ إِلَّا وَهُمْ كُسَالَىٰ وَلَا يُنفِقُونَ إِلَّا وَهُمْ كَـٰرِهُونَ](https://quranwbw.com/9/54)
 
-* __Surah At-Taubah 9/71__: [The believers, both men and women, are guardians of one another. They encourage good and forbid evil, establish prayer and pay alms-tax, and obey Allah and His Messenger. It is they who will be shown Allah’s mercy. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/9/71)
+* __Surah At-Taubah 9/71__: [وَٱلْمُؤْمِنُونَ وَٱلْمُؤْمِنَـٰتُ بَعْضُهُمْ أَوْلِيَآءُ بَعْضٍۢ ۚ يَأْمُرُونَ بِٱلْمَعْرُوفِ وَيَنْهَوْنَ عَنِ ٱلْمُنكَرِ وَيُقِيمُونَ ٱلصَّلَوٰةَ وَيُؤْتُونَ ٱلزَّكَوٰةَ وَيُطِيعُونَ ٱللَّهَ وَرَسُولَهُۥٓ ۚ أُو۟لَـٰٓئِكَ سَيَرْحَمُهُمُ ٱللَّهُ ۗ إِنَّ ٱللَّهَ عَزِيزٌ حَكِيمٌۭ](https://quranwbw.com/9/71)
 
 ***
 
@@ -263,20 +263,20 @@
 
 ***
 
-* __Surah Al-Hajj 22/25__: [Indeed, those who persist in disbelief and hinder ˹others˺ from the Way of Allah and from the Sacred Mosque1—which We have appointed for all people, residents and visitors alike—along with whoever intends to deviate by doing wrong in it,2 We will cause them to taste a painful punishment.](https://quranwbw.com/22/25)
+* __Surah Al-Hajj 22/25__: [إِنَّ ٱلَّذِينَ كَفَرُوا۟ وَيَصُدُّونَ عَن سَبِيلِ ٱللَّهِ وَٱلْمَسْجِدِ ٱلْحَرَامِ ٱلَّذِى جَعَلْنَـٰهُ لِلنَّاسِ سَوَآءً ٱلْعَـٰكِفُ فِيهِ وَٱلْبَادِ ۚ وَمَن يُرِدْ فِيهِ بِإِلْحَادٍۭ بِظُلْمٍۢ نُّذِقْهُ مِنْ عَذَابٍ أَلِيمٍۢ](https://quranwbw.com/22/25)
 
-* __Surah Al-Hajj 22/35 (${\color{red}Heats ~tremble ~at ~the ~remembarancde ~of ~Allah}$)__: [those whose hearts tremble at the remembrance of Allah, who patiently endure whatever may befall them, and who establish prayer and donate from what We have provided for them.](https://quranwbw.com/22/35)
+* __Surah Al-Hajj 22/35__: [ٱلَّذِينَ إِذَا ذُكِرَ ٱللَّهُ وَجِلَتْ قُلُوبُهُمْ وَٱلصَّـٰبِرِينَ عَلَىٰ مَآ أَصَابَهُمْ وَٱلْمُقِيمِى ٱلصَّلَوٰةِ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quranwbw.com/22/35)
 
-* __Surah Al-Hajj 22/40 (${\color{red}monasteries, ~churches, ~synagogues, ~and ~mosques}$)__: [˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.](https://quranwbw.com/22/40)
+* __Surah Al-Hajj 22/40__: [ٱلَّذِينَ أُخْرِجُوا۟ مِن دِيَـٰرِهِم بِغَيْرِ حَقٍّ إِلَّآ أَن يَقُولُوا۟ رَبُّنَا ٱللَّهُ ۗ وَلَوْلَا دَفْعُ ٱللَّهِ ٱلنَّاسَ بَعْضَهُم بِبَعْضٍۢ لَّهُدِّمَتْ صَوَٰمِعُ وَبِيَعٌۭ وَصَلَوَٰتٌۭ وَمَسَـٰجِدُ يُذْكَرُ فِيهَا ٱسْمُ ٱللَّهِ كَثِيرًۭا ۗ وَلَيَنصُرَنَّ ٱللَّهُ مَن يَنصُرُهُۥٓ ۗ إِنَّ ٱللَّهَ لَقَوِىٌّ عَزِيزٌ](https://quranwbw.com/22/40)
 * Monasteries, ~churches, ~synagogues, ~and ~mosques (صَوَٰمِعُ وَبِيَعٞ وَصَلَوَٰتٞ وَمَسَٰجِدُ)
   * Monasteries - a building or buildings occupied by a community of monks living under religious vows.
   * Churches - a Christian place of worship.
   * Synagogues - a Jewish place of worship
   * Mosques - a Muslim place of worship.
 
-* __Surah Al-Hajj 22/41__: [˹They are˺ those who, if established in the land by Us, would perform prayer, pay alms-tax, encourage what is good, and forbid what is evil. And with Allah rests the outcome of all affairs.](https://quranwbw.com/22/41)
+* __Surah Al-Hajj 22/41__: [ٱلَّذِينَ إِن مَّكَّنَّـٰهُمْ فِى ٱلْأَرْضِ أَقَامُوا۟ ٱلصَّلَوٰةَ وَءَاتَوُا۟ ٱلزَّكَوٰةَ وَأَمَرُوا۟ بِٱلْمَعْرُوفِ وَنَهَوْا۟ عَنِ ٱلْمُنكَرِ ۗ وَلِلَّهِ عَـٰقِبَةُ ٱلْأُمُورِ](https://quranwbw.com/22/41)
 
-* __Surah Al-Hajj 22/78 (${\color{red}EXCELLEND ~Guardian ~and ~EXCELLENT ~Helper}$)__: [Strive for ˹the cause of˺ Allah in the way He deserves, for ˹it is˺ He ˹Who˺ has chosen you, and laid upon you no hardship in the religion—the way of your forefather Abraham. ˹It is Allah˺ Who named you ‘the ones who submit’1 ˹in the˺ earlier ˹Scriptures˺ and in this ˹Quran˺, so that the Messenger may be a witness over you, and that you may be witnesses over humanity. So establish prayer, pay alms-tax, and hold fast to Allah. He ˹alone˺ is your Guardian. What an excellent Guardian, and what an excellent Helper!](https://quranwbw.com/22/78)
+* __Surah Al-Hajj 22/78 (${\color{red}EXCELLENT ~Guardian ~and ~EXCELLENT ~Helper}$)__: [وَجَـٰهِدُوا۟ فِى ٱللَّهِ حَقَّ جِهَادِهِۦ ۚ هُوَ ٱجْتَبَىٰكُمْ وَمَا جَعَلَ عَلَيْكُمْ فِى ٱلدِّينِ مِنْ حَرَجٍۢ ۚ مِّلَّةَ أَبِيكُمْ إِبْرَٰهِيمَ ۚ هُوَ سَمَّىٰكُمُ ٱلْمُسْلِمِينَ مِن قَبْلُ وَفِى هَـٰذَا لِيَكُونَ ٱلرَّسُولُ شَهِيدًا عَلَيْكُمْ وَتَكُونُوا۟ شُهَدَآءَ عَلَى ٱلنَّاسِ ۚ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱعْتَصِمُوا۟ بِٱللَّهِ هُوَ مَوْلَىٰكُمْ ۖ فَنِعْمَ ٱلْمَوْلَىٰ وَنِعْمَ ٱلنَّصِيرُ](https://quranwbw.com/22/78)
 
 ***
 

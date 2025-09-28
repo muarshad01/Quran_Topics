@@ -2,6 +2,10 @@
 
 ***
 
+### [How a Faqeer Defines Ungratefulness? | SSA Shah](https://www.youtube.com/watch?v=vRwTQb4O7Z4)
+
+***
+
 ### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
 * __Surah 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
 * Ah Allah mayn terey shukar ka haqq ada hi nahi kar sakta

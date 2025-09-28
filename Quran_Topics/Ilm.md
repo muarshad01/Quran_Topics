@@ -156,3 +156,5 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 ### [Knowledge of Unseen, Gayb ka ilm | Professor ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
 
 ***
+
+### [Asif ibn Barkhiya ka Fehm-e-Quran aur Ilm Ludni | Professor ARA](https://www.youtube.com/watch?v=9vDQYg-B664)

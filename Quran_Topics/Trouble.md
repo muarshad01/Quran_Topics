@@ -2,6 +2,10 @@
 
 ***
 
+### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
+
+***
+
 ### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
 
 ***

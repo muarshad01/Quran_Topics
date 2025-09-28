@@ -7,6 +7,10 @@
 
 ***
 
+#### [Nafs Par Qabu Kaise Paya Jaye | SSA Shah](https://www.youtube.com/shorts/l6GMtV5vzL0)
+
+***
+
 #### [How to Connect with Your Divine Self? | ہم نفس رحمانی تک کیسے پہنچیں گے؟](https://www.youtube.com/watch?v=pxcnRAoliso)
 * Hum apnay La-shaoor ko puri tarah say apni jibalat kay maa-tahat kar dayn.
 * Aur Jabilat ko hum train kar layn aikhamat-e-ilahi kay tehat

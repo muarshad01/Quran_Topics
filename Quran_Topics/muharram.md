@@ -185,3 +185,7 @@
 ***
 
 #### [Imam Hussain and Battle of Karbala | Professor ARA](https://www.youtube.com/watch?v=OTU3Zy83sho)
+
+#### [Hussain sey Ishq and Battle of Karbala| Professor ARA](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
+
+***

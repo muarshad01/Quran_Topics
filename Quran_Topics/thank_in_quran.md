@@ -13,15 +13,15 @@
 
 ### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
 * __Surah 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
-* Ah Allah mayn terey shukar ka haqq ada hi nahi kar sakta
-* Tongue: Jis zaban say Alhamadulillah kehta hoon, wo zaban bhi tu nay ata ki hai
-* Jis mathay ko zameen pay tekhta hoon, woh matha bhi tu nay hi ata kiya hai
-* Jis zameen par tekta hoon, who zameen bhi tu nay paida ki hai
-* Eyes: Jin ankhoon say ansoo bahata hoon, woh ansoo bhi tu nay ata kayay hayn
-* Aankhayn bhi teri hayn
-* Dawood ka apna kuch bhi nahi kay jis baat par mayn shukar ada karon
-* O Dawd, yeah tera itaraaf hai joo, yehi shukar hai jis par tu nay haqq ada kar diya.
-* Shukar kay alfaz bhi tu nay hi shikai.
+* Ah Allah mayn terey-shukar ka-haqq ada-hi-nahi kar-sakta
+* Tongue: Jis-zaban-say Alhamadulillah kehta-hoon, wo-zaban-bhi Tu-nay ata-ki-hai
+* Jis-mathay-ko zameen-pay tekhta-hoon, woh matha-bhi Tu-nay-hi ataa kiya-hai
+* Jis-zameen par tekta-hoon, who-zameen bhi Tu-nay paida ki-hai
+* Eyes: Jin-ankhoon say ansoo-bahata-hoon, woh-ansoo-bhi Tu-nay ataa kayay-hayn
+  * Aankhayn bhi Teri-hayn
+* Dawood-ka apna kuch-bhi-nahi kay jis-baat-par mayn-shukar-ada-karon
+* O Dawd, yeah Tera-itaraaf hai-joo, yehi-shukar-hai, jis par tu-nay haqq-ada kar-diya.
+* Shukar-kay-alfaz bhi Tu-nay hi-shikai.
 
 ***
 
@@ -31,7 +31,7 @@
 
 ***
 
-### Tumhara Aur Rabb Ka Rishta Sirf Shukar Ka Hai
+### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
 * __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quranwbw.com/76/3)
 * __Surah Al-Insan 76/1-3__: [Is there not a period of time when each human is nothing yet worth mentioning?](https://quranwbw.com/76/1-3)
 
@@ -161,6 +161,5 @@
 ***
 
 * __Surah Al-Mulk 67/23__: [Say, ˹O Prophet,˺ “He is the One Who brought you into being and gave you hearing, sight, and intellect. ˹Yet˺ you hardly give any thanks.”](https://quranwbw.com/67/23)
-
 
 *** 

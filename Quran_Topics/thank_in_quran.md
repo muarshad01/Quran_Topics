@@ -3,7 +3,7 @@
 * Jo kuch merey paas hai...wo mera nahi...merey Rabb ka ataa karda-hai
 * Jo kuch merey pass hai...uss par mera sirf itna haqq-hai...mayn iss say apni-aur-apnay khandaan-ki jaiz zarooriat puri-kar-loon
 * Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron ka-hai
-* Yehi Faqeer Ka, andaaz-e-izhaar-e-tashakar hai.
+* __Yehi Faqeer Ka, andaaz-e-izhaar-e-tashakar hai.__
 
 ***
 

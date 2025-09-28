@@ -63,7 +63,7 @@
 ***
 
 #### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
-
+* Iss-namaz-ko ada-karnay-wala, Allah kay behaad-qareeb ho jaata-hai
 ***
 
 #### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)

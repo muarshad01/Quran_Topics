@@ -1,5 +1,7 @@
 #### [Momin Ki Tareef Baqool Hazrat Ali R.A? | SSA Shah](https://www.youtube.com/watch?v=SjmAX2IYERw)
-
+* Jisay na kuch panay ki khushi na kuch khonay ka gham ho.
+* Bharosa versus Tawakkal
+* 
 ***
 
 #### [Iman aur Amal Salah | Talib Johri](https://www.youtube.com/shorts/gegGWszMtY0)

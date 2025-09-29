@@ -9,6 +9,8 @@
 ***
 
 #### [Kamil Momin - Hadith](https://www.youtube.com/shorts/b845Tr17NTk)
+* Jo sab say betharin Ikhlaq wala hoo.
+* Jo Ikhlaq mayn apni aurtoon kay haqq mayn bhetar hoo.
 
 ***
 

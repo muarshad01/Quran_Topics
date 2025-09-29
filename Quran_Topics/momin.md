@@ -1,3 +1,7 @@
+* https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/
+
+*** 
+
 #### [Momin Ki Tareef Baqool Hazrat Ali R.A? | SSA Shah](https://www.youtube.com/watch?v=SjmAX2IYERw)
 * Jisay na kuch panay ki khushi na kuch khonay ka gham ho.
 * Bharosa versus Tawakkal

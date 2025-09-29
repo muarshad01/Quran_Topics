@@ -4,6 +4,10 @@
   
 ***
 
+## [Why God is alone, but he forced men to live in societies | Professor ARA](https://www.youtube.com/watch?v=R_P9BAf0UZ0)
+
+***
+
 * Insaan hamaisha-apni-zaban-kay-haathon pannsh-jata-hai
 
 ***

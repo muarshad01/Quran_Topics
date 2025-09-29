@@ -174,3 +174,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ## [Remove Nazr (evil eye) through Fitkari, whole black peppers or whole dried red chilies 🌶️ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8evp-q-qHx8)
 
 ***
+
+## [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
+
+***

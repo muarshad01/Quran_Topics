@@ -1,7 +1,7 @@
 #### [The True Essence of Sadaqah | صدقہ کی حقیقت کیا ہے؟](https://www.youtube.com/watch?v=0bQBMSOAWhA)
 * Sadaqah Khairaat ki-hi aik-shakal-hai
-* Sadqah raad-e-balaa kehlata-hai
-* Iss say musaibatyn-aur-balayan doar hooti-hayn
+* __Sadqah raad-e-balaa kehlata-hai__
+* __Iss say musaibatyn-aur-balayan doar hooti-hayn__
 * __Ghurbat-aur-Musibat ka muqabla Sadqah-aur-khairaat say karo - Hazrat Ali RA__
 * Kya App SAW ka Sadqah diya jaa sakta hai?
 

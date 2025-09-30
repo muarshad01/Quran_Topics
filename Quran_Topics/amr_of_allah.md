@@ -18,20 +18,23 @@
 
 ***
 
-
-### [Sahib-e-Amar - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=0VvlyDXYcek)
-* Hazrat Hassa RA says:
+### [Sahib-e-Amar | SSA Shah](https://www.youtube.com/watch?v=0VvlyDXYcek)
+* Governor of Syrai
+* Hazrat Ali Karam-allah-u wajhah
+* Hazrat Imam Hassan RA (eldest son) says:
 1. Iron
-2. Fire
-3. Water
-4. Wind
-5. Two Angels who run the Wind
-6. Angel Jibreel who is the ruler over those two angels
+2. Fire melts
+3. Water cools down
+4. Wind runs
+5. Two Angels, who run the Wind
+6. Angel Jibreel, who is-the-ruler over those-two-angels
 7. Angel Jibreel is under the `Amr-e-Rabbi`
 8. Order of Allah SWT (`Kun Fa-Yakoon`)
-9. `Raab Talah has gifted us that Amr` and we run this world through that. Subhan Allah!!
+9. __Raab Tallah has granted/gifts us that Amr and, through that, we run this world. Subhan Allah!!__
 
 ***
 
-
 * __Surah Hud 11/76__: [˹The angels said,˺ “O Abraham! Plead no more! Your Lord’s decree has already come, and they will certainly be afflicted with a punishment that cannot be averted!”](https://quranwbw.com/11/76)
+
+
+***

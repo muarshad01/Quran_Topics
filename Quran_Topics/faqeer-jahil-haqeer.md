@@ -33,3 +33,17 @@
 * __Surah YaSeen 36/77__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
   
 ***
+
+#### [Rohaniyat Main Faqeers-se-Mulaqaat | SSA Shah](https://www.youtube.com/watch?v=WPmwJl4CpAY)
+* Rohaniyat mayn harr sheher ka aik haim hota hai
+
+***
+
+#### [Murshid-aur-Mureed Ka Rishta | SSA Shah](https://www.youtube.com/watch?v=TvVxplhL4M0)
+* Baatni aankh
+* Height of horse is 8 or 10 Haath
+* Murshid knows your spiritual condition
+* What Ilm and in what quantity...should I give...
+* Sikhana aik-art-hai...
+* Seekhna bhi aik-art-hai (Fun hai woh pura!)...
+***

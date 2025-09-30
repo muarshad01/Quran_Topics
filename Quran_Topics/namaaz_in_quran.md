@@ -53,6 +53,10 @@
 
 ***
 
+#### [How Prayer Relieves Worries and Anxiety?](https://www.youtube.com/watch?v=cm27aWW4_tU)
+
+***
+
 #### [Baroz Itwar Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
 * Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai
 * Insaan kay dil say dunya-ki-mohabbat nikalnay lagti-hai

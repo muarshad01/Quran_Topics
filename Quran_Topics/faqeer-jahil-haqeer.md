@@ -1,5 +1,5 @@
 ### [Rishtay Aur Sabr-o-Bardasht](https://www.youtube.com/shorts/MDFbeKDnm9I)
-* Faqeer wo hai, jis-nay dunya-ko-tukhraya
+* Faqeer wo hai, jis-nay __dunya-ko-tukhraya__
 
 ***
 

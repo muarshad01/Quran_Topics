@@ -2,6 +2,11 @@
 
 ***
 
+#### [Namaz Aik Technology Kesy He  | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
+* TODO
+  
+***
+
 #### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
 * Offer 2-rakat Salat-e-Hajat (21 days regularly)
 * First rakat recite Surah Al-Kaifroon

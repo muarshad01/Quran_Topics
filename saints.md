@@ -8,6 +8,21 @@
 
 ***
 
+#### [Khwaja Mu'in al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
+* __Khwaja Usman Harooni__ was the spiritual mentor of Khwaja Moinuddin Chishti, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
+1. Tark-e-Dunya
+2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). Not even Jannat is the desire but only Allah SWT!!
+3. Takk-e-manam (Neend)
+4. Tark-e-hawai-e-Nafas
+
+1. Takr-e-Manam (kaam soona)
+2. Tark-e-Taum (kaam khana)
+3. Tark-e-Kalam (kaam bolna)
+4. ...
+
+* __Ishab-e-Suffa__ in Quran: THey only desire, Allah SWT face
+***
+
 ## Ranks
 * `Ghaus` (Qutub-ul-Aqtab)
     * Ghuas has 7 Qutubs under him (One for Each continent?)
@@ -22,7 +37,7 @@
 
 ## Silsila & Khilafat
 * Silsila Chishtia (First Khilafat) - `One Letter` to recite
-    * Khwaja Moin-ud-din Chishti 
+    * Khwaja Moin-ud-din Chishti disciple of __Khwaja Usman Harooni__ 
 * Silsila Junadia Awasia (2nd Khilafat) - `One Word` to recite
     * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
        * Hazrat Data Ganj Bakhsh 

@@ -36,3 +36,10 @@
 *** 
 
 https://quran.com/27/15-16
+
+***
+
+#### [Allah Ke Fazal Ya Raazi Hone Ki Nishaniyan | SSA Shah](https://www.youtube.com/watch?v=ghe-XUb2Vkg)
+* 
+
+***

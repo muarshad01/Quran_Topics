@@ -4,8 +4,8 @@
 ***
 
 #### [Namaz Aik Technology Kesy He  | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
-* TODO
-  
+* __Surah 8/60__: [](https://quran.com/8/60)
+
 ***
 
 #### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)

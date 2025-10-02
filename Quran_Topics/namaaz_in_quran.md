@@ -1,3 +1,11 @@
+#### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
+* Offer 2-rakat Salat-e-Hajat (21 days regularly)
+* First rakat recite __Surah Al-Kaifroon__
+* Second raket recite __Surah Al-Akhlas__
+* Then recite __Duai-e-Hajjat__
+
+***
+
 #### [Sadjah Sahoo](https://www.youtube.com/shorts/xwem1gEiG1g)
 * Jab-bhi ghalti-hoo, usay qabool-karoo aur sajdhay-mayn chalay-jao.
 
@@ -5,14 +13,8 @@
 
 #### [Namaz-aik-Technology Kesy-He | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
 * __Surah 8/60__: [وَأَعِدُّوا۟ لَهُم مَّا ٱسْتَطَعْتُم مِّن قُوَّةٍۢ وَمِن رِّبَاطِ ٱلْخَيْلِ تُرْهِبُونَ بِهِۦ عَدُوَّ ٱللَّهِ وَعَدُوَّكُمْ وَءَاخَرِينَ مِن دُونِهِمْ لَا تَعْلَمُونَهُمُ ٱللَّهُ يَعْلَمُهُمْ ۚ وَمَا تُنفِقُوا۟ مِن شَىْءٍۢ فِى سَبِيلِ ٱللَّهِ يُوَفَّ إِلَيْكُمْ وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/8/60)
-
-***
-
-#### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
-* Offer 2-rakat Salat-e-Hajat (21 days regularly)
-* First rakat recite __Surah Al-Kaifroon__
-* Second raket recite __Surah Al-Akhlas__
-* Then recite __Duai-e-Hajjat__
+* __Namaz-e-Khauf__
+* __Surah 4/102__: [وَإِذَا كُنتَ فِيهِمْ فَأَقَمْتَ لَهُمُ ٱلصَّلَوٰةَ فَلْتَقُمْ طَآئِفَةٌۭ مِّنْهُم مَّعَكَ وَلْيَأْخُذُوٓا۟ أَسْلِحَتَهُمْ فَإِذَا سَجَدُوا۟ فَلْيَكُونُوا۟ مِن وَرَآئِكُمْ وَلْتَأْتِ طَآئِفَةٌ أُخْرَىٰ لَمْ يُصَلُّوا۟ فَلْيُصَلُّوا۟ مَعَكَ وَلْيَأْخُذُوا۟ حِذْرَهُمْ وَأَسْلِحَتَهُمْ ۗ وَدَّ ٱلَّذِينَ كَفَرُوا۟ لَوْ تَغْفُلُونَ عَنْ أَسْلِحَتِكُمْ وَأَمْتِعَتِكُمْ فَيَمِيلُونَ عَلَيْكُم مَّيْلَةًۭ وَٰحِدَةًۭ ۚ وَلَا جُنَاحَ عَلَيْكُمْ إِن كَانَ بِكُمْ أَذًۭى مِّن مَّطَرٍ أَوْ كُنتُم مَّرْضَىٰٓ أَن تَضَعُوٓا۟ أَسْلِحَتَكُمْ ۖ وَخُذُوا۟ حِذْرَكُمْ ۗ إِنَّ ٱللَّهَ أَعَدَّ لِلْكَـٰفِرِينَ عَذَابًۭا مُّهِينًۭا](https://quran.com/4/102)
 
 ***
 

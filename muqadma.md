@@ -52,3 +52,14 @@
 * __Surah 4/45__: [وَٱللَّهُ أَعْلَمُ بِأَعْدَآئِكُمْ ۚ وَكَفَىٰ بِٱللَّهِ وَلِيًّۭا وَكَفَىٰ بِٱللَّهِ نَصِيرًۭا](https://quran.com/4/45)
 
 *** 
+
+#### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
+* 3-times daily
+* Wealth-and-Khair in the house
+* __Zalim-Jabir-Shaks: Recite 3-times and then go meet that person__
+* Yum-e-Azam (Yum-e-Taghuban)
+* Sickness: Recite 41-time and blow on that person
+* Travel: Recite 3-times
+* __Duas are accepted of that person__
+
+***

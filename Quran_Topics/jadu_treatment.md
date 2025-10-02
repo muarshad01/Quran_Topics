@@ -193,3 +193,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * Surah Yunus 10/81 - 11-times
 
 ***
+
+#### [Qutb Online with Bilal Qutb | Zangani Shb](https://www.youtube.com/watch?v=bNbnfovxwUw)
+
+***

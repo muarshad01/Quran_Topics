@@ -183,4 +183,13 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-#### [How to Identify & Remove Black Magic | Professor Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
+#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
+
+***
+
+#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
+* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
+* Ya Muzzilu, Ya Mumeetu
+* Surah Yunus 10/81 - 11-times
+
+***

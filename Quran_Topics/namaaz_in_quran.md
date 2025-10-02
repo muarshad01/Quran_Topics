@@ -89,6 +89,9 @@
 ***
 
 #### [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
+* In every Rakat, Aytul kursi along with 4-Quls
+* 4-Rakat - 40 years of Sin are forgiven
+* 6-Rakat - 50 years of Sin are forgiven
 
 ***
 

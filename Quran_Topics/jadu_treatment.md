@@ -12,6 +12,8 @@
 #### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti’s](https://www.youtube.com/watch?v=CCWc8H8xM3U)
+* __Surah Yunus 81,84,85
+* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru
 
 ***
 

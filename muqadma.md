@@ -1,3 +1,12 @@
+#### [Facing Hard Times? | Dua by Hasan Basri (RA) | SSA Shah](https://www.youtube.com/watch?v=2nFfNvgsc1Y)
+* https://www.facebook.com/groups/176633786177515/posts/2131199327387608/
+
+***
+
+#### [Powerful Dua for Hard Times | مصائب اور ظلم و ستم کو دُور کرنے کے لیے بہترین دعا](https://www.youtube.com/watch?v=78P9gpBQt_M)
+
+***
+
 #### [Ya Khafizu - Case Muqaddama Me Kamyabi Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
 * __Ya Khafidu__ (Ism-e-Ilahi numbr 23) - Adad 1481 - 14 - 5
 * For success in muqadima
@@ -61,10 +70,5 @@
 * Sickness: Recite 41-time and blow on that person
 * Travel: Recite 3-times
 * __Duas are accepted of that person__
-
-***
-
-#### [Facing Hard Times? | Dua by Hasan Basri (RA) | SSA Shah](https://www.youtube.com/watch?v=2nFfNvgsc1Y)
-* https://www.facebook.com/groups/176633786177515/posts/2131199327387608/
 
 ***

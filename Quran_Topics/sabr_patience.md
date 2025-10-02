@@ -102,6 +102,8 @@ And so are Badr and Hunayn in the battle of existence.
 
 ***
 
+* __Surah 6/33__: [قَدْ نَعْلَمُ إِنَّهُۥ لَيَحْزُنُكَ ٱلَّذِى يَقُولُونَ ۖ فَإِنَّهُمْ لَا يُكَذِّبُونَكَ وَلَـٰكِنَّ ٱلظَّـٰلِمِينَ بِـَٔايَـٰتِ ٱللَّهِ يَجْحَدُونَ](https://quran.com/6/33)
+
 <!--
 ## Sumayyah (Wife; Kaneez), Yasir (Husband), Ammar (Son)
 * Abu Jahal's Kanees

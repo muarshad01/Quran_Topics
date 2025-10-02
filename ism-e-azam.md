@@ -7,3 +7,8 @@
 * Ya Zuljalal Wal Ikram 
 
 ***
+
+### [POWERFUL WAZIFA Ya Badi-ul-Ajaib Bil Khair Ya Badio | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=sVFFpRwGaqw)
+* Ya Badio Ajaib bil Khair Ya Badio
+* Ya Badio: Bay-misal cheezon-ko baghair-asbab-kay paida-karnay-wala
+***

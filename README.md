@@ -99,7 +99,7 @@
 |5. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
 |6. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)|July 2025|
 |6. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/east_and_west.md) | July 2025|
-|7. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/angels_in_quran.com) | July 2025|
+|7. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/angels_in_quran.md) | July 2025|
 |8. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hoor_in_quran.md) | July 2025|
 |9. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/heen_in_quran.md) | July 2025|
 |10. | [Fingerprint](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fingerprint.md) | July 2025|

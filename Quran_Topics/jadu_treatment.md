@@ -7,11 +7,11 @@
 * __Surah 3/173__: [حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
 * __Surah 54/10__: [فَدَعَا رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ](https://quran.com/54/10)
 
-## [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
-
 ***
 
-* __Surah Yunus 10/81-83__: [](https://quran.com/10/81-83)
+#### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
+
+#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti’s](https://www.youtube.com/watch?v=CCWc8H8xM3U)
 
 ***
 

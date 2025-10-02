@@ -34,10 +34,16 @@
 
 ***
 
-* Rabbi Inni-Maghlubun Fantasir (رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ)
+* __Rabbi Inni-Maghlubun Fantasir (رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ)__
 
 ***
 
 ![Kaf-Ha-Ya-Ain-Saa](https://github.com/muarshad01/Quran_Topics/blob/main/images/kaf-ha-ya-ain-saad.png)
+
+***
+
+### [Surah Hashar Ki Fazilat | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
+* 70,000 Angels protect-that-person from morning-to-evening.
+* __Surah 59/21-24__: [](https://quran.com/59/21-24)
 
 ***

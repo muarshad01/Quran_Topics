@@ -11,11 +11,11 @@
 
 ***
 
-#### [Maqbool Tauba Ki Nishanian](https://www.youtube.com/shorts/03wYpOdXxoY)
+#### [Maqbool Tauba Ki Nishanian | Irfan-ul-Haq](https://www.youtube.com/shorts/03wYpOdXxoY)
 * You'll start forgetting your sin. Just like you wash a TAPE. They're written off your book.
 * You don't commit that sin again.
-* Start moving towards goodness.
-* Aus kay andar, Tahrao, Itminan, aur Sakoon gagha-bana laylaita-hai.
+* Start moving towards-goodness.
+* Aus kay andar, Tahrao, Itminan, aur Sakoon jagha-bana lay-laita-hai.
 * He starts forgiving other people.
 
 ***
@@ -33,7 +33,7 @@
 ***
 
 #### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
-* `Wa-is'taghfir'hu (and ask His forgiveness)`
+* __Wa-is'taghfir'hu (and ask His forgiveness)__
 * __Surah An-Nasr 110__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
     * Istigfar is a constant Ibadah
 * __Surah Nuh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)

@@ -3,8 +3,8 @@
 
 ***
 
-#### [Namaz Aik Technology Kesy He  | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
-* __Surah 8/60__: [](https://quran.com/8/60)
+#### [Namaz-aik-Technology Kesy-He | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
+* __Surah 8/60__: [وَأَعِدُّوا۟ لَهُم مَّا ٱسْتَطَعْتُم مِّن قُوَّةٍۢ وَمِن رِّبَاطِ ٱلْخَيْلِ تُرْهِبُونَ بِهِۦ عَدُوَّ ٱللَّهِ وَعَدُوَّكُمْ وَءَاخَرِينَ مِن دُونِهِمْ لَا تَعْلَمُونَهُمُ ٱللَّهُ يَعْلَمُهُمْ ۚ وَمَا تُنفِقُوا۟ مِن شَىْءٍۢ فِى سَبِيلِ ٱللَّهِ يُوَفَّ إِلَيْكُمْ وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/8/60)
 
 ***
 

@@ -1,5 +1,5 @@
 ### [Surah Hashar Ki Fazilat | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
-* 70,000 Angels protect that person from morning-to-evening.
+* 70,000 Angels protect-that-person from morning-to-evening.
 * __Surah 59/21-24__: [](https://quran.com/59/21-24)
 
 ***

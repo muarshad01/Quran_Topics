@@ -182,3 +182,5 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ## [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
 
 ***
+
+#### [How to Identify & Remove Black Magic | Professor Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)

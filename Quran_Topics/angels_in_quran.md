@@ -7,3 +7,6 @@
 * __Surah As-Saffat 37/146__: [There is not one of us "angels" but has his known place "or position"](https://quranwbw.com/37/164)
 
 ***
+
+
+* __Surah 6/61__: [وَهُوَ ٱلْقَاهِرُ فَوْقَ عِبَادِهِۦ ۖ وَيُرْسِلُ عَلَيْكُمْ حَفَظَةً حَتَّىٰٓ إِذَا جَآءَ أَحَدَكُمُ ٱلْمَوْتُ تَوَفَّتْهُ رُسُلُنَا وَهُمْ لَا يُفَرِّطُونَ](https://quran.com/6/61)

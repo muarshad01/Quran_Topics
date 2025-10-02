@@ -1,4 +1,5 @@
 #### [Sadjah Sahoo](https://www.youtube.com/shorts/xwem1gEiG1g)
+* Jab-bhi ghalti-hoo, usay qabool-karoo aur sajdhay-mayn chalay-jao.
 
 ***
 

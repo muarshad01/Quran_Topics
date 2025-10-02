@@ -91,14 +91,16 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 ***
 
 #### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
-* Unusual things, sudden changes start to happen.
-* He who worships regularly (offer prayers and reads quaran regularly) is saved from such things.
+* Unusual things, sudden-changes start-to-happen.
+* He who worships regularly (offer-prayers and reads-quaran regularly) is saved from such things.
 * Before sleeping read Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
-* Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening!
+* __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening!__
 
 ***
 
 #### [Jadu Ka Ilaj Kaise Kare |SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+
+***
 * Jadu as Ilm exists.
 * __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq

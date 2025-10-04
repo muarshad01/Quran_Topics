@@ -201,3 +201,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
 
 ***
+
+#### [JAADU KEY TOR KA ILM / IRFAN UL HAQ](https://www.youtube.com/watch?v=B958eO6gjpA)
+
+***

@@ -1,4 +1,4 @@
-#### [AYATUL KURSI ka TAQATWAR HISAR | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=mzRjdxIRMoQ)
+#### [Ayatul Kursi ka Taqatwar Hisar | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=mzRjdxIRMoQ)
 
 ***
 

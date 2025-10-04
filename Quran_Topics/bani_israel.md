@@ -307,3 +307,7 @@
 * Samri was a gold-smith
 
 ***
+
+#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
+
+***

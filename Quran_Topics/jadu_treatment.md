@@ -197,3 +197,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Qutb Online with Bilal Qutb | Zangani Shb](https://www.youtube.com/watch?v=bNbnfovxwUw)
 
 ***
+
+#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+
+***

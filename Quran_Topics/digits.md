@@ -332,14 +332,11 @@ https://quran.com/12/101
 
 ***
 
+#### [Ye Wazifa 313 Bar Parh Lo | Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
 
+#### Number 313
+1. 313 Rasool
+2. Taloot Army story - 313
+3. Battle of Badr - 313
 
-
-
-
-
-
-
-
-
-
+***

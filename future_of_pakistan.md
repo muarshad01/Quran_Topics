@@ -9,10 +9,10 @@
 
 ***
 
-### [Sarfaraz Shah's Big Prediction Proved True](https://www.youtube.com/watch?v=UNG_jo5bax8)
-* Best of the bad lot expires
-* Rabb iss-mulk-ko abb theek kar-raha-hai
-* 2 to 2.5 years
+### [Sarfaraz Shah's Big Prediction Proved True | SSA Shah](https://www.youtube.com/watch?v=UNG_jo5bax8)
+* Best of the bad-lot-expires
+* Rabb iss-mulk-ko abb theak kar-raha-hai
+* 2-to-2.5 years
 * Country will improve...who ever is the Ruler.
 
 ***
@@ -20,7 +20,7 @@
 ### [Sarfaraz Shah's Big Prediction Proved True | Pak-Saudi Defence Deal | PM Shehbaz Sharif | Economy](https://www.youtube.com/watch?v=UNG_jo5bax8)
 * Rabb iss mulk ko teekh kar rahai hai
 * Chanay koi bhi hukumran hoo
-* 2 to 2.5 years
+* 2-to-2.5 years
 
 ***
 

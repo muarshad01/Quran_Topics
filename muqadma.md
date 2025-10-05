@@ -1,5 +1,5 @@
 #### [Facing Hard Times? | Dua by Hasan Basri (RA) | SSA Shah](https://www.youtube.com/watch?v=2nFfNvgsc1Y)
-* https://www.facebook.com/groups/176633786177515/posts/2131199327387608/
+* [Duaa](https://www.facebook.com/groups/176633786177515/posts/2131199327387608/)
 
 ***
 

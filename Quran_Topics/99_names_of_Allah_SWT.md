@@ -60,7 +60,12 @@ https://99namesofallah.name/
 ### [32. ]()
 ### [33. ] Ya Haleemu (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7
 
-...
+
+### [96. Benefits of Allah Name Ar-Rehman Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
+* 86 Adadd - 8 + 6 = 14 = 5
+* __12-days 100-times after Isaa Prayer with 11-times Darood Shareef__
+
+***
 
 ***
 

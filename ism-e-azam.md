@@ -3,12 +3,19 @@
 ***
 
 ### [7-R Ya Hayy o Ya Qayyum and Ya Zal Jalal e Wal Ikram Isme Azam | SSA Shah](https://www.youtube.com/watch?v=fgqEQtajygg)
-* Ya-Hayyu Ya-Qayyum (Is not Ism-e-Azam; but very close to it)
-* Ya Zuljalal Wal Ikram 
+* __Ya-Hayyu Ya-Qayyum__ (Is not Ism-e-Azam; but very close to it)
+* __Ya-Zuljalal Wal Ikram__
 
 ***
 
 ### [POWERFUL WAZIFA Ya Badi-ul-Ajaib Bil Khair Ya Badio | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=sVFFpRwGaqw)
-* Ya Badio Ajaib bil Khair Ya Badio
-* Ya Badio: Bay-misal cheezon-ko baghair-asbab-kay paida-karnay-wala
+* __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
+* Ya Badio: Bay-misal cheezon-ko bagheer-asbab-kay paida-karnay-wala
+  * Translation: O originator-of-wonders with goodness, I seek assistance through your mercy.
+
+### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
+* 96 Number
+* 86 Adadd - 8 + 6 = 14 = 5
+* __12-days 100-times after Isaa Prayer with 11-times Darood Shareef__
+
 ***

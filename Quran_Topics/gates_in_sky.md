@@ -12,4 +12,4 @@
   * People saw and told to Proplet PBUH: Cloud came to earth, hosrse lost his control, Shehabi was reciting Surah Kahf, `Sakina`
 * [What Is This Mysterious Spiral Anomaly in the Norwegian Sky?](https://www.youtube.com/watch?v=FgWgsstTx-8)
   
-*** 
+***  

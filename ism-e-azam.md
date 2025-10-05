@@ -1,5 +1,20 @@
-* [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
+#### [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
    * [Notes](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession05.md)
+
+***
+
+#### [Ye Wazifa 313 Bar Parh Lo || Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
+1. "Alif Lam Meem" (الٓمٓ)
+2. Bismillahir Rahmanir Raheem (بِسْمِ ٱللهِ ٱلرَّحْمَٰنِ ٱلرَّحِيْمِ) 
+3. Allahu la ilaha illa huwa al-hayyul qayyum (اللّهُ لاَ إِلَـهَ إِلاَّ هُوَ الْحَيُّ الْقَيُّومُ)
+4. "Ya Wahid" (يا وَاحِدُ)
+5. "Ya Zul-Jalali Wal-Ikram" ( يَا ذَا الْجَلَالِ وَالْإِكْرَامِ.)
+
+#### Number 313
+1. 313 Rasool
+2. Taloot Army story - 313
+3. Battle of Badr - 313 
+
 ***
 
 ### [Strong Bond with Allah | اللہ سے سچا تعلق کیسے بنائیں؟](https://www.youtube.com/watch?v=UnHd3G_LJ9Q)

@@ -1,4 +1,4 @@
-## Haqq, Haqq, Haqqc- Naaraa
+## Haqq, Haqq, Haqq- Naaraa
 * Khwaja Moin-ud-din Chishti                  [1143 - 1236 = 93 years]
 * Qutb-ud-din Bakhtiar Kaki                   [1173 - 1235 = 62 years]
 * Baba Farid-ud-din Ganj-shakar`              [1173 – 1266 = 93 years]

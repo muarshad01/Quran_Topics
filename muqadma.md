@@ -7,19 +7,33 @@
 
 ***
 
-#### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
-* Name Number - 96 (Bay-misaal cheezan paida-karnay-wala)
-* 86 Adaad = 8 + 6 = 14 = 5
-* "Ya Badi'u al-Samawati wa al-Ard" (بديع السموات والأرض)
-* __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
-  * __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir then dua__: Oct 5, start
+#### [23. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
+* __Al-Khafidu__
+* Adaad 1481 = 1+4+8+1 = 5
+* __Wazifa for success in Court Case Muqaddama__
+* For success in muqadma
+  * 3-Fasts : After-every-prayer recite __Ya Khafidu 70-times__.
 
 ***
 
-#### [Ya Khafizu - Case Muqaddama Me Kamyabi Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
-* __Ya Khafidu__ (Ism-e-Ilahi numbr 23) - Adad 1481 - 14 - 5
-* For success in muqadima
-  * 3-fasts - after-every-prayer recite __Ya Khafidu 70-times__.
+#### [33. Benefits of Allah Name Al-Haleem | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=2h2SClyiRTU)
+* __Ya Haleemu__
+* Forbearing (بردبار) and حلم (hilm)
+* Repeated 11-times in Quran
+* Adaad 88 - 8+8 = 1+6 = 7
+* __Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa__
+  * Boos, Hakim, Baadshah, or Judge-in-court you're meeting and fear the decision will be against you
+  * Recite __Ya Haleemu 88-times__ awal/akhir 11-times darood-sharif. Then dumm-the-water and sprinke on hands-and-face. Drink two sips.
+
+***
+
+#### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
+* __Al-Badee__
+* Bay-misaal cheezan paida-karnay-wala
+* Adaad 86 = 8+6 = 14 = 5
+* Ya Badi'u al-Samawati wa al-Ard (بديع السموات والأرض)
+* __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
+  * __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir then dua__: Oct 5, start
 
 ***
 
@@ -37,7 +51,7 @@
 
 #### [Ya Haleemu - Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
 * __Ya Haleemu__ (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7
-* Has been repeated 11 time
+* Has been repeated 11-times
 
 ***
 
@@ -78,6 +92,6 @@
 * Yum-e-Azam (Yum-e-Taghuban)
 * Sickness: Recite 41-time and blow on that person
 * Travel: Recite 3-times
-* __Duas are accepted of that person__
+* __Duas-are-accepted of that person__
 
 ***

@@ -3,7 +3,7 @@
 ***
 
 #### [Powerful Dua for Hard Times | مصائب اور ظلم و ستم کو دُور کرنے کے لیے بہترین دعا | SSA Shah](https://www.youtube.com/watch?v=78P9gpBQt_M)
-* [Duaa](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession31.md)
+* [Duaa - Battle of Ahzab](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession31.md)
 
 ***
 

@@ -19,7 +19,7 @@
 #### [Ya Khafizu - Case Muqaddama Me Kamyabi Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
 * __Ya Khafidu__ (Ism-e-Ilahi numbr 23) - Adad 1481 - 14 - 5
 * For success in muqadima
-  * 3 fasts - after-every-prayer recite 70-times __Ya Khafidu__.
+  * 3-fasts - after-every-prayer recite __Ya Khafidu 70-times__.
 
 ***
 
@@ -35,7 +35,7 @@
 
 ***
 
-#### [Ya Haleemu - Judge Boss Haakim Apke Haq Me Faisla Karne Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
+#### [Ya Haleemu - Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
 * __Ya Haleemu__ (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7
 * Has been repeated 11 time
 

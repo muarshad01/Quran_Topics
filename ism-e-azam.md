@@ -3,7 +3,7 @@
 
 ***
 
-#### [Ye Wazifa 313 Bar Parh Lo || Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
+#### [Ye Wazifa 313 Bar Parh Lo | Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
 1. "Alif Lam Meem" (الٓمٓ)
 2. Bismillahir Rahmanir Raheem (بِسْمِ ٱللهِ ٱلرَّحْمَٰنِ ٱلرَّحِيْمِ) 
 3. Allahu la ilaha illa huwa al-hayyul qayyum (اللّهُ لاَ إِلَـهَ إِلاَّ هُوَ الْحَيُّ الْقَيُّومُ)
@@ -11,9 +11,9 @@
 5. "Ya Zul-Jalali Wal-Ikram" ( يَا ذَا الْجَلَالِ وَالْإِكْرَامِ.)
 
 #### Number 313
-1. 313 Rasool
-2. Taloot Army story - 313
-3. Battle of Badr - 313 
+1. Number of Rasools - 313 
+2.  Talut's (Saul's) Army people - 313 People
+3. Battle-of-Badr - 313 Sahaba 
 
 ***
 
@@ -31,6 +31,8 @@
 * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
 * Ya Badio: Bay-misal cheezon-ko bagheer-asbab-kay paida-karnay-wala
   * Translation: O originator-of-wonders with goodness, I seek assistance through your mercy.
+
+***
 
 ### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * 96 Number

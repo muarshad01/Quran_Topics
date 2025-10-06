@@ -23,6 +23,10 @@ https://99namesofallah.name/
 
 ***
 
+### [Allah Kay 4-Nam Ju Na-Mumkin Ko Mumkin-Bana-Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)
+* 
+
+***
 
 ### [00. Benefits of Allah Name Ar-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
 ### [01. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
@@ -48,7 +52,18 @@ https://99namesofallah.name/
 ### [20. ]()
 ### [21. ]()
 ### [22. ]()
-### [23. ] Ya Khafidu (Ism-e-Ilahi numbr 23) - Adad 1481 - 14 - 5
+
+***
+
+#### [23. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
+* __Al-Khafidu__
+* Adaad 1481 = 1+4+8+1 = 5
+* __Wazifa for success in Court Case Muqaddama__
+* For success in muqadma
+  * __3-Fasts : After-every-prayer recite Ya Khafidu 70-times__.
+
+***
+
 ### [24. ]()
 ### [25. ]()
 ### [26. ]()
@@ -58,19 +73,39 @@ https://99namesofallah.name/
 ### [30. ]()
 ### [31. ]()
 ### [32. ]()
-### [33. ] Ya Haleemu (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7
-
-
-### [96. Benefits of Allah Name Ar-Rehman Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
-* 86 Adadd - 8 + 6 = 14 = 5
-* __12-days 100-times after Isaa Prayer with 11-times Darood Shareef__
 
 ***
 
+#### [33. Benefits of Allah Name Al-Haleem | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=2h2SClyiRTU)
+* __Ya Haleemu__
+* Forbearing (بردبار) and حلم (hilm)
+* Repeated 11-times in Quran
+* Adaad 88 - 8+8 = 1+6 = 7
+* __Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa__
+  * Boos, Hakim, Baadshah, or Judge-in-court you're meeting and fear the decision will be against you
+  * Recite __Ya Haleemu 88-times__ awal/akhir 11-times darood-sharif. Then dumm-the-water and sprinke on hands-and-face. Drink two sips.
+
 ***
 
-### [Meaning Virtues and Benefits of Name Al-Wahabu By Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
+#### [45. Benefits of Allah Name Al-Mujeebo | Dr. Mufti Muneer Ahmed Ahmed Akhoon](https://www.youtube.com/watch?v=DMXsuhT_LOY)
+* __Al-Mujeebu__
+* Adaad 55 = 5+5 = 10 = 1
+* Repated twice in Quran
+* __Apnay haqq-mayn faisla karwanay-ki-laye__
+  * Keep reciting __Ya-Mujeebu__ when you go-to-court
 
 ***
 
-#### [Allah Kay 4 Nam Ju Na-Mumkin Ko Mumkin Bana Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)
+#### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
+* __Al-Badee__
+* Bay-misaal cheezan paida-karnay-wala
+* Adaad 86 = 8+6 = 14 = 5
+* Ya Badi'u al-Samawati wa al-Ard (بديع السموات والأرض)
+* __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
+  * __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir then dua__: Oct 5, start
+
+***
+
+### [Meaning Virtues and Benefits of Name Al-Wahabu | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
+
+***

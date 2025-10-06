@@ -9,3 +9,7 @@
 ### [Fear, frustration, anxiety, depression and stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
 
 ***
+
+### [Dimag Ke Sukarnay Ka Rohani Ilaaj Hai? | SSA Shah](https://www.youtube.com/watch?v=1quOAryBMjQ)
+
+***

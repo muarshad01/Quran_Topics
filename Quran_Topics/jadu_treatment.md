@@ -103,11 +103,11 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 #### [Jadu Ka Ilaj Kaise Kare |SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
 
 ***
-* Jadu as Ilm exists.
+* Jadu-as-Ilm exists.
 * __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
-* Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening.
-* Jadu asarat will not come to that house where surah Al-Baqarah is recited regularly.
+* __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening.__
+* Jadu asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
 
 ***
 
@@ -175,11 +175,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-## [Remove Nazr (evil eye) through Fitkari, whole black peppers or whole dried red chilies 🌶️ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8evp-q-qHx8)
+#### [Remove Nazr (evil eye) through Fitkari, whole black peppers or whole dried red chilies 🌶️ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8evp-q-qHx8)
 
 ***
 
-## [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
+#### [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
 
 ***
 
@@ -203,5 +203,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [JAADU KEY TOR KA ILM / IRFAN UL HAQ](https://www.youtube.com/watch?v=B958eO6gjpA)
+
+***
+
+#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
 
 ***

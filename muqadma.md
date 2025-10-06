@@ -54,11 +54,6 @@
   
 *** 
 
-#### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
-* __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
-
-***
-
 #### [Case Khatam Karne Ka Wazifa | Ubqari](https://www.youtube.com/watch?v=k9hFy2xKzA8)
 * __Surah 3/173__: [حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
 * __Surah 8/40__: [نِعْمَ ٱلْمَوْلَىٰ وَنِعْمَ ٱلنَّصِيرُ](https://quran.com/4/40)
@@ -68,6 +63,9 @@
 * __Rabbi Inni-Maghlubun Fantasir (رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ)__
 
 ***
+
+#### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
+* __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
 
 ![Kaf-Ha-Ya-Ain-Saa](https://github.com/muarshad01/Quran_Topics/blob/main/images/kaf-ha-ya-ain-saad.png)
 

@@ -28,7 +28,6 @@
 ***
 
 #### [45. Benefits of Allah Name Al-Mujeebo | Dr. Mufti Muneer Ahmed Ahmed Akhoon](https://www.youtube.com/watch?v=DMXsuhT_LOY)
-#### [Benefits of Allah Name Ya Mujeebu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/vAJLp2QyB80)
 * __Al-Mujeebu__
 * Adaad 55 = 5+5 = 10 = 1
 * Repated twice in Quran

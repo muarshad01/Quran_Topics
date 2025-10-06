@@ -53,12 +53,6 @@
   
 *** 
 
-#### [Ya Haleemu - Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
-* __Ya Haleemu__ (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7
-* Has been repeated 11-times
-
-***
-
 #### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
 * __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
 

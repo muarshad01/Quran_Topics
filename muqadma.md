@@ -7,7 +7,7 @@
 
 ***
 
-### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
+#### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * 96 Number
 * 86 Adadd - 8 + 6 = 14 = 5
 * __12-days 100-times after Isaa-Prayer with 11-times Darood Shareef__
@@ -39,7 +39,7 @@
 
 ***
 
-### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
+#### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
 * __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
 
 ***
@@ -58,7 +58,7 @@
 
 ***
 
-### [Surah Hashar Ki Fazilat | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
+#### [Surah Hashar Ki Fazilat | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
 * 70,000 Angels protect-that-person from morning-to-evening.
 * __Surah 59/21-24__: [](https://quran.com/59/21-24)
 

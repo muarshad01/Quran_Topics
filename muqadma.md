@@ -33,7 +33,7 @@
 * Adaad 55 = 5+5 = 10 = 1
 * Repated twice in Quran
 * __Apnay haqq-mayn faisla karwanay-ki-laye__
-  * Keep reciting Ya Mujeebu when you go to court
+  * Keep reciting __Ya-Mujeebu__ when you go-to-court
 
 ***
 

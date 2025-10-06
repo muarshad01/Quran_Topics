@@ -8,8 +8,9 @@
 ***
 
 #### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
-* 96 Number
-* 86 Adadd - 8 + 6 = 14 = 5
+* Name Number - 96 (Bay-misaal cheezan paida-karnay-wala)
+* 86 Adaad = 8 + 6 = 14 = 5
+* "Ya Badi'u al-Samawati wa al-Ard" (بديع السموات والأرض)
 * __12-days 100-times after Isaa-Prayer with 11-times Darood Shareef__
 
 ***

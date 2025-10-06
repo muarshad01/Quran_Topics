@@ -8,3 +8,4 @@
 ***
 
 ### [Mountain Cut by Hazrat Ali](https://www.youtube.com/shorts/gCn4g9H6hjM)
+### [Hazrat Ali Saying](https://www.youtube.com/shorts/yAIGtWdHfAc)

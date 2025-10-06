@@ -11,8 +11,8 @@
 * Name Number - 96 (Bay-misaal cheezan paida-karnay-wala)
 * 86 Adaad = 8 + 6 = 14 = 5
 * "Ya Badi'u al-Samawati wa al-Ard" (بديع السموات والأرض)
-* __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir__: Oct 5, start
-  * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
+* __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
+  * __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir then dua__: Oct 5, start
 
 ***
 

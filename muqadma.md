@@ -27,6 +27,16 @@
 
 ***
 
+#### [45. Benefits of Allah Name Al-Mujeebo | Dr. Mufti Muneer Ahmed Ahmed Akhoon](https://www.youtube.com/watch?v=DMXsuhT_LOY)
+#### [Benefits of Allah Name Ya Mujeebu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/vAJLp2QyB80)
+* __Al-Mujeebu__
+* Adaad 55 = 5+5 = 10 = 1
+* Repated twice in Quran
+* __Apnay haqq-mayn faisla karwanay-ki-laye__
+  * Keep reciting Ya Mujeebu when you go to court
+
+***
+
 #### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * __Al-Badee__
 * Bay-misaal cheezan paida-karnay-wala
@@ -42,12 +52,6 @@
 * Case - custody of kids!
   
 *** 
-
-#### [Ya Mujeebu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/vAJLp2QyB80)
-* __Ya Mujeebu__
-* Apnay haqq-mayn faisla karwanay-ki-laye
-
-***
 
 #### [Ya Haleemu - Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=cD6xSJb27rU)
 * __Ya Haleemu__ (Ism-e-Ilahi numbr 33) -- 88 - 16 - 7

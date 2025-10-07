@@ -13,3 +13,7 @@
 ### [Dimag Ke Sukarnay Ka Rohani Ilaaj Hai? | SSA Shah](https://www.youtube.com/watch?v=1quOAryBMjQ)
 
 ***
+
+### [ Talk with Allah and Prophet Muhammad SAW | SSA Shah](https://www.youtube.com/shorts/zeppQKmGgzg)
+
+***

@@ -114,7 +114,7 @@
 ---
 5. Muhammad al-Baqir (https://www.youtube.com/shorts/Q0CGKBWWXHI)
 6. Jafar al-Sadiq
-7. Musa al-Kadhim
+7. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4)
 8. Ali al-Rida
 9. Muhammad al-Jawad
 10. Ali al-Hadi

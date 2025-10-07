@@ -39,6 +39,7 @@
 
 #### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * __Al-Badee__
+* Hadith: [اللَّهُمَّ لاَ إِلَهَ إِلاَّ أَنْتَ الْمَنَّانُ بَدِيعُ السَّمَوَاتِ وَالأَرْضِ ذَا الْجَلاَلِ وَالإِكْرَامِ](https://sunnah.com/tirmidhi:3544) - Tirmidi 3544
 * Bay-misaal cheezan paida-karnay-wala
 * Bay-misaal cheezon-ko bagheer-asbab-kay paida-karnay-wala
 * Adaad 86 = 8+6 = 14 = 5

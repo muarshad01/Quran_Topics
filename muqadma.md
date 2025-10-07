@@ -13,7 +13,7 @@
 * Adaad 1481 = 1+4+8+1 = 5
 * __Wazifa for success in Court Case Muqaddama__
 * For success in muqadma
-  * __3-Fasts : After-every-prayer recite Ya Khafidu 70-times__.
+  * __3-Fasts : After-every-prayer recite Ya-Khafidu 70-times__.
 
 ***
 

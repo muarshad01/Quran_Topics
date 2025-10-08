@@ -11,7 +11,7 @@
 5. "Ya Zul-Jalali Wal-Ikram" ( يَا ذَا الْجَلَالِ وَالْإِكْرَامِ.)
 
 #### Number 313
-1. Number of Rasools - 313 
+1. Number-of-Rasools - 313 
 2.  Talut's (Saul's) Army people - 313 People
 3. Battle-of-Badr - 313 Sahaba 
 

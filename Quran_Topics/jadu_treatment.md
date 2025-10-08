@@ -213,3 +213,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * https://www.youtube.com/shorts/AapCR1WXB0Y
 
 ***
+
+#### [Rishtedaron Ke-Hasad aur Jadoo-se-Bachne Ka Asan Tariqa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=pGPksbYs9io)
+* Surah Falak and Naas - 11x times daily
+* Surah Rehman Recite & Play at home
+* 21 days
+***

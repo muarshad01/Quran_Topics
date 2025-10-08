@@ -99,3 +99,8 @@
 * Surah Yaseen, 7-Mubeen Wazifa!
 
 ***
+
+### [Muqadma mein kamyabi ka wazifa](https://www.youtube.com/watch?v=8BNlqrPrOt8)
+* __Surah 17/81__: [وَقُلْ جَآءَ ٱلْحَقُّ وَزَهَقَ ٱلْبَـٰطِلُ ۚ إِنَّ ٱلْبَـٰطِلَ كَانَ زَهُوقًۭا](https://quran.com/17/81)
+
+***

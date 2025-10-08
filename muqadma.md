@@ -94,3 +94,8 @@
 * __Duas-are-accepted of that person__
 
 ***
+
+#### [Benefits of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
+* Surah Yaseen, 7-Mubeen Wazifa!
+
+***

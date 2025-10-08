@@ -1,5 +1,7 @@
 #### [Importance of Zikr](https://www.youtube.com/shorts/aPIk1CYyZ9o)
 
+#### ["La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ) ](https://www.youtube.com/shorts/hrvdOSDK7NY)
+
 ***
 
 #### [Lay Jaa Apna Sab Kuch bus Apna Zikr Choor Jaa| SSA Shah](https://www.youtube.com/shorts/WHKM41Rf5gQ)

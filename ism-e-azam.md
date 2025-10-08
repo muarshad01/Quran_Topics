@@ -34,6 +34,8 @@
 
 ***
 
+* https://www.youtube.com/shorts/2RFGVjRtNpI
+
 ### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * 96 Number
 * 86 Adadd - 8 + 6 = 14 = 5

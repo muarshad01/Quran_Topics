@@ -1,4 +1,9 @@
 #### [Importance of Zikr](https://www.youtube.com/shorts/aPIk1CYyZ9o)
+1. Hazrat Yunus AS
+2. Quran is Shifa (Zikr)
+3. Pear-of-Hearts (Challenge of Quran)
+
+***
 
 #### ["La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ) ](https://www.youtube.com/shorts/hrvdOSDK7NY)
 

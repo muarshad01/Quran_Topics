@@ -61,7 +61,7 @@
 * Deen Ki Fehem (__Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ]())
 * Ilm
 * Aqal
-* Essance of windom is Rabb.
+* Essance-of-windom is Rabb.
 
 ***
 
@@ -71,3 +71,18 @@
 
 ### [Emaan Ka Noor Kaisay Milta Hai| Wasif Ali Wasif](https://www.youtube.com/shorts/WRyk-bJUhWA)
 * __Surah 2/257__: [ٱللَّهُ وَلِىُّ ٱلَّذِينَ ءَامَنُوا۟ يُخْرِجُهُم مِّنَ ٱلظُّلُمَـٰتِ إِلَى ٱلنُّورِ ۖ وَٱلَّذِينَ كَفَرُوٓا۟ أَوْلِيَآؤُهُمُ ٱلطَّـٰغُوتُ يُخْرِجُونَهُم مِّنَ ٱلنُّورِ إِلَى ٱلظُّلُمَـٰتِ ۗ أُو۟لَـٰٓئِكَ أَصْحَـٰبُ ٱلنَّارِ ۖ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/2/257)
+
+***
+
+### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
+1. Allah is Nur: [](https://quran.com/24/35)
+* __Surah Ash-Shuraa 42/52 (Kitab is Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
+3. Shahib Quran is Noor: [](https://quran.com/5/15)
+4. Islam is Noor: []()
+* __Surah Ash-Shuraa 42/52 (Kitab is Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
+6. Ilm is Noor: []()
+* Woh Ilm dya, jo zulumat ko door-kar-deh
+* Ilm, hikmat, danai, kitaab ki rooshi
+* Sara deen doosray-kay haqq-ko pechana-hai
+
+***

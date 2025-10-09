@@ -109,3 +109,16 @@ https://99namesofallah.name/
 ### [Meaning Virtues and Benefits of Name Al-Wahabu | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
 
 ***
+
+### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq]](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
+1. Allah is Nur: [](https://quran.com/24/35)
+2. Quran is Noor: [](https://quran.com/42/52)
+3. Shahib Quran is Noor: [](https://quran.com/5/15)
+4. Islam is Noor: []()
+5. Imaan is Noor: [](https://quran.com/66/8)
+6. Ilm is Noor: []()
+* Woh Ilm dya, jo zulumat ko door kar deh
+* Ilm, hikmat, danai, kitaab ki rooshi
+* Sara deen doosray-kay haqq-ko pechana-hai
+
+***

@@ -77,7 +77,7 @@
 ### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
 1. Allah is Nur: [](https://quran.com/24/35)
 * __Surah Ash-Shuraa 42/52 (Kitab is Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
-3. Shahib Quran is Noor: [](https://quran.com/5/15)
+* __Surah 5/15 (Shahib Quran is Noor)__: [يَـٰٓأَهْلَ ٱلْكِتَـٰبِ قَدْ جَآءَكُمْ رَسُولُنَا يُبَيِّنُ لَكُمْ كَثِيرًۭا مِّمَّا كُنتُمْ تُخْفُونَ مِنَ ٱلْكِتَـٰبِ وَيَعْفُوا۟ عَن كَثِيرٍۢ ۚ قَدْ جَآءَكُم مِّنَ ٱللَّهِ نُورٌۭ وَكِتَـٰبٌۭ مُّبِينٌۭ](https://quran.com/5/15)
 4. Islam is Noor: []()
 * __Surah Ash-Shuraa 42/52 (Kitab is Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
 6. Ilm is Noor: []()

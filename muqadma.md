@@ -106,3 +106,10 @@
 ***
 
 ### [Bismillah 50x times](https://www.youtube.com/shorts/_S9wB-InCSs)
+
+***
+
+### Last 4-Ayats of Surah Muminoon
+* __Surah 23/115-118__: [](https://quran.com/23/115-118)
+
+***

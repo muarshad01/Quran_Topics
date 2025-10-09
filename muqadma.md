@@ -104,3 +104,5 @@
 * __Surah 17/81__: [وَقُلْ جَآءَ ٱلْحَقُّ وَزَهَقَ ٱلْبَـٰطِلُ ۚ إِنَّ ٱلْبَـٰطِلَ كَانَ زَهُوقًۭا](https://quran.com/17/81)
 
 ***
+
+### [Bismillah 50x times](https://www.youtube.com/shorts/_S9wB-InCSs)

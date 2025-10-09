@@ -55,7 +55,7 @@
 
 ***
 
-### [Podcast With Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=ulOkpO__JBo)
+### [Podcast | SSA Shah](https://www.youtube.com/watch?v=ulOkpO__JBo)
 * Things will settle-down in another-year or so...things will be smooth afterwards
 
 #### Problem versus Symptons-of-Problem
@@ -95,5 +95,10 @@
 ***
 
 #### [The End of the West? Why America and Europe Could Vanish by 2050 | Professor ARA](https://www.youtube.com/watch?v=HrzVAWu62UU)
+
+***
+
+#### [Defeat Is Not-Our-Destiny, Victory Is-Our Legacy | Professor ARA](https://www.youtube.com/watch?v=ks8Aawt_MSQ)
+* __Surah 17/70__: [۞ وَلَقَدْ كَرَّمْنَا بَنِىٓ ءَادَمَ](https://quran.com/17/70)
 
 ***

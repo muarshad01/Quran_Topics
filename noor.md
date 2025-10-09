@@ -1,4 +1,4 @@
-## Allah SWT Noor
+#### Allah SWT Noor
 * __Surah 24/35__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ مَثَلُ نُورِهِۦ كَمِشْكَوٰةٍۢ فِيهَا مِصْبَاحٌ ۖ ٱلْمِصْبَاحُ فِى زُجَاجَةٍ ۖ ٱلزُّجَاجَةُ كَأَنَّهَا كَوْكَبٌۭ دُرِّىٌّۭ يُوقَدُ مِن شَجَرَةٍۢ مُّبَـٰرَكَةٍۢ زَيْتُونَةٍۢ لَّا شَرْقِيَّةٍۢ وَلَا غَرْبِيَّةٍۢ يَكَادُ زَيْتُهَا يُضِىٓءُ وَلَوْ لَمْ تَمْسَسْهُ نَارٌۭ ۚ نُّورٌ عَلَىٰ نُورٍۢ ۗ يَهْدِى ٱللَّهُ لِنُورِهِۦ مَن يَشَآءُ ۚ وَيَضْرِبُ ٱللَّهُ ٱلْأَمْثَـٰلَ لِلنَّاسِ ۗ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/24/35)
 
 #### Misbaah - Fanous (Lantern)
@@ -69,12 +69,12 @@
 
 ***
 
-### [Emaan Ka Noor Kaisay Milta Hai| Wasif Ali Wasif](https://www.youtube.com/shorts/WRyk-bJUhWA)
+#### [Emaan Ka Noor Kaisay Milta Hai| Wasif Ali Wasif](https://www.youtube.com/shorts/WRyk-bJUhWA)
 * __Surah 2/257__: [ٱللَّهُ وَلِىُّ ٱلَّذِينَ ءَامَنُوا۟ يُخْرِجُهُم مِّنَ ٱلظُّلُمَـٰتِ إِلَى ٱلنُّورِ ۖ وَٱلَّذِينَ كَفَرُوٓا۟ أَوْلِيَآؤُهُمُ ٱلطَّـٰغُوتُ يُخْرِجُونَهُم مِّنَ ٱلنُّورِ إِلَى ٱلظُّلُمَـٰتِ ۗ أُو۟لَـٰٓئِكَ أَصْحَـٰبُ ٱلنَّارِ ۖ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/2/257)
 
 ***
 
-### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
+#### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
 1. Allah is Nur: [](https://quran.com/24/35)
 * __Surah Ash-Shuraa 42/52 (Kitab is Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
 * __Surah 5/15 (Shahib Quran is Noor)__: [يَـٰٓأَهْلَ ٱلْكِتَـٰبِ قَدْ جَآءَكُمْ رَسُولُنَا يُبَيِّنُ لَكُمْ كَثِيرًۭا مِّمَّا كُنتُمْ تُخْفُونَ مِنَ ٱلْكِتَـٰبِ وَيَعْفُوا۟ عَن كَثِيرٍۢ ۚ قَدْ جَآءَكُم مِّنَ ٱللَّهِ نُورٌۭ وَكِتَـٰبٌۭ مُّبِينٌۭ](https://quran.com/5/15)
@@ -87,6 +87,6 @@
 
 ***
 
-### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
+#### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
 
 ***

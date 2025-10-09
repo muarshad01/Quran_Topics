@@ -86,3 +86,7 @@
 * Sara deen doosray-kay haqq-ko pechana-hai
 
 ***
+
+### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
+
+***

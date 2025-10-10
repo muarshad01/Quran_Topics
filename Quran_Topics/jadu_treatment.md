@@ -219,4 +219,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * Surah Falak and Naas - 11x times daily
 * Surah Rehman Recite & Play at home
 * 21 days
+
+***
+
+* https://www.youtube.com/shorts/nnBxv6sfr5k
+
 ***

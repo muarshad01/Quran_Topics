@@ -9,7 +9,7 @@
 
 #### Definition of Naiki
 * Insaan apnay Haqooq, Khwahishat (desire), Araam, Zarooriat, inn-ko pase-e-pushat dal-dah. Doosron ka haqooq, Khwahishat, zarooriat, araam ko apni-cheezon-par tarjeeh-deh-dah. Tarjeeh-dena hi naiki-hai.
-* Doosron kay-liye apnay-app-ko qurban-karna...
+* __Doosron kay-liye apnay-app-ko qurban-karna...__
 * First condition is "keep-the-Secret", if you help others.
 
 ***

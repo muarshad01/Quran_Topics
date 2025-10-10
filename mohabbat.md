@@ -8,10 +8,12 @@
 #### [Increase Your Love for Allah Today | SSA Shah](https://www.youtube.com/watch?v=K7UQEbdHAFc)
 * One-way communication (Namaz and Quran)
 * Two-way communicaiton (Prophet PBUH)
+* Allah SWT doesn't need our Ibadaat and Naiki...
+* Only for our betterment He sent 124,000 prophets...
 
 ***
 
-#### [Rab Ki Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
+#### [Rab-K- Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
 * Faqeer has very little worldly-resouces
 * However, he is very content-and-happy.
   

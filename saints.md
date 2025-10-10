@@ -260,3 +260,13 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
 
 *** 
+
+#### [Shaykh Abdul Qadir Jilani Ghous Paak ki original Photo | Professor ARA](https://www.youtube.com/watch?v=p5sbtP1pBwc)
+* Sheikh Abdul Qadir Jilani - Everytime smile on face
+* Daata:
+* Ghaus-e-Azam is Tasawaf-kay aspect-ka-naam. Ilm-e-tasawaf has two branches:
+1. __Jazab-o-Shukkar__: Mysticism of Ecstasy (Jo Shukkar ki manazal tay kartay hayn who Ghawas hotay hayn. Hightest level sheik is Ghawas-e-Azam); Libido: Stats of mind like - Khauf, Anfoq, Psychosis, Nurosis
+2. __Ashab-e-Sahaw__: Mystics of Sobriety
+2.1 Aktab-e-Alam: Teaching (Mujadid | Qutb-ul-Aqtab | Qutb-e-Irshad (Teaching))
+
+***

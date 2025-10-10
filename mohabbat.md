@@ -1,18 +1,21 @@
-### [Allah ki mohabbat kaise hasil kare | SSA Shah](https://www.youtube.com/watch?v=a1uQqD4i-s4)
+#### [Allah-ki-mohabbat kaise hasil-kare | SSA Shah](https://www.youtube.com/watch?v=a1uQqD4i-s4)
+* Dunya say kyt-kar bhair-nikal-jaye banda aur aun-deeki-dunya ki seer-karnay-laghay
+* Kishsi-cheez kay-undar itna gharaq-ho-jaye-banda keh dunya-say kat-jaye.
+* Forgets surroundings...
 
 ***
 
-### [Increase Your Love for Allah Today | اللہ سے پیار بڑھانے کا راز | SSA Shah](https://www.youtube.com/watch?v=K7UQEbdHAFc)
+#### [Increase Your Love for Allah Today | SSA Shah](https://www.youtube.com/watch?v=K7UQEbdHAFc)
 
 ***
 
-### [Rab Ki Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
+#### [Rab Ki Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
 * Faqeer has very little worldly-resouces
 * However, he is very content-and-happy.
   
 ***
 
-### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
+#### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
 
 * Shamsuddin Turk Pani Pati
 * Sabir Piya Kaliyari

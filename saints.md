@@ -270,3 +270,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 2.1 Aktab-e-Alam: Teaching (Mujadid | Qutb-ul-Aqtab | Qutb-e-Irshad (Teaching))
 
 ***
+
+* Muhyiddin Ibn Arabi - 1165
+* Falsafa Wahdat al-wujūd
+
+*** 

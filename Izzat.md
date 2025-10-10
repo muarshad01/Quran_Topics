@@ -5,4 +5,4 @@
   * What is my Qudrat
   * Who has created you?
 * How you should spend you life in this world.
-* Follos His guided path (We'll get Izzat in both dunya and akhira)
+* Follos His guided-path (We'll get Izzat in both dunya-and-akhira.)

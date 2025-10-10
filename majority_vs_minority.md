@@ -1,1 +1,4 @@
+#### Majority versus Minority
+1. Majority follows assumptions
+2. Majority lie
 * __Surah Al-Anaam 6/116__: [˹O Prophet!˺ If you were to obey most of those on earth, they would lead you away from Allah’s Way. They follow nothing but assumptions and do nothing but lie.](https://quranwbw.com/6/116)

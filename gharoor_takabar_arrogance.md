@@ -6,7 +6,7 @@
 * Status, Muqam, Rank
 * Ibadaat (Worship) / Parsai (Piousness)
 * Izzat-daar
-  * `Main koon, Tui-hi Too`
+  * `Main koon, Tui-hi Too` (Do Jaai say agay-ka-safar)
     
 ***
 

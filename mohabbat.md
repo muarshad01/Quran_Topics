@@ -6,6 +6,8 @@
 ***
 
 #### [Increase Your Love for Allah Today | SSA Shah](https://www.youtube.com/watch?v=K7UQEbdHAFc)
+* One-way communication (Namaz and Quran)
+* Two-way communicaiton (Prophet PBUH)
 
 ***
 

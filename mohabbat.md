@@ -8,7 +8,7 @@
 #### [Increase Your Love for Allah Today | SSA Shah](https://www.youtube.com/watch?v=K7UQEbdHAFc)
 * One-way communication (Namaz and Quran)
 * Two-way communicaiton (Prophet PBUH)
-* Allah SWT doesn't need our Ibadaat and Naiki...
+* Allah SWT doesn't need our Ibadaat-and-Naiki...
 * Only for our betterment He sent 124,000 prophets...
 
 ***
@@ -20,7 +20,6 @@
 ***
 
 #### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
-
 * Shamsuddin Turk Pani Pati
 * Sabir Piya Kaliyari
 * When you love someone...follow his do / don't ...reach Rabb.
@@ -32,6 +31,6 @@
 ***
 
 #### [Mohabbat Kab Hoti Hai ? Hazrat Wasif Ali Wasif (R.A)](https://www.youtube.com/shorts/ClRZVQqg8HA)
-* Joo-cheezen hasil-kar rehay-hoo...wohi-cheezen nisar-karna sarooh-kar-doo.
+* Joo-cheezen Hasil-kar rehay-hoo...wohi-cheezen Nisar-karna sarooh-kar-doo.
 
 ***

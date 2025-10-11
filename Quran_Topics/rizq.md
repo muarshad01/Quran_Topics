@@ -1,13 +1,20 @@
 * [Qur’an verses on rizq](https://myislam.org/quran-verses/rizq/)
+
+***
+
 #### [The Path to Blessings in Rizq | SSA Shah](https://www.youtube.com/watch?v=YPwRgKB7P2I)
 
 ***
 
-* Rizq sirf Rooti Nahi
-* Itminan-e-Qalb, Qabooliat, Izzat, `Allah Kay Saath Taluq`
-* Ah Allah, Mujhay apnay sawa bay niyaz kar day
+#### [What matters more: Hard work or Tawakkul? | SSA Shah](https://www.youtube.com/shorts/alc9APZdNjQ)
+
+***
+
+* Rizq sirf-Rooti-Nahi
+* __Itminan-e-Qalb, Qabooliat, Izzat, Allah-Kay-Saath-Taluq__
+* Ah Allah, Mujhay apnay-sawa bay-niyaz kar-day
 * Logon say bay-nizayi
-* `Ya-Wahabu, Ya-Ghaniu, Ya-Razzaqu`
+* __Ya-Wahabu, Ya-Ghaniu, Ya-Razzaqu__
 
 ***
 

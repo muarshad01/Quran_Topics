@@ -1,3 +1,6 @@
+* Darr uss koo hota hai jo apnay liye jeeta ho...jo kisi maqsad kay liye zinda ho...usay koi darr nahi. Wasif Ali Wasif 
+***
+
 #### [Powerful Dua for Hard Times | مصائب اور ظلم و ستم کو دُور کرنے کے لیے بہترین دعا | SSA Shah](https://www.youtube.com/watch?v=78P9gpBQt_M)
 * [Duaa - Battle of Ahzab](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession31.md)
 

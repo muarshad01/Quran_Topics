@@ -90,3 +90,5 @@
 #### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
 
 ***
+
+#### [What Is The Meaning of | Allahu nurus Samawati wal ard'| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)

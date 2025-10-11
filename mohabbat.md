@@ -30,3 +30,8 @@
 #### [Sabir Piya Kaliyari Aur Shamsuddin Turk Pani Pati | SSA Shah](https://www.youtube.com/watch?app=desktop&v=vAQV1gRLnqg)
 
 ***
+
+#### [Mohabbat Kab Hoti Hai ? Hazrat Wasif Ali Wasif (R.A)](https://www.youtube.com/shorts/ClRZVQqg8HA)
+* Joo-cheezen hasil-kar rehay-hoo...wohi-cheezen nisar-karna sarooh-kar-doo.
+
+***

@@ -88,7 +88,7 @@
 *** 
 
 #### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
-* 3-times daily
+* __3-times daily__
 * Wealth-and-Khair in the house
 * __Zalim-Jabir-Shaks: Recite 3-times and then go meet that person__
 * Yum-e-Azam (Yum-e-Taghuban)

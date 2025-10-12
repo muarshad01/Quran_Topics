@@ -2,6 +2,16 @@
 
 ***
 
+#### [How to strengthen your heart in tough times?](https://www.youtube.com/watch?v=4_mcKCtfklQ)
+* Raziq Rabb hai
+* Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
+* Nuqsaan-o-Faidq sabb Rabb kay hukum-say-hai
+* "Inna Allaha ala-kulli-shayin Qadeer" (إِنَّ اللَّهَ عَلَىٰ كُلِّ شَيْءٍ قَدِيرٌ)
+* XXX
+* Apnay Rabb par andha-Yaqeen Karna-seekh-layn
+
+***
+
 #### [How to Rely on Allah (SWT)](https://www.youtube.com/shorts/RoGI9xMJJaI)
 * Allah SWT doesn't like lazy-people.
 * Allah SWT likes those who strive like-Mujahids

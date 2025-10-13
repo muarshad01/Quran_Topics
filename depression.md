@@ -6,6 +6,10 @@
 
 *** 
 
+#### [Treatment of Mental Illnesses and Phobiasin the Light of Quran and Sunnah | Irfan-ul-Haq](https://www.youtube.com/watch?v=PR9mZIe4Zas)
+
+***
+
 #### [Fear, frustration, anxiety, depression and stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
 
 ***

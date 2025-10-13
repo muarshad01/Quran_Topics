@@ -11,6 +11,10 @@
 
 ***
 
+* __Surah 17/80__: [وَقُل رَّبِّ أَدْخِلْنِى مُدْخَلَ صِدْقٍۢ وَأَخْرِجْنِى مُخْرَجَ صِدْقٍۢ وَٱجْعَل لِّى مِن لَّدُنكَ سُلْطَـٰنًۭا نَّصِيرًۭا](https://quran.com/17/80)
+
+***
+
 #### [23. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
 * __Al-Khafidu__
 * Adaad 1481 = 1+4+8+1 = 5

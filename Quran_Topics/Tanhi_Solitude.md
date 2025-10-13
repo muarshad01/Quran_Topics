@@ -4,6 +4,12 @@
   
 ***
 
+* Khamooshi-ikhtayaar-karoo...Allah SWT say talaq qaim-hoo jaya-goo.
+* Prophet PBUH, Juma Khutba was only 9-10 minutes; All other things were demonstrated practically.
+* STOP giving advices. Do self-analysis.
+
+***
+
 ## [Why God is alone, but he forced men to live in societies | Professor ARA](https://www.youtube.com/watch?v=R_P9BAf0UZ0)
 
 ***

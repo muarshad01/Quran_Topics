@@ -125,4 +125,9 @@
 ```
 Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” from ‘Abdullaah (ibn Mas’ood  may  Allaah  be  pleased  with  him) that he recited the Quran in the ear of an afflicted person and then the latter regained consciousness. Then, the Prophet  sallallaahu  `alayhi  wa  sallam ( may  Allaah exalt his mention ) said: “What did you recite in his ear?” He said: “I recited {Then did you think that We created you uselessly and that to Us you would not be returned?” So exalted is Allaah, the Sovereign, the Truth; there is no deity except Him, Lord of the Noble Throne. And whoever invokes besides Allaah another deity for which he has no proof— then his account is only with his Lord. Indeed, the disbelievers will not succeed. And, [O Muhammad  sallallaahu  `alayhi  wa  sallam ( may  Allaah exalt his mention )], say, “My Lord, forgive and have mercy, and You are the best of the merciful.”}[Quran 23:115-118] Then, the Prophet  sallallaahu  `alayhi  wa  sallam ( may  Allaah exalt his mention ) said: “If a man who has a firm belief recites it on a mountain, it would have collapsed.”
 ```
+
+***
+
+![Khidir AS dua in Tough Time](https://github.com/muarshad01/Quran_Topics/blob/main/images/khidir-as-dua.png)
+
 ***

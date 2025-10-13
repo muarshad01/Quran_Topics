@@ -35,6 +35,11 @@
 
 ***
 
+### [Bismillah 50x times](https://www.youtube.com/shorts/_S9wB-InCSs)
+* Recite 50x. Blow on both-hands and rub-on-face.
+
+***
+
 #### [45. Benefits of Allah Name Al-Mujeebo | Dr. Mufti Muneer Ahmed Ahmed Akhoon](https://www.youtube.com/watch?v=DMXsuhT_LOY)
 * __Al-Mujeebu__
 * Adaad 55 = 5+5 = 10 = 1
@@ -109,10 +114,6 @@
 
 ### [Muqadma mein kamyabi ka wazifa](https://www.youtube.com/watch?v=8BNlqrPrOt8)
 * __Surah 17/81__: [وَقُلْ جَآءَ ٱلْحَقُّ وَزَهَقَ ٱلْبَـٰطِلُ ۚ إِنَّ ٱلْبَـٰطِلَ كَانَ زَهُوقًۭا](https://quran.com/17/81)
-
-***
-
-### [Bismillah 50x times](https://www.youtube.com/shorts/_S9wB-InCSs)
 
 ***
 

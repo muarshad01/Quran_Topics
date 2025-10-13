@@ -1,4 +1,5 @@
-* Darr uss koo hota hai jo apnay liye jeeta ho...jo kisi maqsad kay liye zinda ho...usay koi darr nahi. Wasif Ali Wasif 
+* Darr uss-koo-hota-hai jo-apnay-liye jeeta-ho...jo kisi-maqsad kay-liye zinda-ho...usay koi-darr-nahi. Wasif Ali Wasif 
+
 ***
 
 #### [Powerful Dua for Hard Times | مصائب اور ظلم و ستم کو دُور کرنے کے لیے بہترین دعا | SSA Shah](https://www.youtube.com/watch?v=78P9gpBQt_M)
@@ -12,6 +13,7 @@
 ***
 
 * __Surah 17/80__: [وَقُل رَّبِّ أَدْخِلْنِى مُدْخَلَ صِدْقٍۢ وَأَخْرِجْنِى مُخْرَجَ صِدْقٍۢ وَٱجْعَل لِّى مِن لَّدُنكَ سُلْطَـٰنًۭا نَّصِيرًۭا](https://quran.com/17/80)
+* __Surah 36/9__: [وَجَعَلْنَا مِنۢ بَيْنِ أَيْدِيهِمْ سَدًّۭا وَمِنْ خَلْفِهِمْ سَدًّۭا فَأَغْشَيْنَـٰهُمْ فَهُمْ لَا يُبْصِرُونَ](https://quran.com/36/9)
 
 ***
 

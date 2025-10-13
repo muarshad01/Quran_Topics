@@ -340,3 +340,5 @@ https://quran.com/12/101
 3. Battle of Badr - 313
 
 ***
+
+* [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)

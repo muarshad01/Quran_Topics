@@ -1,6 +1,10 @@
+* Insaan hamaisha-apni-Zaban-kay-haathon pannsh-jata-hai
+
+***
+
 #### [Let No One See Your Inner Self | Teachings of Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=WJMuxErnyEc)
 * I mistakenly picked-up his Tasbeeh and started to play with it...
-* Kya tum yeah chahatay hoo kay. loog-tumhayn naik-samajh-kar salaam-karayn.
+* Kya tum-yeah-chahatay-hoo-kay ... loog-tumhayn naik-samajh-kar Salaam-karayn.
   
 ***
 
@@ -11,10 +15,6 @@
 ***
 
 ## [Why God is alone, but he forced men to live in societies | Professor ARA](https://www.youtube.com/watch?v=R_P9BAf0UZ0)
-
-***
-
-* Insaan hamaisha-apni-zaban-kay-haathon pannsh-jata-hai
 
 ***
 
@@ -29,5 +29,4 @@
 
 #### [Tanha Se Tanha Ka Taaluq | Forty Rules of Love | Irfan-ul-Haq](https://www.youtube.com/watch?v=PpQbDGwcm2M)
 
-***
 ***

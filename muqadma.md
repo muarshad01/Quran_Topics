@@ -131,3 +131,11 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ![Dua E Khidhar AS](https://github.com/muarshad01/Quran_Topics/blob/main/images/khidir-as-dua.png)
 
 ***
+
+Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon
+11-times Tauz
+3-times Surah Fatiha with Tasmia
+3-times Surah Ikhlas
+3-times Aytul Kursi
+3-times Surah Falaq
+3-times Surah Naas

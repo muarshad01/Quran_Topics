@@ -18,3 +18,7 @@
 * When you love someone...follow his do / don't ...reach Rabb.
 
 ***
+
+* Hazrat Bayazid Bastami
+
+*** 

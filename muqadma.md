@@ -128,6 +128,6 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 
 ***
 
-![Khidir AS dua in Tough Time](https://github.com/muarshad01/Quran_Topics/blob/main/images/khidir-as-dua.png)
+![Dua E Khidhar AS](https://github.com/muarshad01/Quran_Topics/blob/main/images/khidir-as-dua.png)
 
 ***

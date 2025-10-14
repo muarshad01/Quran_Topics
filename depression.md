@@ -1,8 +1,8 @@
 #### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
-* Ya Salaamu
-* Ya Rehmanu
-* Ya Waliu
-* Ya Zal-Jalal wal Ikram
+* Ya-Salaam-u
+* Ya-Rehman-u
+* Ya-Wali-u
+* Ya-ZalJalal-wal-Ikram
 
 *** 
 

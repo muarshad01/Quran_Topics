@@ -14,7 +14,9 @@
 
 ***
 
-#### [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
+#### [Fear, frustration، depression-ka-elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
+* __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
+* __Surah 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quran.com/29/45)
 
 ***
 

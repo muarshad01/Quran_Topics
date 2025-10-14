@@ -7,7 +7,6 @@
 ***
 
 #### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
-* 
 
 *** 
 

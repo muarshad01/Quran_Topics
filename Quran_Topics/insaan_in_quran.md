@@ -1,4 +1,5 @@
-### [Hazrat Adam (A.S) Ko Mukhtalif Mitti Se Kyun Banaya? Zabardast Maloomat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
+#### [Hazrat Adam (A.S) Ko Mukhtalif-Mitti Se Kyun-Banaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
+
 
 ***
 

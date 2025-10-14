@@ -34,6 +34,6 @@
 ***
 
 #### [ Talk with Allah and Prophet Muhammad SAW | SSA Shah](https://www.youtube.com/shorts/zeppQKmGgzg)
-* Ya-Rasool-Allah-SWT mujhay iss-takleef / aazmaish say nikalayee.
+* Ya-Rasool-Allah-SWT mujhay iss-takleef-aazmaish say nikalayee.
 
 ***

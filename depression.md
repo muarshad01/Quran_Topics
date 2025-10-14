@@ -7,6 +7,12 @@
 *** 
 
 #### [Treatment of Mental Illnesses and Phobiasin the Light of Quran and Sunnah | Irfan-ul-Haq](https://www.youtube.com/watch?v=PR9mZIe4Zas)
+* Mental Illness - Blood; Genetic;
+* Phobia are psychological diseases:
+  * Self, society, state
+  * Treatment: Conversation
+  * Timardari...
+* Find people in society who don't complain
 
 ***
 

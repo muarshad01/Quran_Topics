@@ -11,6 +11,8 @@
 *** 
 
 #### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)
+* Non-ulcer dyspepsia: 
+* Irritable bowl syndrome:
 
 ***
 

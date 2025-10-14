@@ -26,6 +26,7 @@
 
 #### [Fear, frustration, anxiety, depression and stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
 * __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
+* __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ](https://quran.com/2/200)
 
 ***
 

@@ -1,5 +1,9 @@
 #### [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
-* Jab Insaan, kisi-bhi-andaaz-mayn Rabb ki taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh woo Zikr hai.
+* Jab Insaan, kisi-bhi-andaaz-mayn Rabb-ki-taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh-woo Zikr-hai.
+
+***
+
+#### [Ibn ‘Abbas reported God’s messenger as saying, “The devil is couching at the heart of the son of Adam. When he mentions God he withdraws, but when he is neglectful he makes evil suggestions.”](https://sunnah.com/mishkat:2281) - Mishkat al-Masabih 2281
 
 ***
 

@@ -43,7 +43,7 @@
 
 ### Al-Mutatahirina
 * __Surah Al-Baqarah 2/222 (al-mutatahirina)__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quranwbw.com/2/222)
-
+   * Dress, Body (Jism), Rooh, Thinking (Sooch)
 *  __Surah At-Tauba 9/108 (al-mutahirina)__: [Do not ˹O Prophet˺ ever pray in it. Certainly, a mosque founded on righteousness from the first day is more worthy of your prayers. In it are men who love to be purified. And Allah loves those who purify themselves.](https://quranwbw.com/9/108).
     * "Mosque of Harm" (Masjid al-Dirar)
 
@@ -113,5 +113,7 @@
 
 #### [Allah ke pasandeeda Log | Irfan-ul-Haq](https://www.youtube.com/watch?v=JILzg7apvaI)
 * __Surah 2/195 (Naiki)__: [وَأَنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ وَلَا تُلْقُوا۟ بِأَيْدِيكُمْ إِلَى ٱلتَّهْلُكَةِ ۛ وَأَحْسِنُوٓا۟ ۛ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/2/195)
+* __Surah 3/146 (Perseverance)__: [وَكَأَيِّن مِّن نَّبِىٍّۢ قَـٰتَلَ مَعَهُۥ رِبِّيُّونَ كَثِيرٌۭ فَمَا وَهَنُوا۟ لِمَآ أَصَابَهُمْ فِى سَبِيلِ ٱللَّهِ وَمَا ضَعُفُوا۟ وَمَا ٱسْتَكَانُوا۟ ۗ وَٱللَّهُ يُحِبُّ ٱلصَّـٰبِرِينَ](https://quran.com/3/146)
+__Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ ٱللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ ٱلْقَلْبِ لَٱنفَضُّوا۟ مِنْ حَوْلِكَ ۖ فَٱعْفُ عَنْهُمْ وَٱسْتَغْفِرْ لَهُمْ وَشَاوِرْهُمْ فِى ٱلْأَمْرِ ۖ فَإِذَا عَزَمْتَ فَتَوَكَّلْ عَلَى ٱللَّهِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ](https://quran.com/3/159)
 
 *** 

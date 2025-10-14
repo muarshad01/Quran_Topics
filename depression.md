@@ -1,4 +1,4 @@
-#### [Depression Ka Elaaj](https://www.youtube.com/shorts/YRJVg5XRdHQ)
+#### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
 * Ya Salaamu
 * Ya Rehmanu
 * Ya Waliu

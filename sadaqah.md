@@ -7,6 +7,10 @@
 
 ***
 
+#### [Charity Prevents Evil| What If the Problems are not Solved Sfter Giving Charity | Irfan-ul-Haq](https://www.youtube.com/watch?v=PGQiXyGCOCg)
+
+***
+
 #### [Qur’an verses on charity/sadaqah](https://myislam.org/quran-verses/charity/)
 
 * __Surah 2/254__: [](The Sadaqah you give is from Allah)

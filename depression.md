@@ -11,8 +11,11 @@
 *** 
 
 #### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)
-* Non-ulcer dyspepsia: 
-* Irritable bowl syndrome:
+1. Non-ulcer dyspepsia: 
+2. Irritable bowl syndrome:
+* Fear-and-frustrations: Mood regulations; religious distance; confusions
+  * Dopamine
+  * Serotonin
 
 ***
 

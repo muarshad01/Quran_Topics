@@ -1,3 +1,8 @@
+#### [Ziyarat Rasool ﷺ Ka Ammal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DmZBlWnIqiM)
+* Darood-e-Khizri 400x daily for 41 days.
+  
+***
+
 #### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
 
 ***

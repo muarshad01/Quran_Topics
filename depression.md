@@ -4,7 +4,16 @@
 * Ya-Wali-u
 * Ya-ZalJalal-wal-Ikram
 
+***
+
+#### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
+* 
+
 *** 
+
+#### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)
+
+***
 
 #### [Mayoosi Say Nikalne Ka Hal | Irfan-ul-Haq](https://www.youtube.com/watch?v=WOiVXeexw30)
 * __Tasbeeh__: Pakki bayan-karna; tareef karna

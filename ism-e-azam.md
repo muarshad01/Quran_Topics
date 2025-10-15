@@ -32,7 +32,7 @@
 
 ***
 
-### [7-R Ya Hayy o Ya Qayyum and Ya Zal Jalal e Wal Ikram Isme Azam | SSA Shah](https://www.youtube.com/watch?v=fgqEQtajygg)
+### [Ya-Hayy-o-Ya-Qayyum and Ya-ZalJalal-e-Wal-Ikram Ism-e-Azam | SSA Shah](https://www.youtube.com/watch?v=fgqEQtajygg)
 * __Ya-Hayyu Ya-Qayyum__ (Is not Ism-e-Azam; but very close to it)
 * __Ya-Zuljalal Wal Ikram__
 

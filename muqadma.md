@@ -142,3 +142,14 @@ Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon
 3-times Aytul Kursi
 3-times Surah Falaq
 3-times Surah Naas
+
+***
+
+
+#### [Court-Me-Case-Jitne ka Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=RecTScUcTjY)
+* 105 Number
+* 100 times Surah Al-fil
+* keep reciting Surah Al-fil in court room
+* Ya Allah Hu, Ya Azizu, Ya Nasiru, Ya Samadu
+
+***

@@ -1,3 +1,16 @@
+#### [Sadqa Bala Ko Kaise Rokta Hai? | Hifazati Shield Ka Raaz Janiye](https://www.youtube.com/watch?v=myjh60SSh1U)
+* Allah SWT say tijarat
+* Sunday - Yellow things
+* Monday - White things 
+* Tuesday - Mareekh - Red color ka din
+* Wednesday - Atarad (Mercury) Green ka din
+* Thursday - Musthary ka din - Bajra birds
+* Friday - Sweet things. Venus day
+* Saturday - Black things
+  
+
+***
+
 #### [The True Essence of Sadaqah | صدقہ کی حقیقت کیا ہے؟](https://www.youtube.com/watch?v=0bQBMSOAWhA)
 * Sadaqah Khairaat ki-hi aik-shakal-hai
 * __Sadqah raad-e-balaa kehlata-hai__

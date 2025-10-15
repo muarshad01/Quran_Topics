@@ -63,6 +63,7 @@
 * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
 * O originator-of-wonders with goodness, I seek-assistance through-your-mercy.
   * __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir then dua__: Oct 5, start
+* __Immigration__:
 
 ***
 

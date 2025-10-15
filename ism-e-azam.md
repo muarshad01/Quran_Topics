@@ -10,7 +10,8 @@
 * Kun-Fa-Ya-Kun
 * Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years.
 * Ya Latifu Amil - Telepathe
-* 
+* Tazkia-e-Nafs
+* Insaaniyat-ki-Khidmat
 
 ***
 

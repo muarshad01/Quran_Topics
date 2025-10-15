@@ -38,7 +38,7 @@
 
 ***
 
-### [POWERFUL WAZIFA Ya Badi-ul-Ajaib Bil Khair Ya Badio | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=sVFFpRwGaqw)
+### [Powerful Wazifa Ya Badi-ul-Ajaib Bil Khair Ya Badio | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=sVFFpRwGaqw)
 * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
 * Ya Badio: Bay-misal cheezon-ko bagheer-asbab-kay paida-karnay-wala
   * Translation: O originator-of-wonders with goodness, I seek assistance through your mercy.

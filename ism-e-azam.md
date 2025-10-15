@@ -1,14 +1,13 @@
 #### [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
    * [Notes](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession05.md)
-* Rabb ko Dard say pukarna hi, Ism-e-Azam hai
+* Rabb-koo dard-say pukarna hee, Ism-e-Azam hai
 
 ***
 
-#### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
+#### [The Hidden Truth Behind Ism-e-Azam | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
 * Apnay-aur-dushmanoon kay-liye mehrbaan-hoo...uss-ko milta-hai
 
 ***
-
 
 #### [Ye Wazifa 313 Bar Parh Lo | Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
 1. "Alif Lam Meem" (الٓمٓ)

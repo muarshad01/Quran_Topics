@@ -4,8 +4,13 @@
 
 ***
 
-#### [The Hidden Truth Behind Ism-e-Azam | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
+#### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
 * Apnay-aur-dushmanoon kay-liye mehrbaan-hoo...uss-ko milta-hai
+* Saif-e-Zaban
+* Kun-Fa-Ya-Kun
+* Surah Yasin Amil - Cancer
+* Ya Latifu Amil - Telepathe
+* 
 
 ***
 

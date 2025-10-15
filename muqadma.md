@@ -51,6 +51,8 @@
 
 ***
 
+#### [Allah k naam Al Badee k benefits](https://www.youtube.com/watch?v=e8Oh3FYHOWo)
+
 #### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * __Al-Badee__
 * Hadith: [اللَّهُمَّ لاَ إِلَهَ إِلاَّ أَنْتَ الْمَنَّانُ بَدِيعُ السَّمَوَاتِ وَالأَرْضِ ذَا الْجَلاَلِ وَالإِكْرَامِ](https://sunnah.com/tirmidhi:3544) - Tirmidi 3544

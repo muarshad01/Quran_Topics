@@ -122,3 +122,9 @@ https://99namesofallah.name/
 * Sara deen doosray-kay haqq-ko pechana-hai
 
 ***
+
+### [Dushman Ki Kisibe Kisam kay Humle Say Mehfooz Rehne Ka Asan Wazifa | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=-C3Mh4FipMQ)
+* "Al-Jabbar" (ٱلْجَبَّارُ) 
+* __Dushman Ki Kisibe Kisam kay Humle Say Mehfooz Rehne - 216x time__
+
+***

@@ -3,7 +3,7 @@
 
 ***
 
-### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
+#### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
 * What is Life: Dunwaai-zindagi maut-kay intizaar-ka naam-hai.
 * Hamari daimi zindagi ka inhisaar isss aarzi zindagi par hai.
 * Sunnat
@@ -14,7 +14,7 @@
 
 ***
 
-### [Sarfaraz Shah's Big Prediction Proved True | SSA Shah](https://www.youtube.com/watch?v=UNG_jo5bax8)
+#### [Sarfaraz Shah's Big Prediction Proved True | SSA Shah](https://www.youtube.com/watch?v=UNG_jo5bax8)
 * Best of the bad-lot-expires
 * Rabb iss-mulk-ko abb theak kar-raha-hai
 * 2-to-2.5 years
@@ -22,45 +22,45 @@
 
 ***
 
-### [Sarfaraz Shah's Big Prediction Proved True | Pak-Saudi Defence Deal | PM Shehbaz Sharif | Economy](https://www.youtube.com/watch?v=UNG_jo5bax8)
+#### [Sarfaraz Shah's Big Prediction Proved True | Pak-Saudi Defence Deal | PM Shehbaz Sharif | Economy](https://www.youtube.com/watch?v=UNG_jo5bax8)
 * Rabb iss mulk ko teekh kar rahai hai
 * Chanay koi bhi hukumran hoo
 * 2-to-2.5 years
 
 ***
 
-### [Noor-e-Sehar with Syed Sarfraz Ahmad Shah Sahab | 20 September 2025 on Channel 24 Part 1](https://www.youtube.com/watch?v=I-_fq2wnsUg)
+#### [Noor-e-Sehar with Syed Sarfraz Ahmad Shah Sahab | 20 September 2025 on Channel 24 Part 1](https://www.youtube.com/watch?v=I-_fq2wnsUg)
 * __In the next war, forseeable future, India with be defeated such that it will take 50 years to recover.__ 39:10
 * We're not so weak, Bani Israel attack us...it will start their own downfall.
 
 ***
 
-### [Exclusive Interview with Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=s6T4gXdttC0)
+#### [Exclusive Interview with Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=s6T4gXdttC0)
 
 ***
 
-### [Syed Sarfraz Shah Exclusive Interview | Jawab Do | 29 March 2025](https://www.youtube.com/watch?v=FkhLtMD75Ts)
+#### [Syed Sarfraz Shah Exclusive Interview | Jawab Do | 29 March 2025](https://www.youtube.com/watch?v=FkhLtMD75Ts)
 
 ***
 
-### [Syed Sarfraz Shah's Shocking Predictions | Live With Jami | SSA Shah](https://www.youtube.com/watch?v=KwVeG8RpEso)
+#### [Syed Sarfraz Shah's Shocking Predictions | Live With Jami | SSA Shah](https://www.youtube.com/watch?v=KwVeG8RpEso)
 
 ***
 
-### [A Dialogue With History | Orya Maqbool Jan | Irfan-ul-Haq](https://www.youtube.com/watch?v=OZxi6DJonRM)
+#### [A Dialogue With History | Orya Maqbool Jan | Irfan-ul-Haq](https://www.youtube.com/watch?v=OZxi6DJonRM)
 
 ***
 
-### [Pakistan's Future Revealed - Shocking Predictions That Could Change Your Life | SSA Shah](https://www.youtube.com/watch?v=iVZ9pIKSuLE)
+#### [Pakistan's Future Revealed - Shocking Predictions That Could Change Your Life | SSA Shah](https://www.youtube.com/watch?v=iVZ9pIKSuLE)
 
 ***
 
-### [Future Predictions - Hazrat Naimatullah Shah Wali | SSA Shah](https://www.youtube.com/watch?v=D8t-phlphJo)
+#### [Future Predictions - Hazrat Naimatullah Shah Wali | SSA Shah](https://www.youtube.com/watch?v=D8t-phlphJo)
 * Chup-kar-jaa, Rabb-dah-raaz nah-khool
 
 ***
 
-### [Podcast | SSA Shah](https://www.youtube.com/watch?v=ulOkpO__JBo)
+#### [Podcast | SSA Shah](https://www.youtube.com/watch?v=ulOkpO__JBo)
 * Things will settle-down in another-year or so...things will be smooth afterwards
 
 #### Problem versus Symptons-of-Problem

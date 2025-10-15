@@ -5,7 +5,7 @@
 ***
 
 #### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
-* Ism-e-Azam uss ko ata-hota-hai, Joo Apnay-aur-dushmanoon kay-liye mehrbaan-hoo
+* __Ism-e-Azam uss ko ataa-hota-hai, Joo Apnay-aur-Dushmanoon kay-liye mehrbaan-hoo-jai__
 * Saif-e-Zaban
 * Kun-Fa-Ya-Kun
 * Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years.

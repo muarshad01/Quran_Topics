@@ -7,11 +7,12 @@
 #### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
 * __Ism-e-Azam uss ko ataa-hota-hai, Joo Apnay-aur-Dushmanoon kay-liye mehrbaan-hoo-jai__
 * Saif-e-Zaban
-* Kun-Fa-Ya-Kun
+* Kun-FaYa-Kun
 * Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years.
-* Ya Latifu Amil - Telepathe
+* Ya Latifu Amil - Telepathy
 * Tazkia-e-Nafs
 * Insaaniyat-ki-Khidmat
+* __Ya Raqeeb__: 5000 daily for 41-daily: 27:14
 
 ***
 

@@ -51,7 +51,7 @@
 
 ***
 
-#### [Allah k naam Al Badee k benefits](https://www.youtube.com/watch?v=e8Oh3FYHOWo)
+#### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=e8Oh3FYHOWo)
 
 #### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * __Al-Badee__
@@ -61,7 +61,7 @@
 * Adaad 86 = 8+6 = 14 = 5
 * Ya Badi'u al-Samawati wa al-Ard (بديع السموات والأرض)
 * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
-* O originator-of-wonders with goodness, I seek assistance through your mercy.
+* O originator-of-wonders with goodness, I seek-assistance through-your-mercy.
   * __100-times after Isaa-Prayer (12-days) with 11-times Darood Shareef awal / akhir then dua__: Oct 5, start
 
 ***

@@ -1,6 +1,6 @@
 #### [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
    * [Notes](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession05.md)
-* Rabb-koo dard-say pukarna hee, Ism-e-Azam hai
+* __Rabb-koo dard-say pukarna hee, Ism-e-Azam hai__
 
 ***
 

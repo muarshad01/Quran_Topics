@@ -7,6 +7,10 @@
 ***
 
 #### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
+* It travels throgh time and
+* it travels through blood and
+* it travel through the genetic-lenght of a-human-being
+* From Tongue -> Mind -> Heart -> Every drop of blood
 
 ***
 

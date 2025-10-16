@@ -18,7 +18,7 @@
 ***
 
 #### [23. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
-* __Al-Khafidu (الْخَافِضُ)__
+* __Ya-Khafidu (الْخَافِضُ)__
 * Adaad 1481 = 1+4+8+1 = 5
 * __Wazifa for success in Court Case Muqaddama__
 * For success in muqadma

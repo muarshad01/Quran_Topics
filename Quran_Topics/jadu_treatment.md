@@ -225,3 +225,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * https://www.youtube.com/shorts/nnBxv6sfr5k
 
 ***
+
+#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+
+***

@@ -1,3 +1,7 @@
+![Zikr of Rabb](https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png)
+
+***
+
 #### [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
 * Jab Insaan, kisi-bhi-andaaz-mayn Rabb-ki-taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh-woo Zikr-hai.
 

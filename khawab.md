@@ -11,3 +11,7 @@
   * Right Before / After the Fajr prayer 
 
 ***
+
+### [Reality Of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+
+***

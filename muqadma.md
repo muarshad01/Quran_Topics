@@ -1,4 +1,4 @@
-* Darr uss-koo-hota-hai jo-apnay-liye jeeta-ho...jo kisi-maqsad kay-liye zinda-ho...usay koi-darr-nahi. Wasif Ali Wasif 
+* Fear uss-koo-hota-hai jo-apnay-liye jeeta-ho...jo kisi-maqsad kay-liye zinda-ho...usay koi-darr-nahi. Wasif Ali Wasif 
 
 ***
 

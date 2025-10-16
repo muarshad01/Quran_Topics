@@ -42,4 +42,6 @@
 
 *** 
 
+#### [Ghair Allah Ko Sajda Shirk Hai Phir Adam(A.S)Ko Sajda Kyun Karwaya? Zabardast Aitraaz | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=_OdMnvi-XWw)
+
 *** 

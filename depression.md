@@ -6,6 +6,10 @@
 
 ***
 
+#### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
+
+***
+
 #### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
 
 *** 

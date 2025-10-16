@@ -1,4 +1,4 @@
-## Satan Makes You Forget
+### Satan Makes You Forget
 
 * __Surah An-Nisa 4/140__: [He has already revealed to you in the Book that when you hear Allah’s revelations being denied or ridiculed, then do not sit in that company unless they engage in a different topic, or else you will be like them.1 Surely Allah will gather the hypocrites and disbelievers all together in Hell.](https://quran.com/4/140)
 
@@ -6,7 +6,7 @@
   
 * __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.1” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
 
-* https://quranwbw.com/18/24
+* __Surah Al-Kahf 18/24__: [إِلَّآ أَن يَشَآءَ ٱللَّهُ ۚ وَٱذْكُر رَّبَّكَ إِذَا نَسِيتَ وَقُلْ عَسَىٰٓ أَن يَهْدِيَنِ رَبِّى لِأَقْرَبَ مِنْ هَـٰذَا رَشَدًۭا](https://quranwbw.com/18/24)
 * 
 * __Surah Al-Kahf 18/28__: [without adding, “if Allah so wills!” But if you forget, then remember your Lord, and say, “I trust my Lord will guide me to what is more right than this.”](https://quran.com/18/24)
 

@@ -1,4 +1,6 @@
 #### [Tawakkul ALLAH | توکل اللہ | Irfan-ul-Haq](https://www.youtube.com/watch?v=8qCH4FrvpU0&list=PLbL0UiWW7AylndYVrq-HaofHtwSPTjnPu&index=30)
+* Ghebat means not present - Ali KAW
+* Hazrat Ali KAW didn't offer a single prayer where Allah SWT was not present.
 
 ***
 

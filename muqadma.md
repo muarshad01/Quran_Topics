@@ -21,7 +21,7 @@
 * __Ya-Khafidu (الْخَافِضُ)__
 * Adaad 1481 = 1+4+8+1 = 5
 * __Wazifa for success in Court Case Muqaddama__
-* For success in muqadma
+* For success in muqadma:
   * __3-Fasts : After-every-prayer recite Ya-Khafidu 70-times__.
 
 ***
@@ -103,12 +103,12 @@
 
 #### [Surah Taghabun Ka Wazifa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=S0k_1zUvd6M)
 * __3-times daily__
-* Wealth-and-Khair in the house
+  * Wealth-and-Khair in the house
 * __Zalim-Jabir-Shaks: Recite 3-times and then go meet that person__
 * Yum-e-Azam (Yum-e-Taghuban)
-* Sickness: Recite 41-time and blow on that person
+* __Sickness: Recite 41-time and blow on that person__
 * Travel: Recite 3-times
-* __Duas-are-accepted of that person__
+* __Duaas-are-accepted of that Person__
 
 ***
 
@@ -135,7 +135,7 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 
 ***
 
-Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon
+#### [Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=F572fljEHsI)
 11-times Tauz
 3-times Surah Fatiha with Tasmia
 3-times Surah Ikhlas
@@ -149,7 +149,7 @@ Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon
 #### [Court-Me-Case-Jitne ka Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=RecTScUcTjY)
 * 105 Number
 * 100 times Surah Al-fil
-* keep reciting Surah Al-fil in court room
+* __keep reciting Surah Al-fil in court room__
 * Ya Allah Hu, Ya Azizu, Ya Nasiru, Ya Samadu
 
 ***

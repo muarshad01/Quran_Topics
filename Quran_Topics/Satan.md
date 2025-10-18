@@ -1,8 +1,4 @@
-#### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
-
-***
-
-#### [How to shield you deeds from Shaytan?](https://www.youtube.com/shorts/ZvCFMMSwVPI)
+#### A'oodhu billahi min ash-shaytaan-ir-rajeem ( أعوذُ بِٱللَّهِ مِنَ ٱلشَّيۡطَٰنِ ٱلرَّجِيمِ)
 
 ***
 
@@ -12,7 +8,11 @@
 
 ***
 
-#### A'oodhu billahi min ash-shaytaan-ir-rajeem ( أعوذُ بِٱللَّهِ مِنَ ٱلشَّيۡطَٰنِ ٱلرَّجِيمِ)
+#### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
+
+***
+
+#### [How to shield you deeds from Shaytan?](https://www.youtube.com/shorts/ZvCFMMSwVPI)
 
 ***
 
@@ -20,11 +20,11 @@
 
 ***
 
-#### [Role of Iblees In Our Life | Things to Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
+#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
 
 ***
 
-#### [The laughter of devil and the answer of ALLAH | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
+#### [The laughter of devil and the answer of Allah SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
 
 ***
 

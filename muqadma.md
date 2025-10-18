@@ -167,3 +167,11 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 * __Recite 3-times anytime, blow-on-some-matti and throw-matti towards that direction where that enemy lives and then dua__.
 
 ***
+
+#### [Dushman (Enemy) He Mafi-Mangne Ka Wazifa | Surah Aadiyat | Mufti Muneer ahmed Akhoon](https://www.youtube.com/watch?v=LxCLp_yLJcc)
+* Makki
+* 100 - Number
+* 14 - Nazool
+* Recite daily, 7-times, and then blow on that enemy.
+
+***

@@ -30,3 +30,6 @@
 ## Jang-e-Jamal [656 CE]
 * https://www.youtube.com/shorts/r1mCUGqz-n4
 * "Jang-e-Jamal," also known as the Battle of the Camel, was a significant historical event in early Islam. It was a conflict that took place in 656 CE near Basra, Iraq, between the forces of Caliph Ali and those led by Aisha, the Prophet Muhammad's widow, along with Talha and Zubayr. The battle was a result of the power struggle following the assassination of Caliph Uthman, with Aisha and her allies seeking retribution for his death and challenging Ali's legitimacy as Caliph
+
+## Jang-e-khandaq
+* [Jung e Khandaq Ka waqia | Battle of Khandaq Story | Ghazwa e Khandaq| Muhammadﷺ ki zindagi ka waqia](https://www.youtube.com/watch?v=42LUZsS0Wxk)

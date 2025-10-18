@@ -8,5 +8,10 @@
 
 ***
 
-
 * __Surah 6/61__: [وَهُوَ ٱلْقَاهِرُ فَوْقَ عِبَادِهِۦ ۖ وَيُرْسِلُ عَلَيْكُمْ حَفَظَةً حَتَّىٰٓ إِذَا جَآءَ أَحَدَكُمُ ٱلْمَوْتُ تَوَفَّتْهُ رُسُلُنَا وَهُمْ لَا يُفَرِّطُونَ](https://quran.com/6/61)
+
+***
+
+#### [Jibreel (A.S) Aur Sidrat tul-Muntaha | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=W5V0C6fsBpo)
+
+***

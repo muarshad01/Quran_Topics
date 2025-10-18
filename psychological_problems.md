@@ -19,3 +19,7 @@
 * In Quran, Gunah has another meaning too, Israaf.
 
 *** 
+
+#### [What is Schizophrenia?| Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=cXVDDv9sMhY)
+
+***

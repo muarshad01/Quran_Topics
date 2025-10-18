@@ -12,11 +12,7 @@
 
 ***
 
-#### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
-
-***
-
-#### [Shataan Can't Mislead You](https://www.youtube.com/shorts/tekCVsRSMGs)
+#### [Shataan Can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
 
 ***
 
@@ -294,5 +290,9 @@
 
 #### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
 * Hazrat Issa AS and his mother Maryam AS
+
+***
+
+#### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
 
 ***

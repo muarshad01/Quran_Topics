@@ -236,13 +236,30 @@
 
 ***
 
-### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer](https://www.youtube.com/watch?v=_OdMnvi-XWw)
-* __Surah 2/24__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+#### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer](https://www.youtube.com/watch?v=_OdMnvi-XWw)
+* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
 * __Li-aadama__: Laam is like Ila.
   * Adam-ko-nahi balkay adam-ki-taraf
 * Bait-ullah ki-taraf Sajdah karo (direction), but in-fact Sajdah is to Allah SWT.
 * 1 - Adam is like a Qibla-o-Kabba, but in-fact Sajdah is to Allah SWT.
 * 2 - It was __Sajdah-e-Tazeem__ and not __Sajdah-e-Ibadah__
   * Hazrat Yusuf AS ko Sajdah by his father-and-brothers
+
+***
+
+#### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
+* Faristoon ka mudariss
+* __Surah 2/33__: [قَالَ يَـٰٓـَٔادَمُ أَنۢبِئْهُم بِأَسْمَآئِهِمْ ۖ فَلَمَّآ أَنۢبَأَهُم بِأَسْمَآئِهِمْ قَالَ أَلَمْ أَقُل لَّكُمْ إِنِّىٓ أَعْلَمُ غَيْبَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَأَعْلَمُ مَا تُبْدُونَ وَمَا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/33)
+* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+
+
+***
+
+#### [Sajday Ka Hukm To Farishton Ko Tha Phir Iblees Ko Kyun Nikala? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0KOYJHscBdU)
+* Angels are in majority there...
+* __Surah 38/75__: [قَالَ يَـٰٓإِبْلِيسُ مَا مَنَعَكَ أَن تَسْجُدَ لِمَا خَلَقْتُ بِيَدَىَّ ۖ أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ](https://quran.com/38/75)
+* Hukum of Allah SWT was also to Iblis as well...
+* __Surah 38/76__: [قَالَ أَنَا۠ خَيْرٌۭ مِّنْهُ ۖ خَلَقْتَنِى مِن نَّارٍۢ وَخَلَقْتَهُۥ مِن طِينٍۢ](https://quran.com/38/76)
+* __Surah 2/34__: [وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
 
 ***

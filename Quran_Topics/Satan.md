@@ -8,7 +8,6 @@
 #### [Role of Iblees In Our Life | Things to Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
 #### [The laughter of devil and the answer of ALLAH | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
 #### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
-#### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
 #### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
 #### [Shaitan Se Bachao | SSA Shah](https://www.youtube.com/watch?v=vpjMXsA778c)
 
@@ -263,5 +262,14 @@
 * __Surah 38/76__: [قَالَ أَنَا۠ خَيْرٌۭ مِّنْهُ ۖ خَلَقْتَنِى مِن نَّارٍۢ وَخَلَقْتَهُۥ مِن طِينٍۢ](https://quran.com/38/76)
 * __Surah 2/34__: [وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
   * Why became Kafir?
+
+***
+
+#### [Shaitan Ne Jab Apna Bacha Hawwa (A.S) Ke Paas Chhoda | Adam (A.S) Ne Usay Kyun Qatal Kiya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0ZMPOh_-QaI)
+
+***
+
+#### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
+* Hazrat Issa AS and his mother Maryam AS
 
 ***

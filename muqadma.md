@@ -83,6 +83,11 @@
 
 ***
 
+#### [Fasayak fi kahumullah wahuwas samiul alim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/rjvFM2ZDnsE)
+* 101 times after Fajr
+
+*** 
+
 #### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
 * __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
 

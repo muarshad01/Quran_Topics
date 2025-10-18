@@ -1,3 +1,7 @@
+#### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
+
+***
+
 #### [How to shield you deeds from Shaytan?](https://www.youtube.com/shorts/ZvCFMMSwVPI)
 
 ***
@@ -25,10 +29,6 @@
 ***
 
 #### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
-
-***
-
-#### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
 
 ***
 

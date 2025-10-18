@@ -23,3 +23,7 @@
 #### [What is Schizophrenia?| Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=cXVDDv9sMhY)
 
 ***
+
+#### [Pattern of psychiatric issues | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1nRQw1Em7kA)
+
+***

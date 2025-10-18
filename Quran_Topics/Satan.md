@@ -256,10 +256,12 @@
 ***
 
 #### [Sajday Ka Hukm To Farishton Ko Tha Phir Iblees Ko Kyun Nikala? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0KOYJHscBdU)
-* Angels are in majority there...
+* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+  * Angels are in majority there...
 * __Surah 38/75__: [قَالَ يَـٰٓإِبْلِيسُ مَا مَنَعَكَ أَن تَسْجُدَ لِمَا خَلَقْتُ بِيَدَىَّ ۖ أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ](https://quran.com/38/75)
-* Hukum of Allah SWT was also to Iblis as well...
+  * Hukum of Allah SWT was also to Iblis as well...
 * __Surah 38/76__: [قَالَ أَنَا۠ خَيْرٌۭ مِّنْهُ ۖ خَلَقْتَنِى مِن نَّارٍۢ وَخَلَقْتَهُۥ مِن طِينٍۢ](https://quran.com/38/76)
 * __Surah 2/34__: [وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+  * Why became Kafir?
 
 ***

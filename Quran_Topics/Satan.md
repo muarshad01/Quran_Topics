@@ -235,3 +235,14 @@
 * __Surah Al-Mulk 67/5__: [وَلَقَدْ زَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا بِمَصَـٰبِيحَ وَجَعَلْنَـٰهَا رُجُومًۭا لِّلشَّيَـٰطِينِ ۖ وَأَعْتَدْنَا لَهُمْ عَذَابَ ٱلسَّعِيرِ](https://quranwbw.com/67/5)
 
 ***
+
+### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer](https://www.youtube.com/watch?v=_OdMnvi-XWw)
+* __Surah 2/24__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+* __Li-aadama__: Laam is like Ila.
+  * Adam-ko-nahi balkay adam-ki-taraf
+* Bait-ullah ki-taraf Sajdah karo (direction), but in-fact Sajdah is to Allah SWT.
+* 1 - Adam is like a Qibla-o-Kabba, but in-fact Sajdah is to Allah SWT.
+* 2 - It was __Sajdah-e-Tazeem__ and not __Sajdah-e-Ibadah__
+  * Hazrat Yusuf AS ko Sajdah by his father-and-brothers
+
+***

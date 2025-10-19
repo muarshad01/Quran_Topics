@@ -62,12 +62,24 @@ https://99namesofallah.name/
 
 ***
 #### [05. Benefits of Allah Name Ya-Salamo  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=_47qpvlEtfA)
-### [06. Benefits of Allah Name Al-Muʿumin | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8bT3V9FtCUU)
-### [07. Benefits of Allah Name ...]()
-### [08. Benefits of Allah Name Al-Aziz       | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=XrU1dUgY9HQ)
-### [09. Benefits of Allah Name Al-Jabbar     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PP8_BPnr5Wg)
-### [10. Benefits of Allah Name Al-Mutakabbir | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=4kgPJCxr9CI)
-### []()
+
+***
+#### [06. Benefits of Allah Name Al-Muʿumin | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8bT3V9FtCUU)
+
+***
+#### [07. Benefits of Allah Name ...]()
+
+***
+#### [08. Benefits of Allah Name Al-Aziz       | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=XrU1dUgY9HQ)
+
+***
+#### [09. Benefits of Allah Name Al-Jabbar     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PP8_BPnr5Wg)
+
+***
+#### [10. Benefits of Allah Name Al-Mutakabbir | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=4kgPJCxr9CI)
+
+***
+#### []()
 ### [11. Benefits of Allah Name Ya-Khaliq   | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=EdH3d99976A)
 ### [12. Benefits of Allah Name AL-BARI     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
 ### [13. Benefits of Allah Name Al-MUSAVIRO | Mufti Muneer Akhoon](https://www.youtube.com/watch?app=desktop&v=2nSEUWVHiOA)

@@ -1,3 +1,8 @@
+#### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Professor ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
+* The best thing I give to my Bandoon is Salaam.
+
+***
+
 #### [The Real Purpose of Tasbeeh | SSAShah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Tasbeeh -> Concentration Span -> Ghor-o-Fikr -> Nuqta-hai-raaz ko hal karna seekh laitay hayn -> Qudrah of Allah SWT -> We meet Rabb.
   

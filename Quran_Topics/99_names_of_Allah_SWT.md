@@ -155,7 +155,10 @@
 
 ***
 
-#### [18. Benefits of Allah Name Al-Fattah | Mufti Muneer Akhoon]()
+#### [18. Benefits of Allah Name Al-Fattah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=vIG0FoA0Pz8)
+* Sabb kay liye rehmat kay darwazay khoolnay wala
+* Appeared once in Quran
+* Adaad - 489 - mufrid 21
 
 ***
 

@@ -71,14 +71,24 @@
 ***
 
 #### [05. Benefits of Allah Name Ya-Salamo  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=_47qpvlEtfA)
+* Bimarayoon say nijaat...
+* __Khauf-aur-deshawt will go away__...
 
 ***
 
 #### [06. Benefits of Allah Name Al-Muʿumin | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8bT3V9FtCUU)
+* __Khauf-aur-deshawt will go away__...
+* __Muqadma / Police Case__
+* __For Air-travel, Recite 500-times Ya Salaamu Ya Muminu awal/akhir 11-times darood-ibrahimi__
 
 ***
 
-#### [07. Benefits of Allah Name ...]()
+#### [07. Benefits of Allah Name Al-Muhaymin | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=2aRw8btOvQ0)
+* Puri-Puri-nighabnai karnay-wala
+* Only once in Quran
+* Addad: 145
+* Dil-ki-murad...
+* Hifazat
 
 ***
 
@@ -94,22 +104,49 @@
 
 ***
 
-#### []()
-
-### [11. Benefits of Allah Name Ya-Khaliq   | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=EdH3d99976A)
-### [12. Benefits of Allah Name AL-BARI     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
-### [13. Benefits of Allah Name Al-MUSAVIRO | Mufti Muneer Akhoon](https://www.youtube.com/watch?app=desktop&v=2nSEUWVHiOA)
-### [14. ]()
-### [15. Benefits of Allah Name Al-Qahhar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GKlZI5LDwik)
-### [16. ]()
-### [17. ]()
-### [18. ]()
-### [19. Benefits of Allah Name Al-Aleem  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=kg8aW630tuc)
-### [20. ]()
-### [21. ]()
-### [22. ]()
+#### [11. Benefits of Allah Name Ya-Khaliq   | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=EdH3d99976A)
 
 ***
+
+#### [12. Benefits of Allah Name AL-BARI     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
+
+***
+
+#### [13. Benefits of Allah Name Al-MUSAVIRO | Mufti Muneer Akhoon](https://www.youtube.com/watch?app=desktop&v=2nSEUWVHiOA)
+
+***
+
+#### [14. ]()
+
+***
+
+#### [15. Benefits of Allah Name Al-Qahhar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GKlZI5LDwik)
+
+***
+
+#### [16. ]()
+
+***
+
+#### [17. ]()
+
+***
+
+#### [18. ]()
+
+***
+
+#### [19. Benefits of Allah Name Al-Aleem  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=kg8aW630tuc)
+
+***
+
+#### [20. ]()
+
+***
+
+#### [21. ]()
+
+#### [22. ]()
 
 #### [23. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
 * __Al-Khafidu__

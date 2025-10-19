@@ -126,6 +126,9 @@
 ***
 
 #### [13. Benefits of Allah Name Al-Musaviro | Mufti Muneer Akhoon](https://www.youtube.com/watch?app=desktop&v=2nSEUWVHiOA)
+* 1-time in Quran
+* Adaad 336 - mufrid adaad 12
+* For son: Recite 7-times
 
 ***
 
@@ -177,15 +180,18 @@
 
 ***
 
-#### [24. ]()
-#### [25. ]()
-#### [26. ]()
-#### [27. ]()
-#### [28. ]()
-#### [29. ]()
-#### [30. ]()
-#### [31. ]()
-#### [32. ]()
+Ar-Rafi
+
+#### [23. Ar-Rafi]()
+#### [24. Al-Mu’izz]()
+#### [25. Al-Muzil]()
+#### [26. As-Sami’]()
+#### [27. Al-Baseer]()
+#### [28. Al-Hakam]()
+#### [29. Al-Adl]()
+#### [30. Al-Lateef]()
+#### [31. Al-Khabeer]()
+#### [32. Al-Khabeer]()
 
 ***
 
@@ -208,6 +214,13 @@
   * Keep reciting __Ya-Mujeebu__ when you go-to-court
 
 ***
+
+#### [56. Benefits of Allah Name Al-Waliyy| Mufti Muneer Akhoon](https://www.youtube.com/watch?v=XPBnIFUV9Hk)
+* 15 times in Quran
+* Adaad
+
+***
+
 
 #### [96. Benefits of Allah Name Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * __Al-Badee__

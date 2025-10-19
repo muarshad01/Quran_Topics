@@ -28,9 +28,22 @@ https://99namesofallah.name/
 
 ***
 
-### [00. Benefits of Allah Name Ar-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
-### [01. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
-### [02. Benefits of Allah Name Al-Raheemo | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=3DDo4dY-Yy4)
+#### [02. Benefits of Allah Name Ar-Rehman | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
+* __Surah 6/64__: [عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+* Bay-haad Reham kaynay-wala (Momin, Kafir, sabb bilaa-tafreeq)
+* Rizq, Shafqat-o-Mohabbat, Balaon-Afatoon-Musibatoon say bachata
+* __Rehman__: Manga-jaye to khush-hoo; Na-manga-jaye to naraz-hoo.
+
+***
+
+#### [01. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
+
+***
+
+#### [02. Benefits of Allah Name Al-Raheemo | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=3DDo4dY-Yy4)
+
+***
+
 ### [03. Benefits of Allah Name Al-Malik   | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=jFOb-rgL9rc)
 ### [04. Benefits of Allah Name Al-Quddus  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=n2z_uCg3X8M)
 ### [05. Benefits of Allah Name Ya-Salamo  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=_47qpvlEtfA)

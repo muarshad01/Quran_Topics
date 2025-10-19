@@ -15,6 +15,7 @@
 #### [Meaning of Word Allah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PFyyJ-lDqbA)
 
 ***
+
 https://99namesofallah.name/
 
 ***
@@ -23,8 +24,7 @@ https://99namesofallah.name/
 
 ***
 
-### [Allah Kay 4-Nam Ju Na-Mumkin Ko Mumkin-Bana-Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)
-* 
+#### [Allah Kay 4-Nam Ju Na-Mumkin Ko Mumkin-Bana-Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)
 
 ***
 

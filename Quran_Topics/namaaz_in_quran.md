@@ -60,6 +60,11 @@
 
 ***
 
+#### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
+* __Iss-namaz-ko ada-karnay-wala, Allah-kay behaad-qareeb ho-jaata-hai__
+
+***
+
 #### [Baroz Itwar Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
 * Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai
 * Insaan kay dil say dunya-ki-mohabbat nikalnay lagti-hai
@@ -71,11 +76,6 @@
 ***
 
 #### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
-
-***
-
-#### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
-* __Iss-namaz-ko ada-karnay-wala, Allah-kay behaad-qareeb ho-jaata-hai__
 
 ***
 

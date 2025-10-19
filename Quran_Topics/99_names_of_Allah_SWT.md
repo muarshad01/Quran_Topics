@@ -37,7 +37,11 @@ https://99namesofallah.name/
 
 ***
 
-#### [01. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
+#### [02. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
+* Dil-ki-ghaflat ko doar-karna
+* Forgetting disease (Nisaan)
+* Dynwai-maumalat mayn-rakawat (125-times after Namaz)
+* Baad-Ikhlaq Person
 
 ***
 

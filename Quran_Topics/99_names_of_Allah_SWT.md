@@ -163,6 +163,18 @@
 ***
 
 #### [19. Benefits of Allah Name Al-Aleem  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=kg8aW630tuc)
+* Saab-kuch Jaan-nay-wala
+* Addad= 150 - mufrid 6
+* Aleem - 157 times
+* Al-Alamu - 13 times
+* Alam-ul-ghayub - 2 time
+* Ilm-o-marfat kay darwazay...
+* Hafiza (memory) qawi-hoo-jay
+* Kaam-jaldi-hoo jai-karain
+* Sahib-e-yaqeen
+* Sahib-e-Kashf (101 times every name Alam-ul-Ghayub)
+* Istikhara: In mosque, Ya Aleemu (150 times before sleep); Shab-e-Jumma
+* Ilm-e-khawas...
 
 ***
 

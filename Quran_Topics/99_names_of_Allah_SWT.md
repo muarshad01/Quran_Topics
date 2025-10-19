@@ -93,6 +93,9 @@
 ***
 
 #### [08. Benefits of Allah Name Al-Aziz       | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=XrU1dUgY9HQ)
+* 411-times
+* __Dushman say Muqabla...recite 70-times...__
+* __Court-Case/Boss...recite 40-times ...then go to court...__
 
 ***
 

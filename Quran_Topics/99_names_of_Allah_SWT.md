@@ -30,7 +30,7 @@ https://99namesofallah.name/
 
 #### [02. Benefits of Allah Name Ar-Rehman | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
 * __Surah 6/64__: [عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-* Bay-haad Reham kaynay-wala (Momin, Kafir, sabb bilaa-tafreeq)
+* Bay-haad-Reham kaynay-wala (Momin, Kafir, sabb bilaa-tafreeq)
 * Rizq, Shafqat-o-Mohabbat, Balaon-Afatoon-Musibatoon say bachata
 * __Rehman__: Manga-jaye to khush-hoo; Na-manga-jaye to naraz-hoo.
 * High fever...

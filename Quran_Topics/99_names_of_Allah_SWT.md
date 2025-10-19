@@ -107,38 +107,41 @@
 ***
 
 #### [10. Benefits of Allah Name Al-Mutakabbir | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=4kgPJCxr9CI)
+* Addad: 662
+* For a Son: Recite 10 time
 
 ***
 
 #### [11. Benefits of Allah Name Ya-Khaliq   | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=EdH3d99976A)
+* Dil-aur-Chehra rooshan-hoo-jai
 
 ***
 
-#### [12. Benefits of Allah Name AL-BARI     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
+#### [12. Benefits of Allah Name AL-Bari     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
 
 ***
 
-#### [13. Benefits of Allah Name Al-MUSAVIRO | Mufti Muneer Akhoon](https://www.youtube.com/watch?app=desktop&v=2nSEUWVHiOA)
+#### [13. Benefits of Allah Name Al-Musaviro | Mufti Muneer Akhoon](https://www.youtube.com/watch?app=desktop&v=2nSEUWVHiOA)
 
 ***
 
-#### [14. ]()
+#### [14. Benefits of Allah Name Al-Ghaffaar | Mufti Muneer Akhoon]()
 
 ***
 
-#### [15. Benefits of Allah Name Al-Qahhar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GKlZI5LDwik)
+#### [15. Benefits of Allah Name Al-Qahhaar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GKlZI5LDwik)
 
 ***
 
-#### [16. ]()
+#### [16. Benefits of Allah Name Al-Wahhab | Mufti Muneer Akhoon]()
 
 ***
 
-#### [17. ]()
+#### [17. Benefits of Allah Name Ar-Razzaq | Mufti Muneer Akhoon]()
 
 ***
 
-#### [18. ]()
+#### [18. Benefits of Allah Name Al-Fattah | Mufti Muneer Akhoon]()
 
 ***
 
@@ -146,15 +149,15 @@
 
 ***
 
-#### [20. ]()
+#### [20. Benefits of Allah Name Al-Qaabid | Mufti Muneer Akhoon]()
 
 ***
 
-#### [21. ]()
+#### [21. Benefits of Allah Name Al-Baasit | Mufti Muneer Akhoon]()
 
-#### [22. ]()
+***
 
-#### [23. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
+#### [22. Benefits of Allah Name Al-Khafizu | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=dcC7ZHResj8)
 * __Al-Khafidu__
 * Adaad 1481 = 1+4+8+1 = 5
 * __Wazifa for success in Court Case Muqaddama__
@@ -163,15 +166,15 @@
 
 ***
 
-### [24. ]()
-### [25. ]()
-### [26. ]()
-### [27. ]()
-### [28. ]()
-### [29. ]()
-### [30. ]()
-### [31. ]()
-### [32. ]()
+#### [24. ]()
+#### [25. ]()
+#### [26. ]()
+#### [27. ]()
+#### [28. ]()
+#### [29. ]()
+#### [30. ]()
+#### [31. ]()
+#### [32. ]()
 
 ***
 

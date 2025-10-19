@@ -117,7 +117,11 @@
 
 ***
 
-#### [12. Benefits of Allah Name AL-Bari     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
+#### [12. Benefits of Allah Name Al-Bari     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sxiTcWi6gn4)
+* Theek-Theek Ijaad karnay-wala...
+* 3-times in Quran
+* Adaad - 213
+* __Ya-Bari Ya-Musivario 100-times for 92 days for aulad-e-naurina__
 
 ***
 
@@ -125,11 +129,12 @@
 
 ***
 
-#### [14. Benefits of Allah Name Al-Ghaffaar | Mufti Muneer Akhoon]()
+#### [14. Benefits of Allah Name Al-Ghaffaar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=BoCAKV-xM2I)
 
 ***
 
 #### [15. Benefits of Allah Name Al-Qahhaar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GKlZI5LDwik)
+
 
 ***
 

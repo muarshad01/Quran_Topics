@@ -4,27 +4,28 @@
 
 ***
 
+* https://99namesofallah.name/
+* __Surah Al-Hashr 59/22-24__: [...](https://quran.com/59/22-24)
+
+***
+
 #### [99 Names of Allah SWT | Irfan-ul-Haq](https://www.youtube.com/shorts/1KUvP00i76s)
 
+***
+
 #### [Why 99 Names of Allah, What is Secret Behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=OY7VFzZtLkg)
+
+***
 
 #### [Why 99 names of Allah, What is the secret behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=eT7nwiIPkI8)
 
 ***
 
-#### [Meaning of Word Allah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PFyyJ-lDqbA)
-
-***
-
-https://99namesofallah.name/
-
-***
-
-* __Surah Al-Hashr 59/22-24__: [...](https://quran.com/59/22-24)
-
-***
-
 #### [Allah Kay 4-Nam Ju Na-Mumkin Ko Mumkin-Bana-Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)
+
+***
+
+#### [Meaning of Word Allah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PFyyJ-lDqbA)
 
 ***
 

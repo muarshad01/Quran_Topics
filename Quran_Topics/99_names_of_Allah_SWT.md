@@ -195,8 +195,6 @@
 
 ***
 
-Ar-Rafi
-
 #### [23. Ar-Rafi]()
 #### [24. Al-Mu’izz]()
 #### [25. Al-Muzil]()
@@ -204,9 +202,20 @@ Ar-Rafi
 #### [27. Al-Baseer]()
 #### [28. Al-Hakam]()
 #### [29. Al-Adl]()
+
+***
+
 #### [30. Al-Lateef]()
-#### [31. Al-Khabeer]()
-#### [32. Al-Khabeer]()
+
+***
+
+#### [31. Benefits of Allah Name  Al-Khabeer](https://www.youtube.com/watch?v=W8AVPSehIjg)
+* 45 times in quran
+* Addad kabir 812 - Addad ausat 11 - addad saghir 2
+* Very important in Rohaniat
+* __Istikhara__: Chilla 41 days - "Ya khabeeru akhbirni" (يَا خَبِيرُ أَخْبِرْنِي) 313-times daily awal/akhir 11 time darood sharif.
+* Zalim say Nijat: 1,000 times daily
+* Ilm-e-khawas
 
 ***
 

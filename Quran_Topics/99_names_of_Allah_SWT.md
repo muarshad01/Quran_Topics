@@ -33,6 +33,7 @@ https://99namesofallah.name/
 * Bay-haad Reham kaynay-wala (Momin, Kafir, sabb bilaa-tafreeq)
 * Rizq, Shafqat-o-Mohabbat, Balaon-Afatoon-Musibatoon say bachata
 * __Rehman__: Manga-jaye to khush-hoo; Na-manga-jaye to naraz-hoo.
+* High fever...
 
 ***
 

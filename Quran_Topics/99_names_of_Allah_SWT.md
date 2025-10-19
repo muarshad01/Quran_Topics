@@ -196,20 +196,44 @@
 ***
 
 #### [23. Ar-Rafi]()
+
+***
+
 #### [24. Al-Mu’izz]()
+
+***
+
 #### [25. Al-Muzil]()
+
+***
+
 #### [26. As-Sami’]()
+
+***
+
 #### [27. Al-Baseer]()
+
+***
+
 #### [28. Al-Hakam]()
+
+***
+
 #### [29. Al-Adl]()
 
 ***
 
-#### [30. Al-Lateef]()
+#### [30. Benefits of Allah Name Al-Lateef | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=tDYXbJPZ3o8)
+* Bareek-Been; Lutf-o-karam kaenay-wala; Mohsin
+* 7-times in Quran
+* Addad 129 - mufrid 3
+* Water
+* Abdul-Latif
+* Bareek-bini-ka-ilm...
 
 ***
 
-#### [31. Benefits of Allah Name  Al-Khabeer](https://www.youtube.com/watch?v=W8AVPSehIjg)
+#### [31. Benefits of Allah Name Al-Khabeer | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=W8AVPSehIjg)
 * 45 times in quran
 * Addad kabir 812 - Addad ausat 11 - addad saghir 2
 * Very important in Rohaniat
@@ -219,7 +243,7 @@
 
 ***
 
-#### [33. Benefits of Allah Name Al-Haleem | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=2h2SClyiRTU)
+#### [33. Benefits of Allah Name Al-Haleem | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=2h2SClyiRTU)
 * __Ya Haleemu__
 * Forbearing (بردبار) and حلم (hilm)
 * Repeated 11-times in Quran
@@ -227,6 +251,20 @@
 * __Judge-Boss-Haakim Apke-Haq-Me Faisla Karne-Ka Asan Wazifa__
   * Boos, Hakim, Baadshah, or Judge-in-court you're meeting and fear the decision will be against you
   * Recite __Ya Haleemu 88-times__ awal/akhir 11-times darood-sharif. Then dumm-the-water and sprinke on hands-and-face. Drink two sips.
+
+***
+
+#### [34. ]()
+#### [35. ]()
+#### [36. ]()
+#### [37. ]()
+#### [38. ]()
+#### [39. ]()
+#### [40. ]()
+#### [41. ]()
+#### [42. ]()
+#### [43. ]()
+#### [44. ]()
 
 ***
 

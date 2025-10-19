@@ -175,3 +175,8 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 * Recite daily, 7-times, and then blow on that enemy.
 
 ***
+
+#### [Dushmano Se Hifazat Chahy? Rasool SAW Ka Btaya Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DHpNxZIU3PY)
+* Duaa during day-and-night...with Allah SWT
+
+***

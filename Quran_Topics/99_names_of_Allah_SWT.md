@@ -130,15 +130,21 @@
 ***
 
 #### [14. Benefits of Allah Name Al-Ghaffaar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=BoCAKV-xM2I)
+* Khoob-bakhsish karnay-wala
+* Adaad: 1281 - mufrad adaad 12
+* 
 
 ***
 
 #### [15. Benefits of Allah Name Al-Qahhaar | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GKlZI5LDwik)
-
+* Sabb-ko apnay qaboo-mayn rakhnay-walaa
+* 6-times in Quran
+* Adaad: 306 - mufrat adaad 9
 
 ***
 
 #### [16. Benefits of Allah Name Al-Wahhab | Mufti Muneer Akhoon]()
+*
 
 ***
 

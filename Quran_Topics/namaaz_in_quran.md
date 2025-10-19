@@ -75,11 +75,12 @@
 ***
 
 #### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
-* Iss-namaz-ko ada-karnay-wala, Allah kay behaad-qareeb ho jaata-hai
+* __Iss-namaz-ko ada-karnay-wala, Allah-kay behaad-qareeb ho-jaata-hai__
+
 ***
 
 #### [Hamari Nimazein Qabool Hone ki Nishaniyan | Irfan-ul-Haq](https://www.youtube.com/watch?v=3JkGS2i4quo&t=1s)
-* __Surah Al-ANkabut 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quranwbw.com/29/45)
+* __Surah Al-Ankabut 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quranwbw.com/29/45)
   * Deter from Indecency and Wickedness - Things having limits set-up by Allah SWT.
   * There is some issue with our `Nayat-and-Ikhlas`
   * Self-monitoring (Tazkia) need to be done...

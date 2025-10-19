@@ -296,3 +296,8 @@
 #### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
 
 ***
+
+#### [Iblees Ki Adam (A.S) aur Hawwa (A.S) Ko Hamesha Zinda Rehnay Ki Offer | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=2oMkoepWNn8)
+* __Surah 2/35__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ وَكُلَا مِنْهَا رَغَدًا حَيْثُ شِئْتُمَا وَلَا تَقْرَبَا هَـٰذِهِ ٱلشَّجَرَةَ فَتَكُونَا مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/2/35)
+
+***

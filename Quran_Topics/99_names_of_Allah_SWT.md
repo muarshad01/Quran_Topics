@@ -4,15 +4,15 @@
 
 ***
 
-### [99 Names of Allah SWT | Irfan-ul-Haq](https://www.youtube.com/shorts/1KUvP00i76s)
+#### [99 Names of Allah SWT | Irfan-ul-Haq](https://www.youtube.com/shorts/1KUvP00i76s)
 
-### [Why 99 Names of Allah, What is Secret Behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=OY7VFzZtLkg)
+#### [Why 99 Names of Allah, What is Secret Behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=OY7VFzZtLkg)
 
-### [Why 99 names of Allah, What is the secret behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=eT7nwiIPkI8)
+#### [Why 99 names of Allah, What is the secret behind it? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=eT7nwiIPkI8)
 
 ***
 
-### [Meaning of Word Allah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PFyyJ-lDqbA)
+#### [Meaning of Word Allah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PFyyJ-lDqbA)
 
 ***
 https://99namesofallah.name/
@@ -28,7 +28,7 @@ https://99namesofallah.name/
 
 ***
 
-#### [02. Benefits of Allah Name Ar-Rehman | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
+#### [01. Benefits of Allah Name Ar-Rehman | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
 * __Surah 6/64__: [عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
 * Bay-haad-Reham kaynay-wala (Momin, Kafir, sabb bilaa-tafreeq)
 * Rizq, Shafqat-o-Mohabbat, Balaon-Afatoon-Musibatoon say bachata
@@ -37,7 +37,7 @@ https://99namesofallah.name/
 
 ***
 
-#### [02. Benefits of Allah Name Al-Rehman  | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
+#### [01. Benefits of Allah Name Ar-Rehman | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=443JHTbb6AM)
 * Dil-ki-ghaflat ko doar-karna
 * Forgetting disease (Nisaan)
 * Dynwai-maumalat mayn-rakawat (125-times after Namaz)
@@ -45,7 +45,12 @@ https://99namesofallah.name/
 
 ***
 
-#### [02. Benefits of Allah Name Al-Raheemo | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=3DDo4dY-Yy4)
+#### [02. Benefits of Allah Name Al-Rahim | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=3DDo4dY-Yy4)
+* Mustajab-e-dawat (1,000 times daily)
+* Taskheer-e-Khalq (101 times after Fajr)
+* Kisafat-e-Qulb
+* Hajat ...(Har-hajat say Ghani)
+* Zindagi-mayn naa-gawarian naa-paysh-ayan
 
 ***
 

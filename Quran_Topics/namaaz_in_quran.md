@@ -394,3 +394,10 @@
 * __Surah Al-Kawthar 108/2__: [فَصَلِّ لِرَبِّكَ وَٱنْحَرْ](https://quranwbw.com/108/2)
 
 ***
+
+#### Tahiyatul Wudu Namaz
+* __Tahiyatul Wudu__ is a recommended two-rak'at nafl prayer performed immediately after completing the ritual ablution (wudu). This prayer is a way to show gratitude for the purification of wudu and is based on a __hadith where the Prophet Muhammad heard-the-footsteps-of-Bilal in paradise, and Bilal explained that he prayed two rak'at after every wudu he performed__. It is considered highly rewarding, and some scholars state that performing it with sincerity guarantees-forgiveness-for-past-sins and entry-into-paradise.
+* 101-time Ya-Lateefu afterwards with 11-times darood-sharif. 
+* 1,111-time after Isha for Shaddi. 71 days
+
+*** 

@@ -41,7 +41,7 @@
 #### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
 * Discipline (Timing, Commitment, ...)
 * Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
-* Sit respectfully in a grouping...
+* Sit respectfully in a grouping... (quran.com/58/)
 * Good Chararacter
 * __Surah Al-Baqara 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ](https://quranwbw.com/2/125)
 

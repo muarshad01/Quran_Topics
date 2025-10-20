@@ -141,12 +141,12 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ***
 
 #### [Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=F572fljEHsI)
-11-times Tauz
-3-times Surah Fatiha with Tasmia
-3-times Surah Ikhlas
-3-times Aytul Kursi
-3-times Surah Falaq
-3-times Surah Naas
+* 11-times Tauz
+* 3-times Surah Fatiha with Tasmia
+* 3-times Surah Ikhlas
+* 3-times Aytul Kursi
+* 3-times Surah Falaq
+* 3-times Surah Naas
 
 ***
 

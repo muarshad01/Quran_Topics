@@ -185,3 +185,12 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ***
 
 #### [Dushman Halak Hone Ka Wazifa | Surah Maun | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=k9mtbI2u6xE)
+
+***
+
+#### [Benefits of Surah Al Kawthar || Mufti Muneer Ahmad Akhoon || RahamTV Zikr-o-Dua](https://www.youtube.com/watch?v=jf0KVEI3cJc)
+* A group of enemies
+* 41-time for 21 day...11-time darood-sharid awal akhir
+* 313-times daily
+
+****

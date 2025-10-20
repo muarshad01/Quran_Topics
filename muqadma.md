@@ -183,3 +183,5 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 * Duaa during day-and-night...with Allah SWT
 
 ***
+
+#### [Dushman Halak Hone Ka Wazifa | Surah Maun | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=k9mtbI2u6xE)

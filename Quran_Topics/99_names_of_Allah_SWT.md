@@ -238,7 +238,7 @@
 * Addad kabir 812 - Addad ausat 11 - addad saghir 2
 * Very important in Rohaniat
 * __Istikhara__: Chilla 41 days - "Ya khabeeru akhbirni" (يَا خَبِيرُ أَخْبِرْنِي) 313-times daily awal/akhir 11 time darood sharif.
-* Zalim say Nijat: 1,000 times daily
+* __Zalim say Nijat: 1,000-times 21 days (https://www.youtube.com/watch?v=-gLpOhaVl3M)__
 * Ilm-e-khawas
 
 ***

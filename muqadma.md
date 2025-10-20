@@ -153,9 +153,12 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 
 #### [Court-Me-Case-Jitne ka Wazifa | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=RecTScUcTjY)
 * 105 Number
-* 100 times Surah Al-fil
+* 100-times Surah Al-fil 11-times darood-e-ibrahimi
 * __keep reciting Surah Al-fil in court room__
-* Ya Allah Hu, Ya Azizu, Ya Nasiru, Ya Samadu
+1. Ya Allah Hu,
+2. Ya Azizu,
+3. Ya Nasiru,
+4. Ya Samadu
 
 ***
 

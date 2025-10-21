@@ -7,6 +7,10 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
+* [ | SSA Shah](https://www.facebook.com/photo.php?fbid=732537749630508&set=pb.100086228673334.-2207520000&type=3)
+
+***
+
 ### [The World Is a Snake – Shah Shams Tabrizi's Wisdom | ’دنیا ایک سانپ ہے'](https://www.youtube.com/watch?v=ohPcpxp0OHY)
 * "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
 * Rohani Ustad

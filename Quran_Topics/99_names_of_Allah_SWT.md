@@ -203,7 +203,10 @@
 
 ***
 
-#### [25. Al-Muzil]()
+#### [25. Al-Muzil](https://www.youtube.com/watch?v=N8uey3AglHI)
+* Addad 770 - 14 - 5
+* Dushman ko zeer-karna
+* __Recite 41-time and blow on people-in-office/court__
 
 ***
 

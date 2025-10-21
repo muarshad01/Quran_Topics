@@ -1,5 +1,7 @@
 * Fear uss-koo-hota-hai jo-apnay-liye jeeta-ho...jo kisi-maqsad kay-liye zinda-ho...usay koi-darr-nahi. Wasif Ali Wasif 
 
+***
+
 #### [Fasayak fi kahumullah wahuwas samiul alim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/rjvFM2ZDnsE)
 * https://www.youtube.com/shorts/rjvFM2ZDnsE
 * 101-times after Fajr

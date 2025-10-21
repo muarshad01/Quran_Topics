@@ -33,3 +33,7 @@
 * __Surah Quresh 106__: [](https://quran.com/106)
 
 ***
+
+#### [Conquering Fears | Sheikh Dr. Omar Suleiman](https://www.youtube.com/watch?v=DK-axQMsMpk)
+
+***

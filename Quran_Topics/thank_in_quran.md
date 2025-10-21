@@ -7,6 +7,10 @@
 
 ***
 
+#### [Ears | SSA Shah](https://www.facebook.com/photo.php?fbid=719108227640127&set=pb.100086228673334.-2207520000&type=3)
+
+***
+
 ### [How a Faqeer Defines Ungratefulness? | SSA Shah](https://www.youtube.com/watch?v=vRwTQb4O7Z4)
 
 ***

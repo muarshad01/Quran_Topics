@@ -22,3 +22,7 @@
 * Hazrat Bayazid Bastami
 
 *** 
+
+#### [Majzoob aur Rabia Basri half Qalandar | Professor ARA](https://www.youtube.com/watch?v=8h1IAgCY1x4)
+
+***

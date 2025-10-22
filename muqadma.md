@@ -2,6 +2,13 @@
 
 ***
 
+#### [Wazifa to save yourself from the enemy | Now you will have to destroy the enemy | Qari Abdul Basi...](https://www.youtube.com/watch?v=P8pHIK2U5q4)
+* Surah Falaq and Surah Naas 21 times Subah and Shaam
+* __Surah 3/173__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173) - 300 time
+* __Surah 8/30__: [وَإِذْ يَمْكُرُ بِكَ ٱلَّذِينَ كَفَرُوا۟ لِيُثْبِتُوكَ أَوْ يَقْتُلُوكَ أَوْ يُخْرِجُوكَ ۚ وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/8/30)
+
+***
+
 #### [Fasayak fi kahumullah wahuwas samiul alim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/rjvFM2ZDnsE)
 * https://www.youtube.com/shorts/rjvFM2ZDnsE
 * 101-times after Fajr

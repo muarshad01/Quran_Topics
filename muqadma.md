@@ -203,9 +203,8 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ***
 
 #### [Benefits of Surah Al Kawthar | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=jf0KVEI3cJc)
-* A group of enemies
-* 41-time for 21 day...11-time darood-sharid awal akhir
-* 313-times daily
+* A group-of-enemies ...41-time for 21 day...awal akhir 11-time darood-sharif 
+* 313-time daily
 * 7-time for sar-dard
 
 ****

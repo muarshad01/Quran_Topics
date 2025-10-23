@@ -2,8 +2,9 @@
 
 ***
 
-#### [Benefits of Surah Al Kawthar | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=jf0KVEI3cJc)
+#### [108. Surah Al-Kawthar | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=jf0KVEI3cJc)
 * __A group-of-enemies ...41-time for 21 day...awal akhir 11-time darood-sharif__
+* __Better recite 100-time daily!__
 * 313-time daily
 * 7-time for sar-dard
 

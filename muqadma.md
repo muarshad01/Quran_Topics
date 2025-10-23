@@ -2,6 +2,15 @@
 
 ***
 
+#### [58. Surah Mujadilah - Dushman-Dur Hone-Ka Wazifa| Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=aNELz7p6dT0)
+* Madni
+* 58 - Number
+* 22 - Ayats
+* Agar-koi-dushman aap-ko sata-raha-hai, tang-kar-raha-hai, aur app-chahatay-hayn yeah-dafah-kar--jai...
+* __Recite 3-times anytime, blow-on-some-matti and throw-matti towards that direction where that enemy lives and then dua__.
+
+***
+
 #### [108. Surah Al-Kawthar | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=jf0KVEI3cJc)
 * __A group-of-enemies ...41-time for 21 day...awal akhir 11-time darood-sharif__
 * __Better recite 100-time daily!__
@@ -20,11 +29,11 @@
 * Surah Falaq and Surah Naas 21-time Subah-and-Shaam
 * __Surah 3/173 (300-time)__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
 * __Surah 8/30__: [وَإِذْ يَمْكُرُ بِكَ ٱلَّذِينَ كَفَرُوا۟ لِيُثْبِتُوكَ أَوْ يَقْتُلُوكَ أَوْ يُخْرِجُوكَ ۚ وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/8/30)
-* The Arabic phrase is اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ, which translates to: "O Allah, we-make-You our-shield against-them, and take-refuge in-Thee from-their-evils."
+* The Arabic phrase is __ اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ__, which translates to: "O Allah, we-make-You our-shield against-them, and take-refuge in-Thee from-their-evils."
 
 ***
 
-#### [Fasayak fi kahumullah wahuwas samiul alim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/rjvFM2ZDnsE)
+#### [Fasayak-fi-kahumullah wahuwas samiul alim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/rjvFM2ZDnsE)
 * https://www.youtube.com/shorts/rjvFM2ZDnsE
 * 101-times after Fajr
 
@@ -111,11 +120,6 @@
 
 ***
 
-#### [Fasayak fi kahumullah wahuwas samiul alim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/rjvFM2ZDnsE)
-* 101 times after Fajr
-
-*** 
-
 #### [Fasayak fi kahumullah wahuwas samiul alim ](https://www.youtube.com/shorts/ZBf4nD5KXRk)
 * __Surah 2/237__: [فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/137)
 
@@ -124,7 +128,7 @@
 ***
 
 #### [Surah Hashar Ki Fazilat | Prof. ARA](https://www.youtube.com/shorts/cR01vsQnARs)
-* 70,000 Angels protect-that-person from morning-to-evening.
+* __70,000 Angels protect-that-person from morning-to-evening.__
 * __Surah 59/21-24__: [](https://quran.com/59/21-24)
 
 ***
@@ -145,8 +149,23 @@
 
 ***
 
-#### [Benefits of Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
+#### [36. Surah Yaseen | Mufti Zalwali Khan](https://www.youtube.com/watch?v=4heJJNSPWgA)
+
+***
+
+#### [36. Surah Yaseen | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=wWBOPtmYivg)
 * Surah Yaseen, 7-Mubeen Wazifa!
+
+***
+
+#### Surah Yaseen
+
+* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai-tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
+* __Improvement__: Mentally, Physically, Socially, Economically
+* __Surah Dafia__ - Balaaon ko daafaa-karnay-wali
+* __Surah Qazia__ - Hajatayn puri-karna wali
+* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
+* __7-Mubeen Wazifa__
 
 ***
 
@@ -170,7 +189,7 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 
 #### [Hifazat (safety) ka hisar bandhne ka treeka | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=F572fljEHsI)
 * 11-times Tauz
-* 3-times Surah Fatiha with Tasmia
+* 3-times Surah Fatiha-with-Tasmia
 * 3-times Surah Ikhlas
 * 3-times Aytul Kursi
 * 3-times Surah Falaq
@@ -190,15 +209,6 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 
 ***
 
-#### [Dushman-Dur Hone-Ka Wazifa -- Surah Mujadilah (58) | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=aNELz7p6dT0)
-* Madni
-* 58 - Number
-* 22 - Ayats
-* Agar-koi-dushman aap-ko sata-raha-hai, tang-kar-raha-hai, aur app-chahatay-hayn yeah-dafah-kar--jai...
-* __Recite 3-times anytime, blow-on-some-matti and throw-matti towards that direction where that enemy lives and then dua__.
-
-***
-
 #### [Dushman (Enemy) He Mafi-Mangne Ka Wazifa | Surah Aadiyat | Mufti Muneer ahmed Akhoon](https://www.youtube.com/watch?v=LxCLp_yLJcc)
 * Makki
 * 100 - Number
@@ -213,20 +223,5 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ***
 
 #### [Dushman Halak Hone Ka Wazifa | Surah Maun | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=k9mtbI2u6xE)
-
-***
-
-#### [Surah Yaseen | Mufti Zalwali Khan](https://www.youtube.com/watch?v=4heJJNSPWgA)
-
-***
-
-#### Surah Yaseen
-
-* __Shadeed-mushkilat-mayn iss surat-ki kasrat-say-tilawat ki-jai-tu, musaibat taal-jaati-hai...Insaan araam say guzar-jaata-hai__
-* __Improvement__: Mentally, Physically, Socially, Economically
-* __Surah Dafia__ - Balaaon ko daafaa-karnay-wali
-* __Surah Qazia__ - Hajatayn puri-karna wali
-* __Surah Mutim__ - Imtamam karnay wali; hadiyat-aur-falah kay jitnay-bhi rastay-hayn...allah SWT app-par tamam kar-deh-gah. App manzil-maqsood ko paa-layn-gay.
-* __7-Mubeen Wazifa__
 
 ***

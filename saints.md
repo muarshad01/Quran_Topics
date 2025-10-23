@@ -275,3 +275,7 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * Falsafa Wahdat al-wujūd
 
 *** 
+
+* Sheikh Saadi Murshid ...Shihab al-Din 'Umar al-Suhrawardi
+
+*** 

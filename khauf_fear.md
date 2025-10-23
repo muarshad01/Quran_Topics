@@ -37,3 +37,7 @@
 #### [Conquering Fears | Sheikh Dr. Omar Suleiman](https://www.youtube.com/watch?v=DK-axQMsMpk)
 
 ***
+
+#### [How to Overcome Fear | SSA Shah](https://www.youtube.com/watch?v=MnR08z9nxLE)
+
+***

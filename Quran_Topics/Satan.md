@@ -301,3 +301,7 @@
 * __Surah 2/35__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ وَكُلَا مِنْهَا رَغَدًا حَيْثُ شِئْتُمَا وَلَا تَقْرَبَا هَـٰذِهِ ٱلشَّجَرَةَ فَتَكُونَا مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/2/35)
 
 ***
+
+#### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
+
+***

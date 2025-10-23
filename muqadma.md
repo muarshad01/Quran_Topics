@@ -10,6 +10,12 @@
 
 ****
 
+#### [111. Surah Lahab](https://www.youtube.com/shorts/bZUpnqsWiEo)
+* 21-time daily for Dushman after Maghrib. No darood-sharif.
+* 41-time daily (Abdullah Bhatti!)
+
+***
+
 #### [Wazifa to save yourself from the enemy | Now you will have to destroy the enemy | Qari Abdul Basi...](https://www.youtube.com/watch?v=P8pHIK2U5q4)
 * Surah Falaq and Surah Naas 21-time Subah-and-Shaam
 * __Surah 3/173 (300-time)__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
@@ -211,10 +217,6 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ***
 
 #### [Surah Yaseen | Mufti Zalwali Khan](https://www.youtube.com/watch?v=4heJJNSPWgA)
-
-***
-
-#### [Surah Lahab](https://www.youtube.com/shorts/bZUpnqsWiEo)
 
 ***
 

@@ -2,6 +2,13 @@
 
 ***
 
+#### [Benefits of Surah Al Kawthar | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=jf0KVEI3cJc)
+* __A group-of-enemies ...41-time for 21 day...awal akhir 11-time darood-sharif__
+* 313-time daily
+* 7-time for sar-dard
+
+****
+
 #### [Wazifa to save yourself from the enemy | Now you will have to destroy the enemy | Qari Abdul Basi...](https://www.youtube.com/watch?v=P8pHIK2U5q4)
 * Surah Falaq and Surah Naas 21-time Subah-and-Shaam
 * __Surah 3/173 (300-time)__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
@@ -201,13 +208,6 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 #### [Dushman Halak Hone Ka Wazifa | Surah Maun | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=k9mtbI2u6xE)
 
 ***
-
-#### [Benefits of Surah Al Kawthar | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=jf0KVEI3cJc)
-* A group-of-enemies ...41-time for 21 day...awal akhir 11-time darood-sharif 
-* 313-time daily
-* 7-time for sar-dard
-
-****
 
 #### [Surah Yaseen | Mufti Zalwali Khan](https://www.youtube.com/watch?v=4heJJNSPWgA)
 

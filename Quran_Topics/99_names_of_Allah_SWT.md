@@ -100,9 +100,10 @@
 ***
 
 #### [09. Benefits of Allah Name Al-Jabbar     | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=PP8_BPnr5Wg)
-* Dushman-kay-hamlay-say-mehfooz...
+* Dushman-kay-hamlay-say-mehfooz...216-time
 * Koi-bhi ghalib-nahi aa-sakta
 * Hadiyoon ko joorna...
+* 
 
 ***
 

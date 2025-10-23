@@ -20,8 +20,8 @@
 ****
 
 #### [111. Surah Lahab](https://www.youtube.com/shorts/bZUpnqsWiEo)
+* [41-time daily - for dushman](https://www.youtube.com/watch?v=Qt-kNRdkcoU)
 * 21-time daily for Dushman after Maghrib. No darood-sharif.
-* 41-time daily (Abdullah Bhatti!)
 
 ***
 

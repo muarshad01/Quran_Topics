@@ -2,6 +2,10 @@
 
 ***
 
+* __Surah 7/23__: [قَالَا رَبَّنَا ظَلَمْنَآ أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ ٱلْخَـٰسِرِينَ](https://quran.com/7/23)
+
+***
+
 #### [58. Surah Mujadilah - Dushman-Dur Hone-Ka Wazifa| Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=aNELz7p6dT0)
 * Madni
 * 58 - Number

@@ -12,6 +12,15 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
+#### [Why Allah Grants Knowledge to the Chosen? | علم کن کو نصیب ہوتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=w4UvN9ifGbk)
+* SOOCH bhi-mehdood, AQAL bhi-mehdood, ILM bhi-mehdood, Jiss ki Mohabbat-k-hadd bhi-mehdood
+* Allah SWT ILM ko bohot-aziz rakhta-hai; Usay ILM bohot pasand-hai
+* Jiss-say woh-razi hoo-gai...usay ilm-ataa-karay-gaa
+* Ilm say WISDOM paida hoti-hai...Essence-of-Wisdom is Allah SWT Himself
+* __Khud-shanassi say Haqq-Shanassi__
+
+***
+
 ### [The World Is a Snake – Shah Shams Tabrizi's Wisdom | ’دنیا ایک سانپ ہے'](https://www.youtube.com/watch?v=ohPcpxp0OHY)
 * "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
 * Rohani Ustad

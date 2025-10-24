@@ -36,6 +36,8 @@
 
 * __Surah An-Najm (53:62)__: [](https://quranwbw.com/53/62)
 
+* __Surah 76/26__: [وَمِنَ ٱلَّيْلِ فَٱسْجُدْ لَهُۥ وَسَبِّحْهُ لَيْلًۭا طَوِيلًا](https://quranwbw.com/76/26)
+
 * __Surah Al-Inshiqaq (84:21)__: [](https://quranwbw.com/84/21)
 
 * __Surah Alaq 96/19 (Qurab)__: [Again, no! Never obey him ˹O Prophet˺! Rather, ˹continue to˺ prostrate and draw near ˹to Allah˺.](https://quran.com/96/19)

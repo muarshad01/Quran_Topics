@@ -66,7 +66,6 @@
 * __Surah 12/101__: [فَاطِرَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ أَنتَ وَلِىِّۦ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ تَوَفَّنِى مُسْلِمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/12/101)
 
 ***
-
 #### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)
 * Recite so loud that you can hear it yourself.
 * During recitation-of-Quran see Zirat-e-Kabba 

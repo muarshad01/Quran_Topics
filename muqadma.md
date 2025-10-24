@@ -6,6 +6,10 @@
 
 ***
 
+* __Surah 12/101__: [فَاطِرَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ أَنتَ وَلِىِّۦ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ تَوَفَّنِى مُسْلِمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/12/101)
+
+***
+
 #### [58. Surah Mujadilah - Dushman-Dur Hone-Ka Wazifa| Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=aNELz7p6dT0)
 * Madni
 * 58 - Number

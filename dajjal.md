@@ -18,3 +18,7 @@
 ***
 
 #### [Angothi Gai Tu Badshahi Gai | Hazrat Salman Ki Mulazmat | ft: Syed Haider Jafri | Irfan Asghar](https://www.youtube.com/watch?v=13-WyRieKsA)
+
+***
+
+#### [Dajjal Ka Wo Gunah Jis Ne UsayBad-Bakht Bana Diya | Haqeeqat Jo HarMusalman Ko Janni Chahiye](https://www.youtube.com/watch?v=L5sJ2k_OHH4)

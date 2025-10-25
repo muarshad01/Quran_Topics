@@ -60,7 +60,7 @@
 
 ***
 
-#### [How Prayer Relieves Worries and Anxiety?](https://www.youtube.com/watch?v=cm27aWW4_tU)
+#### [How Prayer Relieves Worries and Anxiety? | SSA Shah](https://www.youtube.com/watch?v=cm27aWW4_tU)
 
 ***
 

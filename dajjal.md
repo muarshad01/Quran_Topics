@@ -28,3 +28,5 @@
 ***
 
 #### [How Will Dajjal Reach Every Home? Dajaal Story | Sahil Adeem](https://www.youtube.com/watch?v=KrXdqKzzRmQ)
+
+#### [How to Protect Yourself from Dajjal? | Sahil Adeem | Beginning of the End](https://www.youtube.com/watch?v=5xKt_nZK5EY)

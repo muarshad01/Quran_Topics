@@ -21,4 +21,8 @@
 
 ***
 
-#### [Dajjal Ka Wo Gunah Jis Ne UsayBad-Bakht Bana Diya | Haqeeqat Jo HarMusalman Ko Janni Chahiye](https://www.youtube.com/watch?v=L5sJ2k_OHH4)
+#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Haqeeqat Jo HarMusalman Ko Janni Chahiye](https://www.youtube.com/watch?v=L5sJ2k_OHH4)
+* Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
+* Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
+
+***

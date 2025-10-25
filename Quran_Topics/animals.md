@@ -7,7 +7,7 @@
 * Camel as  نَاقَةُ بَعِيرٍ جمل mentioned 15 times in Quran in 15 verses. 
 * Cattle نَّعَم mentioned 33 times in Quran in 31 verses. 
 * Cow  بقرة mentioned 09 times in Quran in 09 verses. 
-* Crow غُرَابًا mentioned 02 times in Quran in 01 verses.  
+* Crow غُرَابًا mentioned 02 times in Quran in 01 verses. -- https://quran.com/al-maidah/31-33
 * Dog كلب mentioned 05 times in Quran in 03 verses. 
 * Donkey حِمَار mentioned 05 times in Quran in 05 verses. 
 * Elephant فِيلِ mentioned 01 times in Quran in 01 verses. 
@@ -30,3 +30,4 @@
 * Snake ثُعْبَانٌ جَانٌّ etc”mentioned 05 times in Quran in 05 verses. 
 * Spider عنكبوت”mentioned 02 times in Quran in 01 verses. 
 * Wolf ذئب mentioned 03 times in Quran in 03 verses. 
+* Hudhud: https://quran.com/27/20-22

@@ -65,7 +65,7 @@
 ***
 
 #### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
-* __Iss-namaz-ko ada-karnay-wala, Allah-kay behaad-qareeb ho-jaata-hai__
+* __Iss-namaz-ko ada-karnay-wala, Allah-kay beyhaad-qareeb ho-jaata-hai__
 
 ***
 

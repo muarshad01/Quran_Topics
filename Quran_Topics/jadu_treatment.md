@@ -229,3 +229,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
 
 ***
+
+#### [Protect Yourself from Evil Eye | نظر بد کا توڑ کیا ہے؟ | Qibla Syed Sarfraz Ahmad Shah Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
+
+***

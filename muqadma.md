@@ -233,3 +233,11 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 #### [Dushman Halak Hone Ka Wazifa | Surah Maun | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=k9mtbI2u6xE)
 
 ***
+
+#### [Bismillah Shareef k Beshumar-Fawaid | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=w3vqDt3XiDU)
+* 19 Angels-of-Jahanum
+* Hazrat Adam AS
+* Hazrat Muhammad PBUH
+* __After Maghrib prayer, 786-times awal/akhir 11-times darood-shareef, for one week for-some-difficult-task__
+
+***

@@ -235,6 +235,7 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 ***
 
 #### [Dushman Halak Hone Ka Wazifa | Surah Maun | Dr. Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=k9mtbI2u6xE)
+* For Zalim Dushman, Recite 1100 time awal / akhir 11-time darood sharif
 
 ***
 

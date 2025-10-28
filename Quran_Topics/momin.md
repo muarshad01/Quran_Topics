@@ -100,7 +100,7 @@
 
 ***
 
-#### [Allah ka inam or wada kis k sath hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
+#### [Allah ka inam-or-wada kis-k sath-hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
 
 ***
 

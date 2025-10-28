@@ -201,4 +201,12 @@
 
 * Sa’id al-Khudri relates the tradition that Prophet Mohammad (pbuh) said, “Whatever hurt, illness, trouble, sorrow and grief as well as torment reaches a true believer, even if he is pricked by a thorn, Allah forgives all his mistakes in exchange of all these trials and difficulties. (Sahih al-Bukhari, Muslim)
 
+* “The example of the one who remembers Allah and the one who does not is like the living and the dead.” — Bukhari
+
+* “Modesty is part of faith.” — Bukhari
+
+* “None of you truly believes until he loves for his brother what he loves for himself.” — Bukhari & Muslim
+
+* “A believer is not one who taunts, curses, speaks obscenely or is abusive.” — Tirmidhi
+
 ***

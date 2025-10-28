@@ -1,3 +1,7 @@
+#### [Impact of Tasbeeh on brain | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=xe1N2rUs4TY)
+
+***
+
 #### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Professor ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
 * The best thing I give to my Bandoon is Salaam.
 * Zehan-ki har-disturbance ko doar-karta-hai

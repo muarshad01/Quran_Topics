@@ -110,9 +110,12 @@
 * ALL promises of Allah SWT are with Momins not with Muslims
 * __Surah 3/139 (You'll be Superior)__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
 * __Surah 49/14 (Iman and Islam)__ : [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
+* Abdullah (Father) + Amna (Mother)
+* Allah SWT Servant (when we do His bandagi); The one who gives Amaan
+* 
 
 ***
 
-#### [](https://www.youtube.com/shorts/Hj53UqNp2rg)
-
+#### [Hadith](https://www.youtube.com/shorts/Hj53UqNp2rg)
+* https://al-hadees.com/muslim/6568
 ***

@@ -96,6 +96,8 @@
 * __Surah 76/07__: [يُوفُونَ بِٱلنَّذْرِ وَيَخَافُونَ يَوْمًۭا كَانَ شَرُّهُۥ مُسْتَطِيرًۭا](https://quran.com/76/7)
 * __Surah 76/11__: [فَوَقَىٰهُمُ ٱللَّهُ شَرَّ ذَٰلِكَ ٱلْيَوْمِ وَلَقَّىٰهُمْ نَضْرَةًۭ وَسُرُورًۭا](https://quran.com/76/11)
 
+***
+
 #### [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
 
 ***
@@ -104,4 +106,4 @@
 
 ***
 
-https://www.youtube.com/shorts/Hj53UqNp2rg
+#### [](https://www.youtube.com/shorts/Hj53UqNp2rg)

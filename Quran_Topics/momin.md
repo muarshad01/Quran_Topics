@@ -5,44 +5,6 @@
 
 *** 
 
-#### [Momin Ki Tareef Baqool Hazrat Ali R.A? | SSA Shah](https://www.youtube.com/watch?v=SjmAX2IYERw)
-* Jisay na-kuch panay-ki-khushi na-kuch khonay-ka-gham hoo.
-* Bharosa versus Tawakkal
-  
-***
-
-#### [Iman aur Amal Salah | Talib Johri](https://www.youtube.com/shorts/gegGWszMtY0)
-
-***
-
-#### [Kamil Momin - Hadith](https://www.youtube.com/shorts/b845Tr17NTk)
-* Jo sab-say-betharin Ikhlaq-wala-hoo.
-* Jo Ikhlaq-mayn apni-aurtoon kay-haqq-mayn bhetar-hoo.
-
-***
-
-#### [Allah ka Inam or Wada kis k Sath Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
-* Momim in Allah SWT name
-* 28 - Madni Surahs..."Ya Ayyuhallazina Amanu" (Arabic: يا أيها الذين آمنوا)
-* 89 - times Momin attributes are mentioned
-* ALL promises are done with Mumins not with Muslims
-* __Surah 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quranwbw.com/3/139)
-* __Surah 49/14__:[۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
-* Musliman - Allah ko manta-hai
-* Momin - Allah ki manta-hai; Aman deenay wala
-
-***
-
-#### [3-Qualities of Pious Men | SSA Shah](https://www.youtube.com/watch?v=Ye5ijz8oigA)
-* GF: Giving and Forgiving
-1. __Forgiving__: Darr-guzar-aur-muaff karnay ki-siffat ([وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ](https://quranwbw.com/3/134))
-2. __Giving__: Apni zarooriat-ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat
-3. Dastar-khawn wasee-rakhney ki-siffat
-* __Taqwa-aur-Ilm ki rahoon-par bohot-agay-niklay__
-* __Rabb jis-say razi-hota-hai, usay apnay Qareeb-karta-hai, usay Ilm ataa-karta-hai, usay Aqal-mil-jati-hai__
-
-***
-
 * __Surah Al-Baqarah 2/3-4__: [](https://quran.com/2/3-5)
 * __Surah Al-Baqarah 2/62__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَٱلَّذِينَ هَادُوا۟ وَٱلنَّصَـٰرَىٰ وَٱلصَّـٰبِـِٔينَ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَعَمِلَ صَـٰلِحًۭا فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/62)
 * __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةً وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
@@ -172,6 +134,44 @@
 ***
 
 #### [Qualities That Allah Loves (Surah Al Imran 133 To 138)اللہ تعالٰی کے پسندیدہ بندوں کی خوبیاں](https://www.youtube.com/watch?v=ZILqqDCJYAw)
+
+***
+
+#### [Momin Ki Tareef Baqool Hazrat Ali R.A? | SSA Shah](https://www.youtube.com/watch?v=SjmAX2IYERw)
+* Jisay na-kuch panay-ki-khushi na-kuch khonay-ka-gham hoo.
+* Bharosa versus Tawakkal
+  
+***
+
+#### [Iman aur Amal Salah | Talib Johri](https://www.youtube.com/shorts/gegGWszMtY0)
+
+***
+
+#### [Kamil Momin - Hadith](https://www.youtube.com/shorts/b845Tr17NTk)
+* Jo sab-say-betharin Ikhlaq-wala-hoo.
+* Jo Ikhlaq-mayn apni-aurtoon kay-haqq-mayn bhetar-hoo.
+
+***
+
+#### [Allah ka Inam or Wada kis k Sath Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
+* Momim in Allah SWT name
+* 28 - Madni Surahs..."Ya Ayyuhallazina Amanu" (Arabic: يا أيها الذين آمنوا)
+* 89 - times Momin attributes are mentioned
+* ALL promises are done with Mumins not with Muslims
+* __Surah 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quranwbw.com/3/139)
+* __Surah 49/14__:[۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
+* Musliman - Allah ko manta-hai
+* Momin - Allah ki manta-hai; Aman deenay wala
+
+***
+
+#### [3-Qualities of Pious Men | SSA Shah](https://www.youtube.com/watch?v=Ye5ijz8oigA)
+* GF: Giving and Forgiving
+1. __Forgiving__: Darr-guzar-aur-muaff karnay ki-siffat ([وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ](https://quranwbw.com/3/134))
+2. __Giving__: Apni zarooriat-ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat
+3. Dastar-khawn wasee-rakhney ki-siffat
+* __Taqwa-aur-Ilm ki rahoon-par bohot-agay-niklay__
+* __Rabb jis-say razi-hota-hai, usay apnay Qareeb-karta-hai, usay Ilm ataa-karta-hai, usay Aqal-mil-jati-hai__
 
 ***
 

@@ -2,6 +2,8 @@
 * __Najib tarafain__ is an Arabic term meaning __noble on both sides__
 * Long-term policies...once our objectives are clear...prepare road-map...follow...
 * 13:30 ...
+* __Surah 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
+
 ***
 
 #### [Pakistan will become a prominent Islamic Revolutionary Country | Professor ARA](https://www.youtube.com/watch?v=MYVuqCh9PaU)

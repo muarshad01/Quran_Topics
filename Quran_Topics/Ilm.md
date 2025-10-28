@@ -7,6 +7,10 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
+#### [Murshid-se-Ilm Lena | SSA Shah](https://www.youtube.com/watch?v=Wgbp9I1Ob3U)
+
+***
+
 * [ | SSA Shah](https://www.facebook.com/photo.php?fbid=732537749630508&set=pb.100086228673334.-2207520000&type=3)
 * [ | SSA Shah](https://www.facebook.com/photo.php?fbid=780217181529231&set=pb.100086228673334.-2207520000&type=3)
 

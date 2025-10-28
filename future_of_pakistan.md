@@ -7,6 +7,8 @@
 * __Faqeer__: Aijzi; Ego khatam; Nafs-ko-Lagam; Logon-ki-Khidmat
 * After taleem-o-tarbiat 1 Faqeer -> 2 Sufi (Indepdent Tabhleeg)
 * Sufi -> 3 Pear (Sahib-e-aqal-o-danish)
+* 31:50
+* Imran Khan: Will definately come back...but take more time to come out of jail...
 
 ***
 

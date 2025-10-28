@@ -1,3 +1,7 @@
+#### [Impact of Tasbeeh on brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
+
+***
+
 #### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
 * Ya-Salaam-u
 * Ya-Rehman-u

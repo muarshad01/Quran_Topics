@@ -1,7 +1,7 @@
 #### [Quranic Values in Action: Attributes of becoming a Momin](https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/)
 #### [Attributes of True Believers (Momin)](https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/)
-* https://islamicmentors.com/15-traits-of-a-momin/
-* https://islam180.com/signs-of-a-true-believer-momin/
+#### [](https://islamicmentors.com/15-traits-of-a-momin/)
+#### [](https://islam180.com/signs-of-a-true-believer-momin/)
 
 *** 
 

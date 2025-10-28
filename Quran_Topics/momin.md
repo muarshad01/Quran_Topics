@@ -103,7 +103,16 @@
 ***
 
 #### [Allah ka inam-or-wada kis-k sath-hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=2PmI_dWq48M)
+* Allah SWT name __Momin__
+* 114 Surahs: 86 (Makki) + 28 (Madni)
+  * 28-Madani Surah, in ALL focus is Momins (يَٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُو)
+* At 89-places, Momins attributes are mentioned in Quran
+* ALL promises of Allah SWT are with Momins not with Muslims
+* __Surah 3/139 (You'll be Superior)__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
+* __Surah 49/14 (Iman and Islam)__ : [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
 
 ***
 
 #### [](https://www.youtube.com/shorts/Hj53UqNp2rg)
+
+***

@@ -3,6 +3,10 @@
 * Long-term policies...once our objectives are clear...prepare road-map...follow...
 * 13:30 ...
 * __Surah 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
+* 23:00 
+* __Faqeer__: Aijzi; Ego khatam; Nafs-ko-Lagam; Logon-ki-Khidmat
+* After taleem-o-tarbiat 1 Faqeer -> 2 Sufi (Indepdent Tabhleeg)
+* Sufi -> 3 Pear (Sahib-e-aqal-o-danish)
 
 ***
 

@@ -16,8 +16,8 @@
 ***
 
 #### [Kamil Momin - Hadith](https://www.youtube.com/shorts/b845Tr17NTk)
-* Jo sab say betharin Ikhlaq wala hoo.
-* Jo Ikhlaq mayn apni aurtoon kay haqq mayn bhetar hoo.
+* Jo sab-say-betharin Ikhlaq-wala-hoo.
+* Jo Ikhlaq-mayn apni-aurtoon kay-haqq-mayn bhetar-hoo.
 
 ***
 
@@ -38,8 +38,8 @@
 1. __Forgiving__: Darr-guzar-aur-muaff karnay ki-siffat ([وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ](https://quranwbw.com/3/134))
 2. __Giving__: Apni zarooriat-ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat
 3. Dastar-khawn wasee-rakhney ki-siffat
-* Taqwa-aur-Ilm ki rahoon-par bohot-agay-niklay
-* __Rabb jis-say razi-hota-hai, usay apnay qareeb-karta-hai, usay ilm ata-karta-hai, usay aqal-mil-jati-hai__
+* __Taqwa-aur-Ilm ki rahoon-par bohot-agay-niklay__
+* __Rabb jis-say razi-hota-hai, usay apnay Qareeb-karta-hai, usay Ilm ataa-karta-hai, usay Aqal-mil-jati-hai__
 
 ***
 

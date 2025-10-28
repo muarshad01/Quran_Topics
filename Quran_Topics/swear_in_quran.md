@@ -5,7 +5,7 @@ https://www.quora.com/What-are-ten-things-Allah-swears-by
 ***
 
 ## Falaa Wa-Rabbika
-* __Surah Nisaa 4/65__: [But no! By your Lord, they will never be ˹true˺ believers until they accept you ˹O Prophet˺ as the judge in their disputes, and find no resistance within themselves against your decision and submit wholeheartedly.](https://quranwbw.com/4/65)
+* __Surah Nisaa 4/65 (فَلَا وَرَبِّكَ)__: [فَلَا وَرَبِّكَ لَا يُؤْمِنُونَ حَتَّىٰ يُحَكِّمُوكَ فِيمَا شَجَرَ بَيْنَهُمْ ثُمَّ لَا يَجِدُوا۟ فِىٓ أَنفُسِهِمْ حَرَجًۭا مِّمَّا قَضَيْتَ وَيُسَلِّمُوا۟ تَسْلِيمًۭا](https://quranwbw.com/4/65)
 * __Surah Yaseen 36:2__: [By the Wise Quran. ٢ وَالْقُرْآنِ الْحَكِيمِ](https://quran.com/36/2)
 * __Surah As-Saffat 37:1__: [By those ranged in ranks. ١ وَالصَّافَّاتِ صَفًّا](https://quran.com/37/1)
 * __Surah Saad 38:1__: [By the renowned Quran. ١ ص ۚ وَالْقُرْآنِ ذِي الذِّكْرِ](https://quran.com/38/1)

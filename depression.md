@@ -1,4 +1,10 @@
 #### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof. Dr. Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
+* Everybody has problems
+* Solution: Calmness of your Mind
+* Consider bad-luck
+* Thoughts flow throgh Neurons
+* __LOGIC__: Logic, out-of-box soulution, problem solving...__The prefrontal cortex (PFC)__ - Gray matter - 6 Layers
+* __EMOTION__: __Medulla (mid-brain)__, handles emotions; Gray-matter three layers - 3 Layers
 
 ***
 

@@ -6,11 +6,23 @@
 * __LOGIC__: Logic, out-of-box soulution, problem solving...__The prefrontal cortex (PFC)__ - Gray matter - 6 Layers
 * __EMOTION__: __Medulla (mid-brain)__, handles emotions; Gray-matter three layers - 3 Layers
 * Use Senses:
-1. Eyes
-2. Ears
-3. Nose
-4. Breathing
+1. Eyes: Looking Solid things around (Door, Mirroe, Sofas, Cupbords)
+2. Ears: Listen to Sounds
+3. Nose: Smell Fragrance
+4. Breathing: 
 * Perception versus Reality
+
+***
+
+#### [Immediate management of anxiety | Prof Dr Javed Iqbal |](https://www.youtube.com/watch?v=FFaMUYe1ATw)
+
+***
+
+#### [“Silence Your Mind: How to Stop Overthinking & Inner Chatter!”](https://www.youtube.com/watch?v=ZEcMcpJ-xd0)
+
+***
+
+#### [Difficulty in sleeping| Prof Dr Javed Iqbal |](https://www.youtube.com/watch?v=XMc_4-YkOXY)
 
 ***
 

@@ -118,3 +118,7 @@
 2. Remeber Prophet PBUH, cry out, Ya Rasool Allah SWT, get-me-out of this situation
 
 ***
+
+#### [Ultay Khayalaat Se Chutkara | SSA Shah](https://www.youtube.com/watch?v=o5-S4Ykcu44)
+
+***

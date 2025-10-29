@@ -2,7 +2,7 @@
 
 ***
 
-#### [27th Rajab Ki Ibadat Aur Roza | Shab-e-Miraj | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
+#### [27 Rajab (Shab-e-Miraj) Ki Ibadat Aur Roza | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
 * Loh-e-Faqeer, Lecture 33.
   * First Wahi and Nuwabat on 27th Rajab, Monday
   * Monday: Birth / Death

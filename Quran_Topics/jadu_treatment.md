@@ -235,3 +235,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
 
 ***
+
+#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun!](https://www.youtube.com/watch?v=fATEeYcVO8k)
+
+***

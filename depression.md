@@ -2,6 +2,10 @@
 
 ***
 
+#### [Psychologically upset children and absent minded people in heaven | Professor ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
+
+***
+
 #### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
 * Ya-Salaam-u
 * Ya-Rehman-u

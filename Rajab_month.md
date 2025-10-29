@@ -3,8 +3,7 @@
 ***
 
 #### [27 Rajab (Shab-e-Miraj) Ki Ibadat Aur Roza | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
-* Loh-e-Faqeer, Lecture 33.
-*  on 27th Rajab, Monday
+* Loh-e-Faqeer, Lecture 33, page 279.
 * __Monday__:
   * Birth / Departure of Prophet Muhammad PBUH
   * Nuwabat
@@ -12,11 +11,11 @@
 * __27 Rajab Roza Fazilat__:
   * Equivalent to 6-months
 * __27 Rajab Roza Ibadat__:
-  * Not only previous sins are forgiven
-  * Allah SWT becomes Neghaban on Sine of his rest-of-life
-  * Meaning, with Mercy and Rehmat of Allah SWT, he avoid sine.
+  * Not only previous-sins are forgiven
+  * Allah SWT becomes Neghaban on Sins to be committed for rest-of-life
+  * Meaning, with His Mercy and Rehmat, allah SWT guides the person avoid sins.
 * __Angels Pray__:
-  * Oh Allah SWT, who so ever is worshipping you on earth, forgive him. 
+  * Oh Allah SWT, whoever is worshipping you on earth tonight, forgive him. 
 * __Rozas of other Prophets__:
   * Hazrat Nuh AS kep Roza All his life
   * Hazrat Daud AS kepe Roza for half of his life.

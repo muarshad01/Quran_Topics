@@ -78,6 +78,9 @@
 ***
 
 #### [Mayoosi (Disappointment)| SSA Shah](https://www.youtube.com/watch?v=n4jFhXx0zGE)
+* __Mayoosi kufr hai__
+* Tawakka has three ghatian and last one is __Tawfeez__
+* __Tawfeez__: You ALL planning, desires, and thinking are under the Will of Allah SWT
 
 ***
 

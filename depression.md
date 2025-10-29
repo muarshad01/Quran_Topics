@@ -1,4 +1,4 @@
-#### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof. Dr. Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
+#### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
 * Everybody has problems
 * Solution: Calmness of your Mind
 * Consider bad-luck
@@ -23,6 +23,10 @@
 ***
 
 #### [Difficulty in sleeping| Prof Dr Javed Iqbal |](https://www.youtube.com/watch?v=XMc_4-YkOXY)
+
+***
+
+#### [Exercise to Control Thoughts In Mind | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=uZPUlsvDUeA)
 
 ***
 

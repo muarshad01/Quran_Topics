@@ -1,42 +1,36 @@
-#### [Impact of Tasbeeh on brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
-
-***
-
-#### [Fear, frustration, anxiety, depression and stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
-* __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
-* __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ](https://quran.com/2/200)
-
-***
-
-#### [Psychologically upset children and absent minded people in heaven | Professor ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
-
-***
-
 #### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
-* It travels throgh time and
-* it travels through blood and
-* it travel through the genetic-lenght of a-human-being
-* From Tongue -> Mind -> Heart -> Every drop of blood
+* It travels throgh time
+* it travels through blood
+* it travels through the genetic-lenght-of-a-human-being
+* From __Tongue -> Mind -> Heart -> Every drop-of-blood__
 
-*** 
+***
 
-#### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)
-1. Non-ulcer dyspepsia: 
-2. Irritable bowl syndrome:
-* Fear-and-frustrations: Mood regulations; religious distance; confusions
-  * Dopamine
-  * Serotonin
+#### [Fear, frustration, anxiety, depression-and-stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
+* __Surah 2/152__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ وَٱشْكُرُوا۟ لِى وَلَا تَكْفُرُونِ](https://quran.com/2/152)
+* __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ](https://quran.com/2/200)
+* __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
 
 ***
 
 #### [Fear, frustration، depression-ka-elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
+* __Surah 2/152__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ وَٱشْكُرُوا۟ لِى وَلَا تَكْفُرُونِ](https://quran.com/2/152)
 * __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ](https://quran.com/2/200)
 * __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
 * __Surah 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quran.com/29/45)
 
 ***
 
-#### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
+#### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)
+1. Non-ulcer dyspepsia 
+2. Irritable Bowl Syndrome (IBS)
+* Fear-and-frustrations: Mood regulations; religious distance; confusions
+  * Dopamine
+  * Serotonin
+
+***
+
+#### [Psychologically upset-children and absent-minded-people in Heaven | Professor ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
 
 ***
 
@@ -47,7 +41,6 @@
 * Ya-ZalJalal-wal-Ikram
 
 ***
-
 
 #### [Mayoosi Say Nikalne Ka Hal | Irfan-ul-Haq](https://www.youtube.com/watch?v=WOiVXeexw30)
 * __Tasbeeh__: Pakki bayan-karna; tareef karna
@@ -61,9 +54,13 @@
 * Mental Illness - Blood; Genetic;
 * Phobia are psychological diseases:
   * Self, society, state
-  * Treatment: Conversation
+  * __Treatment: Conversation__
   * Timardari...
-* Find people in society who don't complain
+* Find people-in-society who don't complain
+
+***
+
+#### [Depression-Ke-Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
 
 ***
 

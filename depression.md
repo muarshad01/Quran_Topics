@@ -120,5 +120,9 @@
 ***
 
 #### [Ultay Khayalaat Se Chutkara | SSA Shah](https://www.youtube.com/watch?v=o5-S4Ykcu44)
+1. Positive Thinking
+2. Ibadat say Parsai milta-hai
+3. Naiki say Rabb milta-hai
+* You'll have to prepare a mixture of (1 + 2 + 3) to find Rabb
 
 ***

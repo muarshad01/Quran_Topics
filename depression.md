@@ -5,7 +5,11 @@
 * Thoughts flow throgh Neurons
 * __LOGIC__: Logic, out-of-box soulution, problem solving...__The prefrontal cortex (PFC)__ - Gray matter - 6 Layers
 * __EMOTION__: __Medulla (mid-brain)__, handles emotions; Gray-matter three layers - 3 Layers
-
+* Use Senses:
+1. Eyes
+2. Ears
+3. Nose
+4. Breathing
 ***
 
 #### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)

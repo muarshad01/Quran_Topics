@@ -6,12 +6,12 @@
 4. Rabi' al-Thani,
 5. Jumada al-Awwal,
 6. Jumada al-Thani,
-7. Rajab,
+7. Rajab (Allah SWT Month)
 * [Mirah - 27 Rajab](https://www.youtube.com/shorts/tiVbifh3Kp0)
 * [27th Rajab Ki Ibadat Aur Roza | Shab-e-Miraj | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
 
-8. Sha'ban,
-9. Ramadan,
+8. Sha'ban (My Prophet Muhammad PBUH Month)
+9. Ramadan (Ummat Month)
 10. Shawwal,
 11. Dhu al-Qidah,
 12. Dhu al-Hijjah

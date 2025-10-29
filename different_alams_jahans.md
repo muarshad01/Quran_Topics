@@ -4,7 +4,7 @@
    * Hoo-Ka-Alam: Urdu Mohawaara - Silience and Darkness.
 * `Muqaam-e-Hairat`: Ilm-ki-Intihaa.
 * `Alam Ha-Hoot (Deus absconditus)`:
-    * Condition BEFORE the creation of Universie (Kainaat). The Alam where there is ONLY Raab Talaah.
+    * Condition BEFORE the creation of Universie (Kainaat). The Alam where there is ONLY Raab-Talaah.
 * `Alam La-Hoot (Alam Tajalliyat)`:
     * La & Hoo - The time AFTER the creation of universe. Continuous process, circles of light are created and propogated untill they encompass whole universe and reach  `Nahr-e-Tasfeed?`.
 * `Hijab-e-Mahmood`: The highest position on `Arsh-e-Mualaa`.

@@ -1,3 +1,7 @@
+#### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof. Dr. Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
+
+***
+
 #### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 * It travels throgh time
 * it travels through blood
@@ -70,10 +74,6 @@
 
 #### [ Talk with Allah and Prophet Muhammad SAW | SSA Shah](https://www.youtube.com/shorts/zeppQKmGgzg)
 * Ya-Rasool-Allah-SWT mujhay iss-takleef-aazmaish say nikalayee.
-
-***
-
-#### [...](https://www.youtube.com/watch?v=fVs1O9svcKE)
 
 ***
 

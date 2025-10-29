@@ -1,3 +1,7 @@
+#### [Exercise-to-Control Thoughts-in-Mind | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=uZPUlsvDUeA)
+
+***
+
 #### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
 * Everybody has problems
 * Learn to Calm your Mind
@@ -14,19 +18,15 @@
 
 ***
 
-#### [Immediate management of anxiety | Prof Dr Javed Iqbal |](https://www.youtube.com/watch?v=FFaMUYe1ATw)
+#### [Immediate management of anxiety | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=FFaMUYe1ATw)
 
 ***
 
-#### [“Silence Your Mind: How to Stop Overthinking & Inner Chatter!”](https://www.youtube.com/watch?v=ZEcMcpJ-xd0)
+#### [“Silence Your Mind: How to Stop Overthinking & Inner Chatter!” | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=ZEcMcpJ-xd0)
 
 ***
 
-#### [Difficulty in sleeping| Prof Dr Javed Iqbal |](https://www.youtube.com/watch?v=XMc_4-YkOXY)
-
-***
-
-#### [Exercise to Control Thoughts In Mind | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=uZPUlsvDUeA)
+#### [Difficulty in sleeping | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=XMc_4-YkOXY)
 
 ***
 

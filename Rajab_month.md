@@ -4,15 +4,26 @@
 
 #### [27 Rajab (Shab-e-Miraj) Ki Ibadat Aur Roza | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
 * Loh-e-Faqeer, Lecture 33.
-  * First Wahi and Nuwabat on 27th Rajab, Monday
-  * Monday: Birth / Death
-  * Roza: Equivalent to 6-months
- * Not only previous sins are forgiven but the Gunahs of rest of life...Allah AWT become Neghaban.
- * Hazrat Daud AS half life kep Roza.
- * Hazrat Nuh AS kep Roza all his life.
- * Keep fast on 13,14,15 of every Qamari Month.
+*  on 27th Rajab, Monday
+* __Monday__:
+  * Birth / Departure of Prophet Muhammad PBUH
+  * Nuwabat
+  * First Wahi
+* __27 Rajab Roza Fazilat__:
+  * Equivalent to 6-months
+* __27 Rajab Roza Ibadat__:
+  * Not only previous sins are forgiven
+  * Allah SWT becomes Neghaban on Sine of his rest-of-life
+  * Meaning, with Mercy and Rehmat of Allah SWT, he avoid sine.
+* __Angels Pray__:
+  * Oh Allah SWT, who so ever is worshipping you on earth, forgive him. 
+* __Rozas of other Prophets__:
+  * Hazrat Nuh AS kep Roza All his life
+  * Hazrat Daud AS kepe Roza for half of his life.
+* __Ayam-e-Baiz__:
+  * 13, 14, 15 of every Qamari Month. Keep Roza and your face will have Noor.
  
- *** 
+*** 
 
 #### [Mah-e-Rajab Ki Khaas Ibadatein | SSA Shah](https://www.youtube.com/watch?v=C-TcqRc8jFc)
 * Kahay-Faqeer, Lecture 9, Page 65

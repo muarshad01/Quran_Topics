@@ -7,7 +7,7 @@
 5. Jumada al-Awwal,
 6. Jumada al-Thani,
 7. [Rajab (Allah SWT Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Rajab_month.md)
-8. Sha'ban (My Prophet Muhammad PBUH Month)
+8. [Sha'ban (My Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Shaban_month.md)
 9. Ramadan (Ummat Month)
 10. Shawwal,
 11. Dhu al-Qidah,

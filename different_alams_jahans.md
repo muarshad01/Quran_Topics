@@ -1,7 +1,7 @@
 ### Arzang-e-Faqeer: Session 18 - Aalam-e-Asaraar
 * `Darkness`:
    * When there was only `Allah SWT` - there was darkness.
-   * Hoo Ka Alam: Urdu Mohawaara - Silience and Darkness.
+   * Hoo-Ka-Alam: Urdu Mohawaara - Silience and Darkness.
 * `Muqaam-e-Hairat`: Ilm ki intihaa.
 * `Alam Ha-Hoot (Deus absconditus)`:
     * Condition BEFORE the creation of Universie (Kainaat). The Alam where there is ONLY Raab Talaah.

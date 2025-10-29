@@ -7,6 +7,21 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
+#### [Rab Tak Pohanchnay Ke Raastay | SSA Shah](https://www.youtube.com/watch?v=DoUvHcm28a8)
+* There are THREE ways to reach Allah SWT:
+1. Aqal, which is incomplete.
+2. Ilm
+3. Ishq
+* __Muqam-e-hairat__: Aqal daang rah-jai.
+* __Alam-e-hairat__ mayn Insaan-ki-zaban banad hoo-jaati-hai.
+* __Ilm has also incomplete__: At some point it finishes, only __ISHQ__ has the capacity to help us get to meet Allah SWT
+* ISHQ say pehlay Mohabbat hai
+* Mohabbat mayn silah manga-nahi-jaata...
+* ISHQ mayn to Insaaan Rabb to Purakta-Jaata-hai, sirf iss umeed par,
+* Mera Rabb, kabhi-toh jawab-dee-gaa.
+
+***
+
 #### [Murshid-se-Ilm Lena | SSA Shah](https://www.youtube.com/watch?v=Wgbp9I1Ob3U)
 
 ***

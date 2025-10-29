@@ -1,3 +1,12 @@
+#### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
+* Three things make you weak-from-inside.
+1. Waswasa (Lurking Whisperer)
+2. Fear
+3. Anger (Shows your weakness); Drop in tolerance-level.
+* I don't want to accept my failures. I want a scape goat to hide my faiulure.
+
+*** 
+
 * 0 - __Surah 8/30__: [وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/8/30)
 * 1 - __Surah Yunus 10/77__: [وَلَا يُفْلِحُ ٱلسَّـٰحِرُونَ](https://quran.com/10/77)
 * 2 - __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
@@ -62,15 +71,6 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 * __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
 
 ***
-
-#### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
-* Three things make you weak-from-inside.
-1. Waswasa (Lurking Whisperer)
-2. Fear
-3. Anger (Shows your weakness); Drop in tolerance-level.
-* I don't want to accept my failures. I want a scape goat to hide my faiulure.
-
-*** 
 
 ### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 * Brain power is tremendous

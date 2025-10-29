@@ -2,7 +2,7 @@
 * `Darkness`:
    * When there was only `Allah SWT` - there was darkness.
    * Hoo-Ka-Alam: Urdu Mohawaara - Silience and Darkness.
-* `Muqaam-e-Hairat`: Ilm ki intihaa.
+* `Muqaam-e-Hairat`: Ilm-ki-Intihaa.
 * `Alam Ha-Hoot (Deus absconditus)`:
     * Condition BEFORE the creation of Universie (Kainaat). The Alam where there is ONLY Raab Talaah.
 * `Alam La-Hoot (Alam Tajalliyat)`:

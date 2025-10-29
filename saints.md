@@ -279,3 +279,14 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * Sheikh Saadi Murshid ...Shihab al-Din 'Umar al-Suhrawardi
 
 *** 
+
+#### [How to Find Allah Almighty in Islam | SSA Shah](https://www.youtube.com/watch?v=RNJuZu3MnnE)
+* __Hazrat Junaid Badhdadi RA__ said about __Hazrat Bayazid Bastami__, "His status among Aulia Allah is like a Diamond-in-the-Ring"
+* __Hazrat Bayazid Bastami__, Jo-admi aik-bhi Sunnat tarak-karta-hai, woh rohaniyat-ki-khusboo bhi nahi-pata
+* __Hazrat Ali RA__:  Saab say bara Zuhad, Zuhad ko chupana-hai.
+1. Positive Thinking
+2. Ibadat say Parsai milta-hai
+3. Naiki say Rabb milta-hai
+* You'll have to prepare a mixture of (1 + 2 + 3) to find Rabb
+
+***

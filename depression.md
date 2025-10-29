@@ -84,6 +84,9 @@
 
 ***
 
-#### [ | SSA Shah](https://www.youtube.com/shorts/zeppQKmGgzg)
+#### [ How to Relief from Depression | SSA Shah](https://www.youtube.com/shorts/zeppQKmGgzg)
+* Become Heart patient
+1. Talk to Allah SWT in solitude
+2. Remeber Prophet PBUH, cry out, Ya Rasool Allah SWT, get-me-out of this situation
 
 ***

@@ -1,18 +1,14 @@
-
-
 #### [Impact of Tasbeeh on brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 
 ***
 
-#### [Psychologically upset children and absent minded people in heaven | Professor ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
+#### [Fear, frustration, anxiety, depression and stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
+* __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
+* __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ](https://quran.com/2/200)
 
 ***
 
-#### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
-* Ya-Salaam-u
-* Ya-Rehman-u
-* Ya-Wali-u
-* Ya-ZalJalal-wal-Ikram
+#### [Psychologically upset children and absent minded people in heaven | Professor ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
 
 ***
 
@@ -21,10 +17,6 @@
 * it travels through blood and
 * it travel through the genetic-lenght of a-human-being
 * From Tongue -> Mind -> Heart -> Every drop of blood
-
-***
-
-#### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
 
 *** 
 
@@ -44,6 +36,19 @@
 
 ***
 
+#### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
+
+***
+
+#### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
+* Ya-Salaam-u
+* Ya-Rehman-u
+* Ya-Wali-u
+* Ya-ZalJalal-wal-Ikram
+
+***
+
+
 #### [Mayoosi Say Nikalne Ka Hal | Irfan-ul-Haq](https://www.youtube.com/watch?v=WOiVXeexw30)
 * __Tasbeeh__: Pakki bayan-karna; tareef karna
 * __Surah 17/44__: [تُسَبِّحُ لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quran.com/17/44)
@@ -59,12 +64,6 @@
   * Treatment: Conversation
   * Timardari...
 * Find people in society who don't complain
-
-***
-
-#### [Fear, frustration, anxiety, depression and stress say Nijat | Professor ARA](https://www.youtube.com/watch?v=-kfaHT0CH4s)
-* __Surah 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
-* __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ](https://quran.com/2/200)
 
 ***
 

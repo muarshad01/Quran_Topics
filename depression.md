@@ -30,6 +30,10 @@
 
 ***
 
+#### [How to stay focused? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=BSg5EEsIZEY)
+
+***
+
 #### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 * It travels throgh time
 * it travels through blood

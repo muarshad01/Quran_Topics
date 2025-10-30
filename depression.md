@@ -154,3 +154,5 @@
 #### [Your Biggest Enemy -Uncontrolled mind? l Dr Rafiq Dar](https://www.youtube.com/watch?v=HHJCgOfwCbw)
 
 ***
+
+#### [Dopamine Detox | Reset Your Brain in Just One Week | Stop Feeling Tired & Lazy](https://www.youtube.com/watch?v=FBCGSb5UPdQ)

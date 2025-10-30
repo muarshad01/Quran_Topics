@@ -5,6 +5,10 @@
   * Muntaha: The final end. The last thing you can see.
 * __Surah An-Najm 53/15__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ](https://quran.com/53/15)
   * Mauva: The Garden-of-refuge
+  * Jannah is in the evens
+  * Size of Jannah:
+    * __Surah 3/133__: [وَجَنَّةٍ عَرْضُهَا ٱلسَّمَـٰوَٰتُ وَٱلْأَرْضُ](https://quran.com/3/133)
+    * __Surah 57/21__: [https://quran.com/57/21](https://quran.com/57/21)
 * __Surah An-Najm 53/16__: [إِذْ يَغْشَى ٱلسِّدْرَةَ مَا يَغْشَىٰ](https://quran.com/53/16)
 
 * 12:00

@@ -18,6 +18,11 @@
 
 ***
 
+#### [How to silence my mind? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1NjQr99_U2M)
+* Practice focusing 1/2-hr daily!
+
+***
+
 #### [Immediate management of anxiety | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=FFaMUYe1ATw)
 * 5 - Grounding technique: 5,4,3,2,1 (Look at five things)
 * 4 - Feel 4-things: Chair is touching legs, Eye-glass touches face/hand, some wind is blowing
@@ -56,10 +61,6 @@
 * Think you thoughs...like you're seeing them with your eyes. Need some practice!
 * Focus and use 5 senses...Exercises!!
 * Anxiety Exercise: Look at yoru heart, close your eyes, keep looking the heart.
-
-***
-
-#### [How to silence my mind? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1NjQr99_U2M)
 
 ***
 

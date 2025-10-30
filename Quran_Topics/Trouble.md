@@ -2,7 +2,11 @@
 
 ***
 
-### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
+#### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
+
+***
+
+#### [Your Destiny Is Not Fixed | Allah Changes Fate When You Strive | Professor ARA](https://www.youtube.com/watch?v=F17jD9l1OMo)
 
 ***
 

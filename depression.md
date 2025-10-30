@@ -26,20 +26,24 @@
 * 1 - Taste 1-thing.
 * Your brain will become focus.
 
-### 478 Technique
+### Breathing: 478 Technique
 * In-hale: 4 sec
 * Keep inside: 7 sec
 * Ex-hale: 8 sec
 
 #### Wash face with Cold-water
 
-#### Challenge your Negative thought
+#### Challenge your "Negative thought"
 * Nothing has happend to me. I'm ALL fine.
+
+#### Physical Activity
 
 #### Medidate
 * Loosen your body
 * Don't do anything
 * Write on paper
+
+#### Faith & Believe
 
 ***
 

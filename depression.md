@@ -81,7 +81,7 @@
 * Lost all his property
 * A very dear-one passes-away.
 * One one point-of-no-return once we die.
-* What is purpose of your life: ...
+* __What is purpose of your life__: ...
 
 ***
 

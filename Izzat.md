@@ -1,4 +1,5 @@
-#### [](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
+#### [...](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
+* __Surah 35/10__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quran.com/35/10)
 
 ***
 

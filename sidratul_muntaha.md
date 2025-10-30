@@ -2,6 +2,7 @@
 * __Surah An-Najm 53/07__: [وَهُوَ بِٱلْأُفُقِ ٱلْأَعْلَىٰ](https://quran.com/53/7)
 * __Surah An-Najm 53/11__: [مَا كَذَبَ ٱلْفُؤَادُ مَا رَأَىٰٓ](https://quran.com/53/11)
   * The heart didn't doubt about what it saw (seen versus un-seen reality)
+  * The HEART
 * __Surah An-Najm 53/13__: [وَلَقَدْ رَءَاهُ نَزْلَةً أُخْرَىٰ](https://quran.com/53/13)
 * __Surah An-Najm 53/14__: [عِندَ سِدْرَةِ ٱلْمُنتَهَىٰ](https://quran.com/53/14)
   * Muntaha: The final-end. The final-border. The last-thing you can see.

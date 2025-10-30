@@ -148,3 +148,9 @@
 ***
 
 #### [Your Biggest Enemy -Uncontrolled mind? l Dr Rafiq Dar](https://www.youtube.com/watch?v=HHJCgOfwCbw)
+
+***
+
+#### [How to silence my mind? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1NjQr99_U2M)
+
+***

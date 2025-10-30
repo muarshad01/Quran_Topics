@@ -10,11 +10,11 @@
 
 ***
 
-### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
+#### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
 
 ***
 
-### [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
+####3 [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
 * __Surah 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
 * __Surah 29/45__: [وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ](https://quran.com/29/45)
 

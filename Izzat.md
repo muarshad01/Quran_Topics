@@ -1,4 +1,4 @@
-#### [...](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
+#### [REEL: Faqeer Apni Zaat Ko Kaise Khatam Karta Hai? ](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
 * __Surah 35/10__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quran.com/35/10)
 
 ***

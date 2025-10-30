@@ -42,7 +42,7 @@
 * __Surah Az-Zukhruf 43/44__: [وَإِنَّهُۥ لَذِكْرٌۭ لَّكَ وَلِقَوْمِكَ ۖ وَسَوْفَ تُسْـَٔلُونَ](https://quranwbw.com/43/44)
 
 #### Is there Anyone?
-* __Surah Al-Qamar 54/17__: [وَلَقَدْ يَسَّرْنَا ٱلْقُرْءَانَ لِلذِّكْرِ فَهَلْ مِن مُّدَّكِرٍۢ](https://quranwbw.com/54/17)
+* __Surah Al-Qamar 54/17 (Is there anyone who'll take up the challenge and remember?)__: [وَلَقَدْ يَسَّرْنَا ٱلْقُرْءَانَ لِلذِّكْرِ فَهَلْ مِن مُّدَّكِرٍۢ](https://quranwbw.com/54/17)
 
 * __Surah Al-Waqiah 56/79__: [لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ](https://quranwbw.com/56/79)
 * __Surah Al-Waqiah 56/81__: [أَفَبِهَـٰذَا ٱلْحَدِيثِ أَنتُم مُّدْهِنُونَ](https://quranwbw.com/56/81)

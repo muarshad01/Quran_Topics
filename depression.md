@@ -68,6 +68,9 @@
 ***
 
 #### [How to stay focused? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=BSg5EEsIZEY)
+* When we're foucing, we're in PRESENT, otherwise, we're in PAST / FUTURE.
+* Most of us are sleeping because we live in past/future.
+* EXERCISE: Sit for 15-minutes and do-nothing. I'm ALERT!
 
 ***
 

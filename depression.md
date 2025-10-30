@@ -48,6 +48,14 @@
 ***
 
 #### [“Silence Your Mind: How to Stop Overthinking & Inner Chatter!” | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=ZEcMcpJ-xd0)
+* When I sleep, my brain keep wandering
+* I keep thinking for things that have not yet happend
+* Or keep things about something that has already happend
+* Control the thinking of our brain
+* Cortisol hormone...
+* Think you thoughs...like you're seeing them with your eyes. Need some practice!
+* Focus and use 5 senses...Exercises!!
+* Anxiety Exercise: Look at yoru heart, close your eyes, keep looking the heart.
 
 ***
 

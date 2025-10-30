@@ -26,6 +26,10 @@
 
 ***
 
+#### [How to silence my mind? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1NjQr99_U2M)
+
+***
+
 #### [Difficulty in sleeping | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=XMc_4-YkOXY)
 
 ***
@@ -148,9 +152,5 @@
 ***
 
 #### [Your Biggest Enemy -Uncontrolled mind? l Dr Rafiq Dar](https://www.youtube.com/watch?v=HHJCgOfwCbw)
-
-***
-
-#### [How to silence my mind? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1NjQr99_U2M)
 
 ***

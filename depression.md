@@ -146,3 +146,5 @@
 ### [Psychotic Depression Treatment, Anxiety aur Depression ka elaj | Professor ARA](https://www.youtube.com/watch?v=_4f6uVGgaqc)
 
 ***
+
+#### [Your Biggest Enemy -Uncontrolled mind? l Dr Rafiq Dar](https://www.youtube.com/watch?v=HHJCgOfwCbw)

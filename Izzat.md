@@ -1,3 +1,7 @@
+#### [](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
+
+***
+
 ### [Path to Honor in the Qur’an? | قرآن میں عزت کا راستہ کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=1PcI4opp-uc)
 * Constitution for human life
 * Preamble:

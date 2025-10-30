@@ -4,6 +4,7 @@
 * __Surah An-Najm 53/14__: [عِندَ سِدْرَةِ ٱلْمُنتَهَىٰ](https://quran.com/53/14)
   * Muntaha: The final end. The last thing you can see.
 * __Surah An-Najm 53/15__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ](https://quran.com/53/15)
+  * Mauva: The Garden-of-refuge
 * __Surah An-Najm 53/16__: [إِذْ يَغْشَى ٱلسِّدْرَةَ مَا يَغْشَىٰ](https://quran.com/53/16)
 
 * 12:00

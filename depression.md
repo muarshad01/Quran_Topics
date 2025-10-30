@@ -1,7 +1,3 @@
-#### [Exercise-to-Control Thoughts-in-Mind | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=uZPUlsvDUeA)
-
-***
-
 #### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
 * Everybody has problems
 * Learn to Calm your Mind
@@ -76,6 +72,16 @@
 * When we're foucing, we're in PRESENT, otherwise, we're in PAST / FUTURE.
 * Most of us are sleeping because we live in past/future.
 * EXERCISE: Sit for 15-minutes and do-nothing. I'm ALERT!
+
+***
+
+#### [Exercise-to-Control Thoughts-in-Mind | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=uZPUlsvDUeA)
+* No point in-our-life is point-of-no-return.
+* Hand is cut
+* Lost all his property
+* A very dear-one passes-away.
+* One one point-of-no-return once we die.
+* What is purpose of your life: ...
 
 ***
 

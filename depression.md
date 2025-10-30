@@ -20,6 +20,8 @@
 
 #### [How to silence my mind? | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=1NjQr99_U2M)
 * Practice focusing 1/2-hr daily!
+* While prayer, consider offer prayer in Khana-Kabba, foucus!
+* 
 
 ***
 

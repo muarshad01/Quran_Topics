@@ -19,10 +19,15 @@
 ***
 
 #### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
+* __Surah 65/2__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا ٢](https://quran.com/65/2)
+* __Surah 65/3__: [فَإِذَا بَلَغْنَ أَجَلَهُنَّ فَأَمْسِكُوهُنَّ بِمَعْرُوفٍ أَوْ فَارِقُوهُنَّ بِمَعْرُوفٍۢ وَأَشْهِدُوا۟ ذَوَىْ عَدْلٍۢ مِّنكُمْ وَأَقِيمُوا۟ ٱلشَّهَـٰدَةَ لِلَّهِ ۚ ذَٰلِكُمْ يُوعَظُ بِهِۦ مَن كَانَ يُؤْمِنُ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۚ وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا ٢ وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
+* __Surah 9/40__: [لِصَـٰحِبِهِۦ لَا تَحْزَنْ إِنَّ ٱللَّهَ مَعَنَا ۖ](https://quran.com/9/40)
+* Returned empty-handed from Taif
+* Allah SWT open doors of Madina
 
 ***
 
-####3 [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
+#### [Fear, frustration، depression ka elaaj | Professor ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
 * __Surah 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
 * __Surah 29/45__: [وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ](https://quran.com/29/45)
 

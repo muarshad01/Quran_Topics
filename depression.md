@@ -26,7 +26,7 @@
 * 1 - Taste 1-thing.
 * Your brain will become focus.
 
-### Breathing: 478 Technique
+#### Breathing: 478 Technique
 * In-hale: 4 sec
 * Keep inside: 7 sec
 * Ex-hale: 8 sec

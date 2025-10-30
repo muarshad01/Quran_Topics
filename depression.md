@@ -77,11 +77,13 @@
 
 #### [Exercise-to-Control Thoughts-in-Mind | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=uZPUlsvDUeA)
 * No point in-our-life is point-of-no-return.
-* Hand is cut
-* Lost all his property
-* A very dear-one passes-away.
+1. Hand is cut
+2. Lost all his property
+3. A very dear-one passes-away.
 * One one point-of-no-return once we die.
 * __What is purpose of your life__: ...
+* Mayoosi is Satans top-weapon
+* 10:51...
 
 ***
 

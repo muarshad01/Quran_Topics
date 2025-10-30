@@ -13,12 +13,33 @@
 1. Eyes: Looking Solid things around (Door, Mirroe, Sofas, Cupbords)
 2. Ears: Listen to Sounds
 3. Nose: Smell Fragrance
-4. Breathing: 
+4. Breathing 
 * Perception versus Reality
 
 ***
 
 #### [Immediate management of anxiety | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=FFaMUYe1ATw)
+* 5 - Grounding technique: 5,4,3,2,1 (Look at five things)
+* 4 - Feel 4-things: Chair is touching legs, Eye-glass touches face/hand, some wind is blowing
+* 3 - Try to listen 3-voices: Kids are talking outside, genertor voice, fan voice, feet voice
+* 2 - Try to smell 2-things: Flowers smell, washroom smell
+* 1 - Taste 1-thing.
+* Your brain will become focus.
+
+### 478 Technique
+* In-hale: 4 sec
+* Keep inside: 7 sec
+* Ex-hale: 8 sec
+
+#### Wash face with Cold-water
+
+#### Challenge your Negative thought
+* Nothing has happend to me. I'm ALL fine.
+
+#### Medidate
+* Loosen your body
+* Don't do anything
+* Write on paper
 
 ***
 

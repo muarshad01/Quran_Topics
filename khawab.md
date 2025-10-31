@@ -23,8 +23,3 @@
 * 
 
 ***
-
-#### [Dream Signs You Must Know | خوابوں کے چھپے اشارے | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
-*
-
-***

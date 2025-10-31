@@ -27,3 +27,8 @@
 * 
 
 ***
+
+#### [How to avoid the evil of bad dreams | Dr Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=dmucvEp3e0Q)
+* Left-side, 3-times Tauz, 3-times, spit
+
+***

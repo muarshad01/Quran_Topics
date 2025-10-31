@@ -22,3 +22,11 @@
 * 34:00
 
 ***
+
+#### [What exactly did the Prophet (saw) see on the night of Mi'raj? Nouman Ali khan lectures](https://www.youtube.com/watch?v=I26vKYT1_Tg)
+
+***
+
+#### [surah najm tafseer by nouman ali khan | nouman ali khan lectures](https://www.youtube.com/watch?v=ZaQRdbtVvqw)
+
+***

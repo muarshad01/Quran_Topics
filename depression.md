@@ -207,3 +207,7 @@
 #### [Dopamine Detox | Reset Your Brain in Just One Week | Stop Feeling Tired & Lazy](https://www.youtube.com/watch?v=FBCGSb5UPdQ)
 
 ***
+
+#### [Bay Sukoni Kaise Khatam Ho | Anxiety, Unrest | Wasif Ali Wasif](https://www.youtube.com/watch?v=tgkb1HXOWq0)
+
+***

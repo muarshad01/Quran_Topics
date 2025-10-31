@@ -8,6 +8,8 @@
 
 #### [Namaz Mein Ruku Ka Hukm Kyun Hai? The Hidden Wisdom Behind Ruku! | Mufti Muneer Ahmad Akhoon]()
 * __Surah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quran.com/2/43)
+* Yahud Namaz has only Qayam-and-Sajdah but no Ruku
+* Offer the Namaz of Muhammad PBUH and which Muslims offer (Qayam; Ruku; Sajdah)
 
 ***
 

@@ -6,6 +6,11 @@
 
 ***
 
+#### [Namaz Mein Ruku Ka Hukm Kyun Hai? The Hidden Wisdom Behind Ruku! | Mufti Muneer Ahmad Akhoon]()
+* __Surah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quran.com/2/43)
+
+***
+
 #### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
 * __Offer 2-rakat Salat-e-Hajat (21 days regularly)__
 * First rakat recite __Surah Al-Kaifroon__

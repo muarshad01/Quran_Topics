@@ -10,9 +10,9 @@
 * What is your Spiritual-condition
 
 * What part-of-night you've seen that dream
- * Right after sleeping...digestion systems is active...
- * Last-1/3 part-of-night - Tahajjat; our own sooch / mind / thinking
- * Right Before / After the Fajr prayer 
+   * Right after sleeping...digestion systems is active...
+   * Last-1/3 part-of-night - Tahajjat; our own sooch / mind / thinking
+   * Right Before / After the Fajr prayer 
 
 ***
 

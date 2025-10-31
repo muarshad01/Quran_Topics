@@ -1,4 +1,4 @@
-### [Dream Signs You Must Know | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
+#### [Dream Signs You Must Know | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
 * There are three types of dreams:
 1. Sachay - Tabeer is exactly like what we saw the dream
 2. We need Tabeer - Only that person who know Ilm-e-tabeer, can tell us the tabeer
@@ -12,9 +12,18 @@
 
 ***
 
-### [Reality Of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+#### [Reality Of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 1. Unconcious
 2. Concious
 3. Subconcious
 
+***
+
+### [Reality Of Bad Dreams - Solve Your Problems | SSA Shah](https://www.youtube.com/watch?v=lf7z7gW4yA0)
+* 
+
+***
+
+#### [Dream Signs You Must Know | خوابوں کے چھپے اشارے | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
+* 
 ***

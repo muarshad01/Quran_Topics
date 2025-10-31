@@ -23,7 +23,7 @@
 
 ***
 
-#### [Reality Of Bad Dreams - Solve Your Problems | SSA Shah](https://www.youtube.com/watch?v=lf7z7gW4yA0)
+#### [Reality of Bad Dreams - Solve Your Problems | SSA Shah](https://www.youtube.com/watch?v=lf7z7gW4yA0)
 * 
 
 ***

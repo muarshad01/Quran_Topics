@@ -16,7 +16,7 @@
 
 ***
 
-#### [Reality Of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+#### [Reality of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 1. Unconcious
 2. Subconcious (La-Shaoor; most active)
 3. Concious

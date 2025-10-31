@@ -2,8 +2,8 @@
 * There are three types of dreams:
 1. Sachay - Tabeer is exactly like what we saw the dream
 2. We need Tabeer - Only that person who know Ilm-e-tabeer, can tell us the tabeer
-3. Third type is based on our-Waswasa or our-Nafs-is-showing-us
-* Never tell-your-dream after __2:00 pm__ in the afternoon. Otherwise, it is wasted!
+3. Third type is based on our Waswasa-or-Nafs is-showing-us
+* Never tell-your-dream after __2:00 pm__ in the afternoon. Otherwise, it is wasted!!
 * What is your spiritual-condition
 * What part-of-night you've seen that dream
 * Right after sleeping...digestion systems is active...

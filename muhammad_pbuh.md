@@ -364,6 +364,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [Allama Talib Johri | Musa as Main Allah..............](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
+***
+
+## Wasif Ali Wasif
 
 #### [Darood Sharif Ke Aaadab | Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
 
@@ -380,10 +383,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-#### [Darood Sharif Ka Karishma Ap Ki Tamam Pareshanio Ka Wahid Hal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ila0VgpMpPQ)
+#### [Jibreel علیہ السلام Aur Ek Shakhs Ke Dilchasp Guftgu | Wasif Ali Wasif](https://www.youtube.com/watch?v=W-nywP3THeY)
 
 ***
 
-#### [Jibreel علیہ السلام Aur Ek Shakhs Ke Dilchasp Guftgu | Wasif Ali Wasif](https://www.youtube.com/watch?v=W-nywP3THeY)
+#### [Darood Sharif Ka Karishma Ap Ki Tamam Pareshanio Ka Wahid Hal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ila0VgpMpPQ)
 
 ***

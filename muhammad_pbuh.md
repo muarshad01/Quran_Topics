@@ -2,7 +2,7 @@
 
 ***
 
-* https://www.youtube.com/shorts/f7Ku5S8dtXE
+#### [Story of a Black Smith](https://www.youtube.com/shorts/f7Ku5S8dtXE)
 
 ***
 

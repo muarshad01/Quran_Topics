@@ -51,61 +51,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ## Allama Talib Johri
 
-#### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
-* __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
-#### Insaan versus Ale-Muhammad 
-* __Surah 57/20 (Whole Human Life)__: [ٱعْلَمُوٓا۟ أَنَّمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا لَعِبٌۭ وَلَهْوٌۭ وَزِينَةٌۭ وَتَفَاخُرٌۢ بَيْنَكُمْ وَتَكَاثُرٌۭ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ ۖ](https://quranwbw.com/57/20)
-* __Surah 6/162 (Whole life or Prophet PBUH for Allah SWT)__: [قُلْ إِنَّ صَلَاتِى وَنُسُكِى وَمَحْيَاىَ وَمَمَاتِى لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quranwbw.com/6/162)
-
-* Based on Islamic tradition, the story of __Bahira, a Christian monk__, recognizing the signs of prophethood in young Muhammad (then accompanied by his uncle Abu Talib) is widely known.
-
-* __Surah 5/15__: [قَدْ جَآءَكُم مِّنَ ٱللَّهِ نُورٌۭ وَكِتَـٰبٌۭ مُّبِينٌۭ](https://quranwbw.com/5/15)
-
-#### Hadith
-* [Yazid b. Hayyan reported, I went along with Husain b. Sabra and 'Umar b. Muslim to Zaid b. Arqam and, as we sat by his side, Husain said to him: Zaid. you have been able to acquire a great virtue that you saw Allah's Messenger (ﷺ) listened to his talk, fought by his side in (different) battles, offered prayer behind me. Zaid, you have in fact earned a great virtue. Zaid, narrate to us what you heard from Allah's Messenger (ﷺ). He said: I have grown old and have almost spent my age and I have forgotten some of the things which I remembered in connection with Allah's Messenger (ﷺ), so accept whatever I narrate to you, and which I do not narrate do not compel me to do that. He then said: One day Allah's Messenger (ﷺ) stood up to deliver sermon at a watering place known as Khumm situated between Mecca and Medina. He praised Allah, extolled Him and delivered the sermon and. exhorted (us) and said: Now to our purpose. O people, I am a human being. I am about to receive a messenger (the angel of death) from my Lord and I, in response to Allah's call, (would bid good-bye to you), but ==> I am leaving among you two weighty things: the one being the Book of Allah in which there is right guidance and light, so hold fast to the Book of Allah and adhere to it. He exhorted (us) (to hold fast) to the Book of Allah and then said: The second are the members of my household I remind you (of your duties) to the members of my family. He (Husain) said to Zaid: Who are the members of his household? Aren't his wives the members of his family? Thereupon he said: His wives are the members of his family (but here) the members of his family are those for whom acceptance of Zakat is forbidden. And he said: Who are they? Thereupon he said: 'Ali and the offspring of 'Ali, 'Aqil and the offspring of 'Aqil and the offspring of Ja'far and the offspring of 'Abbas. Husain said: These are those for whom the acceptance of Zakat is forbidden. Zaid said: Yes.](https://sunnah.com/muslim:2408a) -- Sahih Muslim 2408a
-
-* __Surah 2/260 (Abraham AS: Satisfaction)__: [رَبِّ أَرِنِى كَيْفَ تُحْىِ ٱلْمَوْتَىٰ ۖ قَالَ أَوَلَمْ تُؤْمِن ۖ قَالَ بَلَىٰ وَلَـٰكِن لِّيَطْمَئِنَّ قَلْبِى ۖ](https://quranwbw.com/2/260)
-* __Surah 89/27-30 (Muhammad PBUH)__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
-
-
-#### Abd offers + Prayer
-* __Surah 96/9-19__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quran.com/96/9-10)
-* Rooh niyat karti hay...jims Namaaz partha hai
-* Abd = Rooh + Jism
-* __Surah Al-Israa 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quranwbw.com/17/1)
-* If you cross/go-beyond your limits...you'll be burnt.
-
-#### Noor
-* __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
-* __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
-
-#### Allah Noor; Quran Noor; Imaan Noor; Muhammad PBUH Noor;
-* __Surah At-Tahrim 66/8__: [يَوْمَ لَا يُخْزِى ٱللَّهُ ٱلنَّبِىَّ وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ ۖ...نُورُهُمْ يَسْعَىٰ بَيْنَ أَيْدِيهِمْ وَبِأَيْمَـٰنِهِمْ](https://quran.com/66/8)
-* Saath Imaan-Lai (Ma'ahu)
-* __Surah Al-Furqan 25/35__: [وَجَعَلْنَا مَعَهُۥٓ أَخَاهُ هَـٰرُونَ وَزِيرًۭا](https://quran.com/25/35)
-* __Surah 57/13__: [يَوْمَ يَقُولُ ٱلْمُنَـٰفِقُونَ وَٱلْمُنَـٰفِقَـٰتُ لِلَّذِينَ ءَامَنُوا۟ ٱنظُرُونَا نَقْتَبِسْ مِن نُّورِكُمْ...قِيلَ ٱرْجِعُوا۟ وَرَآءَكُمْ فَٱلْتَمِسُوا۟ نُورًۭا](https://quranwbw.com/57/13)
-* __Surah 3/61__: [Now, whoever disputes with you ˹O Prophet˺ concerning Jesus after full knowledge has come to you, say, “Come! Let us gather our children and your children, our women and your women, ourselves and yourselves—then let us sincerely invoke Allah’s curse upon the liars.”](https://quranwbw.com/3/61)
-
-***
-
-#### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
-#### Other Prophets
-* __Surah Al-Baqarah 2/213__: [كَانَ ٱلنَّاسُ أُمَّةًۭ وَٰحِدَةًۭ فَبَعَثَ ٱللَّهُ ٱلنَّبِيِّـۧنَ مُبَشِّرِينَ وَمُنذِرِينَ وَأَنزَلَ مَعَهُمُ ٱلْكِتَـٰبَ بِٱلْحَقِّ لِيَحْكُمَ بَيْنَ ٱلنَّاسِ فِيمَا ٱخْتَلَفُوا۟ فِيهِ ۚ وَمَا ٱخْتَلَفَ فِيهِ إِلَّا ٱلَّذِينَ أُوتُوهُ مِنۢ بَعْدِ مَا جَآءَتْهُمُ ٱلْبَيِّنَـٰتُ بَغْيًۢا بَيْنَهُمْ ۖ فَهَدَى ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ لِمَا ٱخْتَلَفُوا۟ فِيهِ مِنَ ٱلْحَقِّ بِإِذْنِهِۦ ۗ وَٱللَّهُ يَهْدِى مَن يَشَآءُ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍ ٢١٣](https://quranwbw.com/2/213)
-* __Surah An-Nahl 16/36__: [وَلَقَدْ بَعَثْنَا فِى كُلِّ أُمَّةٍۢ رَّسُولًا أَنِ ٱعْبُدُوا۟ ٱللَّهَ وَٱجْتَنِبُوا۟ ٱلطَّـٰغُوتَ ۖ فَمِنْهُم مَّنْ هَدَى ٱللَّهُ وَمِنْهُم مَّنْ حَقَّتْ عَلَيْهِ ٱلضَّلَـٰلَةُ ۚ فَسِيرُوا۟ فِى ٱلْأَرْضِ فَٱنظُرُوا۟ كَيْفَ كَانَ عَـٰقِبَةُ ٱلْمُكَذِّبِينَ ٣٦](https://quranwbw.com/16/36)
-* __Surah Al-Hadid 57/25__: [لَقَدْ أَرْسَلْنَا رُسُلَنَا بِٱلْبَيِّنَـٰتِ وَأَنزَلْنَا مَعَهُمُ ٱلْكِتَـٰبَ وَٱلْمِيزَانَ لِيَقُومَ ٱلنَّاسُ بِٱلْقِسْطِ ۖ وَأَنزَلْنَا ٱلْحَدِيدَ فِيهِ بَأْسٌۭ شَدِيدٌۭ وَمَنَـٰفِعُ لِلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ مَن يَنصُرُهُۥ وَرُسُلَهُۥ بِٱلْغَيْبِ ۚ إِنَّ ٱللَّهَ قَوِىٌّ عَزِيزٌۭ ٢٥](https://quranwbw.com/57/25)
-
-#### Prophet Muhammad PBUH
-* __Surah Al-Araaf 7/157__: [ٱلَّذِينَ يَتَّبِعُونَ ٱلرَّسُولَ ٱلنَّبِىَّ ٱلْأُمِّىَّ ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ يَأْمُرُهُم بِٱلْمَعْرُوفِ وَيَنْهَىٰهُمْ عَنِ ٱلْمُنكَرِ وَيُحِلُّ لَهُمُ ٱلطَّيِّبَـٰتِ وَيُحَرِّمُ عَلَيْهِمُ ٱلْخَبَـٰٓئِثَ وَيَضَعُ عَنْهُمْ إِصْرَهُمْ وَٱلْأَغْلَـٰلَ ٱلَّتِى كَانَتْ عَلَيْهِمْ ۚ فَٱلَّذِينَ ءَامَنُوا۟ بِهِۦ وَعَزَّرُوهُ وَنَصَرُوهُ وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ أُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ ١٥٧](https://quranwbw.com/7/157)
-* __Surah Al-Muminoon 23/27 (Nuh AS)__: [فَأَوْحَيْنَآ إِلَيْهِ أَنِ ٱصْنَعِ ٱلْفُلْكَ بِأَعْيُنِنَا وَوَحْيِنَا فَإِذَا جَآءَ أَمْرُنَا وَفَارَ ٱلتَّنُّورُ ۙ فَٱسْلُكْ فِيهَا مِن كُلٍّۢ زَوْجَيْنِ ٱثْنَيْنِ وَأَهْلَكَ إِلَّا مَن سَبَقَ عَلَيْهِ ٱلْقَوْلُ مِنْهُمْ ۖ وَلَا تُخَـٰطِبْنِى فِى ٱلَّذِينَ ظَلَمُوٓا۟ ۖ إِنَّهُم مُّغْرَقُونَ ٢٧](https://quranwbw.com/23/27)
-* __Surah At-Tur 52/48 (Muhammad PBUH)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ ٤٨](https://quranwbw.com/52/48)
-* __Surah Al-Jumma 62/2__:[هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ ٢](https://quranwbw.com/62/2)
-
-#### 
-* __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
-* __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ...ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ...فَٱدْخُلِى فِى عِبَـٰدِى...وَٱدْخُلِى جَنَّتِى](https://quran.com/89/27-30)
-
-***
-
 #### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
 * __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
 * __Surah 49/1-2__: [لَا تُقَدِّمُوا۟ بَيْنَ يَدَىِ ٱللَّهِ وَرَسُولِهِۦ ۖ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ](https://quran.com/49/1-2)
@@ -260,6 +205,62 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 #### [Musa AS Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
+
+#### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+* __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
+#### Insaan versus Ale-Muhammad 
+* __Surah 57/20 (Whole Human Life)__: [ٱعْلَمُوٓا۟ أَنَّمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا لَعِبٌۭ وَلَهْوٌۭ وَزِينَةٌۭ وَتَفَاخُرٌۢ بَيْنَكُمْ وَتَكَاثُرٌۭ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ ۖ](https://quranwbw.com/57/20)
+* __Surah 6/162 (Whole life or Prophet PBUH for Allah SWT)__: [قُلْ إِنَّ صَلَاتِى وَنُسُكِى وَمَحْيَاىَ وَمَمَاتِى لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quranwbw.com/6/162)
+
+* Based on Islamic tradition, the story of __Bahira, a Christian monk__, recognizing the signs of prophethood in young Muhammad (then accompanied by his uncle Abu Talib) is widely known.
+
+* __Surah 5/15__: [قَدْ جَآءَكُم مِّنَ ٱللَّهِ نُورٌۭ وَكِتَـٰبٌۭ مُّبِينٌۭ](https://quranwbw.com/5/15)
+
+#### Hadith
+* [Yazid b. Hayyan reported, I went along with Husain b. Sabra and 'Umar b. Muslim to Zaid b. Arqam and, as we sat by his side, Husain said to him: Zaid. you have been able to acquire a great virtue that you saw Allah's Messenger (ﷺ) listened to his talk, fought by his side in (different) battles, offered prayer behind me. Zaid, you have in fact earned a great virtue. Zaid, narrate to us what you heard from Allah's Messenger (ﷺ). He said: I have grown old and have almost spent my age and I have forgotten some of the things which I remembered in connection with Allah's Messenger (ﷺ), so accept whatever I narrate to you, and which I do not narrate do not compel me to do that. He then said: One day Allah's Messenger (ﷺ) stood up to deliver sermon at a watering place known as Khumm situated between Mecca and Medina. He praised Allah, extolled Him and delivered the sermon and. exhorted (us) and said: Now to our purpose. O people, I am a human being. I am about to receive a messenger (the angel of death) from my Lord and I, in response to Allah's call, (would bid good-bye to you), but ==> I am leaving among you two weighty things: the one being the Book of Allah in which there is right guidance and light, so hold fast to the Book of Allah and adhere to it. He exhorted (us) (to hold fast) to the Book of Allah and then said: The second are the members of my household I remind you (of your duties) to the members of my family. He (Husain) said to Zaid: Who are the members of his household? Aren't his wives the members of his family? Thereupon he said: His wives are the members of his family (but here) the members of his family are those for whom acceptance of Zakat is forbidden. And he said: Who are they? Thereupon he said: 'Ali and the offspring of 'Ali, 'Aqil and the offspring of 'Aqil and the offspring of Ja'far and the offspring of 'Abbas. Husain said: These are those for whom the acceptance of Zakat is forbidden. Zaid said: Yes.](https://sunnah.com/muslim:2408a) -- Sahih Muslim 2408a
+
+* __Surah 2/260 (Abraham AS: Satisfaction)__: [رَبِّ أَرِنِى كَيْفَ تُحْىِ ٱلْمَوْتَىٰ ۖ قَالَ أَوَلَمْ تُؤْمِن ۖ قَالَ بَلَىٰ وَلَـٰكِن لِّيَطْمَئِنَّ قَلْبِى ۖ](https://quranwbw.com/2/260)
+* __Surah 89/27-30 (Muhammad PBUH)__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
+
+
+#### Abd offers + Prayer
+* __Surah 96/9-19__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quran.com/96/9-10)
+* Rooh niyat karti hay...jims Namaaz partha hai
+* Abd = Rooh + Jism
+* __Surah Al-Israa 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quranwbw.com/17/1)
+* If you cross/go-beyond your limits...you'll be burnt.
+
+#### Noor
+* __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
+* __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
+
+#### Allah Noor; Quran Noor; Imaan Noor; Muhammad PBUH Noor;
+* __Surah At-Tahrim 66/8__: [يَوْمَ لَا يُخْزِى ٱللَّهُ ٱلنَّبِىَّ وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ ۖ...نُورُهُمْ يَسْعَىٰ بَيْنَ أَيْدِيهِمْ وَبِأَيْمَـٰنِهِمْ](https://quran.com/66/8)
+* Saath Imaan-Lai (Ma'ahu)
+* __Surah Al-Furqan 25/35__: [وَجَعَلْنَا مَعَهُۥٓ أَخَاهُ هَـٰرُونَ وَزِيرًۭا](https://quran.com/25/35)
+* __Surah 57/13__: [يَوْمَ يَقُولُ ٱلْمُنَـٰفِقُونَ وَٱلْمُنَـٰفِقَـٰتُ لِلَّذِينَ ءَامَنُوا۟ ٱنظُرُونَا نَقْتَبِسْ مِن نُّورِكُمْ...قِيلَ ٱرْجِعُوا۟ وَرَآءَكُمْ فَٱلْتَمِسُوا۟ نُورًۭا](https://quranwbw.com/57/13)
+* __Surah 3/61__: [Now, whoever disputes with you ˹O Prophet˺ concerning Jesus after full knowledge has come to you, say, “Come! Let us gather our children and your children, our women and your women, ourselves and yourselves—then let us sincerely invoke Allah’s curse upon the liars.”](https://quranwbw.com/3/61)
+
+***
+
+#### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
+#### Other Prophets
+* __Surah Al-Baqarah 2/213__: [كَانَ ٱلنَّاسُ أُمَّةًۭ وَٰحِدَةًۭ فَبَعَثَ ٱللَّهُ ٱلنَّبِيِّـۧنَ مُبَشِّرِينَ وَمُنذِرِينَ وَأَنزَلَ مَعَهُمُ ٱلْكِتَـٰبَ بِٱلْحَقِّ لِيَحْكُمَ بَيْنَ ٱلنَّاسِ فِيمَا ٱخْتَلَفُوا۟ فِيهِ ۚ وَمَا ٱخْتَلَفَ فِيهِ إِلَّا ٱلَّذِينَ أُوتُوهُ مِنۢ بَعْدِ مَا جَآءَتْهُمُ ٱلْبَيِّنَـٰتُ بَغْيًۢا بَيْنَهُمْ ۖ فَهَدَى ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ لِمَا ٱخْتَلَفُوا۟ فِيهِ مِنَ ٱلْحَقِّ بِإِذْنِهِۦ ۗ وَٱللَّهُ يَهْدِى مَن يَشَآءُ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍ ٢١٣](https://quranwbw.com/2/213)
+* __Surah An-Nahl 16/36__: [وَلَقَدْ بَعَثْنَا فِى كُلِّ أُمَّةٍۢ رَّسُولًا أَنِ ٱعْبُدُوا۟ ٱللَّهَ وَٱجْتَنِبُوا۟ ٱلطَّـٰغُوتَ ۖ فَمِنْهُم مَّنْ هَدَى ٱللَّهُ وَمِنْهُم مَّنْ حَقَّتْ عَلَيْهِ ٱلضَّلَـٰلَةُ ۚ فَسِيرُوا۟ فِى ٱلْأَرْضِ فَٱنظُرُوا۟ كَيْفَ كَانَ عَـٰقِبَةُ ٱلْمُكَذِّبِينَ ٣٦](https://quranwbw.com/16/36)
+* __Surah Al-Hadid 57/25__: [لَقَدْ أَرْسَلْنَا رُسُلَنَا بِٱلْبَيِّنَـٰتِ وَأَنزَلْنَا مَعَهُمُ ٱلْكِتَـٰبَ وَٱلْمِيزَانَ لِيَقُومَ ٱلنَّاسُ بِٱلْقِسْطِ ۖ وَأَنزَلْنَا ٱلْحَدِيدَ فِيهِ بَأْسٌۭ شَدِيدٌۭ وَمَنَـٰفِعُ لِلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ مَن يَنصُرُهُۥ وَرُسُلَهُۥ بِٱلْغَيْبِ ۚ إِنَّ ٱللَّهَ قَوِىٌّ عَزِيزٌۭ ٢٥](https://quranwbw.com/57/25)
+
+#### Prophet Muhammad PBUH
+* __Surah Al-Araaf 7/157__: [ٱلَّذِينَ يَتَّبِعُونَ ٱلرَّسُولَ ٱلنَّبِىَّ ٱلْأُمِّىَّ ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ يَأْمُرُهُم بِٱلْمَعْرُوفِ وَيَنْهَىٰهُمْ عَنِ ٱلْمُنكَرِ وَيُحِلُّ لَهُمُ ٱلطَّيِّبَـٰتِ وَيُحَرِّمُ عَلَيْهِمُ ٱلْخَبَـٰٓئِثَ وَيَضَعُ عَنْهُمْ إِصْرَهُمْ وَٱلْأَغْلَـٰلَ ٱلَّتِى كَانَتْ عَلَيْهِمْ ۚ فَٱلَّذِينَ ءَامَنُوا۟ بِهِۦ وَعَزَّرُوهُ وَنَصَرُوهُ وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ أُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ ١٥٧](https://quranwbw.com/7/157)
+* __Surah Al-Muminoon 23/27 (Nuh AS)__: [فَأَوْحَيْنَآ إِلَيْهِ أَنِ ٱصْنَعِ ٱلْفُلْكَ بِأَعْيُنِنَا وَوَحْيِنَا فَإِذَا جَآءَ أَمْرُنَا وَفَارَ ٱلتَّنُّورُ ۙ فَٱسْلُكْ فِيهَا مِن كُلٍّۢ زَوْجَيْنِ ٱثْنَيْنِ وَأَهْلَكَ إِلَّا مَن سَبَقَ عَلَيْهِ ٱلْقَوْلُ مِنْهُمْ ۖ وَلَا تُخَـٰطِبْنِى فِى ٱلَّذِينَ ظَلَمُوٓا۟ ۖ إِنَّهُم مُّغْرَقُونَ ٢٧](https://quranwbw.com/23/27)
+* __Surah At-Tur 52/48 (Muhammad PBUH)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ ٤٨](https://quranwbw.com/52/48)
+* __Surah Al-Jumma 62/2__:[هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ ٢](https://quranwbw.com/62/2)
+
+#### 
+* __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
+* __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ...ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ...فَٱدْخُلِى فِى عِبَـٰدِى...وَٱدْخُلِى جَنَّتِى](https://quran.com/89/27-30)
+
+***
+
 
 ## Irfan-ul-Haq
 

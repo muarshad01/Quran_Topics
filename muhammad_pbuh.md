@@ -362,3 +362,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
 
 ***
+
+#### [Subha Darood Shareef Parhne Ka Faida | Wasif Ali Wasif](https://www.youtube.com/watch?v=7tyjySIJT1w)
+* Har-dua-joo darood-say baghir-hoo, woh asmaan-say lotaa-di jaati-hai.
+* Darood Rooh-ki ghaza-hai
+* Qayamat-kay-din, mujh-say sab-say qareeb woh-hoo-ga, joo-much-par kasrat-say darood-partha-raha.
+
+***
+
+#### [Darood Sharif Ka Karishma Ap Ki Tamam Pareshanio Ka Wahid Hal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ila0VgpMpPQ)
+
+***

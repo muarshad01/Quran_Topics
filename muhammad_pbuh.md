@@ -364,7 +364,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [Allama Talib Johri | Musa as Main Allah..............](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
-***
 
 ## Wasif Ali Wasif
 

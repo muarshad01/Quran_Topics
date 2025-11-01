@@ -362,6 +362,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
+#### [Darood Sharif Ek Aisa Wazifa Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=9rnIfut1MN8)
+
+***
+
 #### [Subha Darood Shareef Parhne Ka Faida | Wasif Ali Wasif](https://www.youtube.com/watch?v=7tyjySIJT1w)
 * Har-dua-joo darood-say baghir-hoo, woh asmaan-say lotaa-di jaati-hai.
 * Darood Rooh-ki ghaza-hai

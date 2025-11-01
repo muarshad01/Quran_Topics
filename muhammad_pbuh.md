@@ -355,7 +355,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Darood Sharif Ke Aadab Hz. Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
+### [Darood Sharif Ke Aaadab | Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
 
 ***
 

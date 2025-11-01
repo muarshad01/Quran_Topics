@@ -348,6 +348,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
+* Quality of Mitti of Hazrat Muhammad PBUH
+* Syed-ul-Anbii
+* Syed-ul-Malaika
+* __Surah 96/9__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ](https://quran.com/96/9)
+* Abad: Rooh + Jism is Abad. Niyat-karti-hai Rooh Namaz-parthi-hai Abaad
+1. Allah Ki Tauheed-ka-Iqrar
+2. App Ki Risalat-ka-Iqrar
+3. Ali AS ki Waliat-ka-Iqrar
 
 ***
 

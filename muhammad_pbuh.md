@@ -339,8 +339,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Maqam-e-Mahmood kia hy? | Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
-
+### [Maqam-e-Mahmood kia hy? (2:00 hrs)| Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
+* __Surah 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
+* __Surah 20/1-2__: [طه...مَآ أَنزَلْنَا عَلَيْكَ ٱلْقُرْءَانَ لِتَشْقَىٰٓ](https://quran.com/20/1-2)
+* __Surah 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ١...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ٢...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ٣...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
 ***
 
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
@@ -363,11 +365,11 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Darood Sharif Ke Aaadab | Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
+#### [Darood Sharif Ke Aaadab | Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
 
 ***
 
-### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
+#### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
 
 ***
 

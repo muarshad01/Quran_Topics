@@ -386,6 +386,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
+## Mufti Muneer Akhoon
+
 #### [Darood Sharif Ka Karishma Ap Ki Tamam Pareshanio Ka Wahid Hal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ila0VgpMpPQ)
 
 ***

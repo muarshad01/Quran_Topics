@@ -2,38 +2,7 @@
 
 ***
 
-#### [Ziyarat Rasool ﷺ Ka Ammal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DmZBlWnIqiM)
-* Darood-e-Khizri 400x daily for 41 days.
-  
-***
-
 * https://www.youtube.com/shorts/f7Ku5S8dtXE
-
-***
-
-#### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
-
-***
-
-#### [Rasool Allah ﷺ Ki Tawajjo Ka Raaz | Ye Darood Zindagi Badal Dega! | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SstVer_Qopo)
-* Darood-e-Khizri
-
-***
-
-#### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
-
-***
-
-#### [Unlock the Power of Durood Shareef at These Times | Irfan-ul-Haq](https://www.youtube.com/watch?v=LTArBH4IXuU)
-
-***
-
-#### [Milad-un-Nabi Special Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=fQX-IyAwRqI)
-* Sanad: Zamana kahey yeah aashiq-e-rasool SAW hai; Yeah, darwaish hai
-
-***
-
-## [Darood and Salaam](https://www.youtube.com/shorts/1RZv-ybxYQU)
 
 ***
 
@@ -43,7 +12,13 @@
 
 ***
 
-### [How does the heart find peace?](https://www.youtube.com/shorts/blmlmoxC_IA)
+## Syed Sarfaraz Ahmed Shah
+
+#### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
+
+***
+
+#### [How does the heart find peace? | SSA Shah](https://www.youtube.com/shorts/blmlmoxC_IA)
 * When we Ishq with Prophet PBUH, We start understanding Rabb communicatin...What Rabb wants...
 * Rabb doesn't need our Naiki, Ibadaat...He is Bay-Nayaaz from that.
 * We start loving Rabb...He sent 124k prophets.
@@ -51,7 +26,11 @@
 
 ***
 
-### [Aap (S.A.W) Ke Qurb Ka Hasool | SSA Shah](https://www.youtube.com/watch?v=Px_JRWrAuJY)
+#### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
+
+***
+
+#### [Aap (S.A.W) Ke Qurb Ka Hasool | SSA Shah](https://www.youtube.com/watch?v=Px_JRWrAuJY)
 * Ishq
   
 ***
@@ -142,7 +121,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 * __Surah An-Nisa 4/41 (See Also: 16/89; 4/41)__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (See Also: 16/89; 4/41)__: [نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
-
 
 ***
 
@@ -272,7 +250,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-
 * __Surah Ale-Imran 3/31 (قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ)__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quranwbw.com/3/31)
 * __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
 * __Surah Al-Araaf 7/157__: [“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel.1 He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them. ˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”](https://quranwbw.com/7/157)
@@ -287,7 +264,22 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Name محمد Inside Spiritual | Irfan-ul-Haq](https://www.youtube.com/watch?v=rWrGxXi-3wE)
+## Irfan-ul-Haq
+
+#### [Darood and Salaam | Irfan-ul-Haq](https://www.youtube.com/shorts/1RZv-ybxYQU)
+
+***
+
+#### [Unlock the Power of Durood Shareef at These Times | Irfan-ul-Haq](https://www.youtube.com/watch?v=LTArBH4IXuU)
+
+***
+
+#### [Milad-un-Nabi Special Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=fQX-IyAwRqI)
+* Sanad: Zamana kahey yeah aashiq-e-rasool SAW hai; Yeah, darwaish hai
+
+***
+
+#### [Name محمد Inside Spiritual | Irfan-ul-Haq](https://www.youtube.com/watch?v=rWrGxXi-3wE)
 
 * 1 `Meem`:
   * `Mohabbat` of Allah-SWT with Rasool-Allah-SAW
@@ -329,20 +321,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=m7eYm-wQkD8)
-* 1/2-Ummat-Bakhshih versus Shafaat
-* Purity of Speech and Hospitality
-
-***
+## Allama Talib Johri
 
 ### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
 
-***
-
-### [Maqam-e-Mahmood kia hy? (2:00 hrs)| Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
-* __Surah 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
-* __Surah 20/1-2__: [طه...مَآ أَنزَلْنَا عَلَيْكَ ٱلْقُرْءَانَ لِتَشْقَىٰٓ](https://quran.com/20/1-2)
-* __Surah 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ١...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ٢...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ٣...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
 ***
 
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
@@ -361,7 +343,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Allama Talib Johri | Musa as Main Allah..............](https://www.youtube.com/watch?v=1kBrfZXU9I8)
+### [Musa as Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
 
@@ -388,6 +370,33 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ## Mufti Muneer Akhoon
 
+#### [Ziyarat Rasool ﷺ Ka Ammal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DmZBlWnIqiM)
+* Darood-e-Khizri 400x daily for 41 days.
+  
+***
+
 #### [Darood Sharif Ka Karishma Ap Ki Tamam Pareshanio Ka Wahid Hal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ila0VgpMpPQ)
+
+***
+
+#### [Rasool Allah ﷺ Ki Tawajjo Ka Raaz | Ye Darood Zindagi Badal Dega! | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SstVer_Qopo)
+* Darood-e-Khizri
+
+***
+
+## Dr. Muhammad Tahir-ul-Qadri
+
+#### [Maqam-e-Mahmood kia hy? (2:00 hrs)| Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
+* __Surah 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
+* __Surah 20/1-2__: [طه...مَآ أَنزَلْنَا عَلَيْكَ ٱلْقُرْءَانَ لِتَشْقَىٰٓ](https://quran.com/20/1-2)
+* __Surah 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ١...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ٢...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ٣...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
+
+***
+
+## Professor ARA
+
+### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor ARA](https://www.youtube.com/watch?v=m7eYm-wQkD8)
+* 1/2-Ummat-Bakhshih versus Shafaat
+* Purity of Speech and Hospitality
 
 ***

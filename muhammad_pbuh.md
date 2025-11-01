@@ -90,15 +90,15 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 #### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
 #### Other Prophets
-* __Surah Al-Baqarah 2/213__: [](https://quranwbw.com/2/213)
-* __Surah An-Nahl 16/36__: [](https://quranwbw.com/16/36)
-* __Surah Al-Hadid 57/25__: [](https://quranwbw.com/57/25)
-#### Prophet Muhammad PBUH
-* __Surah Al-Araaf 7/157__: [](https://quranwbw.com/7/157)
-* __Surah Al-Jumma 62/2__:[](https://quranwbw.com/62/2)
+* __Surah Al-Baqarah 2/213__: [كَانَ ٱلنَّاسُ أُمَّةًۭ وَٰحِدَةًۭ فَبَعَثَ ٱللَّهُ ٱلنَّبِيِّـۧنَ مُبَشِّرِينَ وَمُنذِرِينَ وَأَنزَلَ مَعَهُمُ ٱلْكِتَـٰبَ بِٱلْحَقِّ لِيَحْكُمَ بَيْنَ ٱلنَّاسِ فِيمَا ٱخْتَلَفُوا۟ فِيهِ ۚ وَمَا ٱخْتَلَفَ فِيهِ إِلَّا ٱلَّذِينَ أُوتُوهُ مِنۢ بَعْدِ مَا جَآءَتْهُمُ ٱلْبَيِّنَـٰتُ بَغْيًۢا بَيْنَهُمْ ۖ فَهَدَى ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ لِمَا ٱخْتَلَفُوا۟ فِيهِ مِنَ ٱلْحَقِّ بِإِذْنِهِۦ ۗ وَٱللَّهُ يَهْدِى مَن يَشَآءُ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍ ٢١٣](https://quranwbw.com/2/213)
+* __Surah An-Nahl 16/36__: [وَلَقَدْ بَعَثْنَا فِى كُلِّ أُمَّةٍۢ رَّسُولًا أَنِ ٱعْبُدُوا۟ ٱللَّهَ وَٱجْتَنِبُوا۟ ٱلطَّـٰغُوتَ ۖ فَمِنْهُم مَّنْ هَدَى ٱللَّهُ وَمِنْهُم مَّنْ حَقَّتْ عَلَيْهِ ٱلضَّلَـٰلَةُ ۚ فَسِيرُوا۟ فِى ٱلْأَرْضِ فَٱنظُرُوا۟ كَيْفَ كَانَ عَـٰقِبَةُ ٱلْمُكَذِّبِينَ ٣٦](https://quranwbw.com/16/36)
+* __Surah Al-Hadid 57/25__: [لَقَدْ أَرْسَلْنَا رُسُلَنَا بِٱلْبَيِّنَـٰتِ وَأَنزَلْنَا مَعَهُمُ ٱلْكِتَـٰبَ وَٱلْمِيزَانَ لِيَقُومَ ٱلنَّاسُ بِٱلْقِسْطِ ۖ وَأَنزَلْنَا ٱلْحَدِيدَ فِيهِ بَأْسٌۭ شَدِيدٌۭ وَمَنَـٰفِعُ لِلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ مَن يَنصُرُهُۥ وَرُسُلَهُۥ بِٱلْغَيْبِ ۚ إِنَّ ٱللَّهَ قَوِىٌّ عَزِيزٌۭ ٢٥](https://quranwbw.com/57/25)
 
-* __Surah Al-Muminoon 23/27__: [Nuh AS](https://quranwbw.com/23/27)
-* __Surah At-Tur 52/48__: [Muhammad PBUH](https://quranwbw.com/52/48)
+#### Prophet Muhammad PBUH
+* __Surah Al-Araaf 7/157__: [ٱلَّذِينَ يَتَّبِعُونَ ٱلرَّسُولَ ٱلنَّبِىَّ ٱلْأُمِّىَّ ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ يَأْمُرُهُم بِٱلْمَعْرُوفِ وَيَنْهَىٰهُمْ عَنِ ٱلْمُنكَرِ وَيُحِلُّ لَهُمُ ٱلطَّيِّبَـٰتِ وَيُحَرِّمُ عَلَيْهِمُ ٱلْخَبَـٰٓئِثَ وَيَضَعُ عَنْهُمْ إِصْرَهُمْ وَٱلْأَغْلَـٰلَ ٱلَّتِى كَانَتْ عَلَيْهِمْ ۚ فَٱلَّذِينَ ءَامَنُوا۟ بِهِۦ وَعَزَّرُوهُ وَنَصَرُوهُ وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ أُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ ١٥٧](https://quranwbw.com/7/157)
+* __Surah Al-Muminoon 23/27 (Nuh AS)__: [فَأَوْحَيْنَآ إِلَيْهِ أَنِ ٱصْنَعِ ٱلْفُلْكَ بِأَعْيُنِنَا وَوَحْيِنَا فَإِذَا جَآءَ أَمْرُنَا وَفَارَ ٱلتَّنُّورُ ۙ فَٱسْلُكْ فِيهَا مِن كُلٍّۢ زَوْجَيْنِ ٱثْنَيْنِ وَأَهْلَكَ إِلَّا مَن سَبَقَ عَلَيْهِ ٱلْقَوْلُ مِنْهُمْ ۖ وَلَا تُخَـٰطِبْنِى فِى ٱلَّذِينَ ظَلَمُوٓا۟ ۖ إِنَّهُم مُّغْرَقُونَ ٢٧](https://quranwbw.com/23/27)
+* __Surah At-Tur 52/48 (Muhammad PBUH)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ ٤٨](https://quranwbw.com/52/48)
+* __Surah Al-Jumma 62/2__:[هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ ٢](https://quranwbw.com/62/2)
 
 #### 
 * __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
@@ -159,7 +159,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 *** 
 
-### [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
+#### [Shan-e-Muhammad (SAW) | Allama Talib Johri](https://www.youtube.com/watch?v=TOvXb6DdwDY)
 * __Surah Al-Fajr 89/27-30__: [ يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ ٱرْجِعِىٓ إِلَىٰ رَبِّكِ][(27) ˹Allah will say to the righteous,˺ “O tranquil soul! (28) Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. (29) So join My servants, (30) and enter My Paradise.”](https://quran.com/89/27-30)
     * Muhammad "wapis" aa-jaa (aa-jaa nahi kaha) (Wapis hamaisha watan-aur-ghar-tak kay-liye bola-jaata-hai)
     * Muhammad SAW lives on Arash.
@@ -174,7 +174,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)
+#### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)
 * __Surah__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ](https://quranwbw.com/18/110)
    * Mayn tum-jaisa bashar-honn...yeah nahi kaha...tum bhi merey jaisay hoo
    * This ayat came to protect Tauheed...
@@ -257,7 +257,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-#### [Musa as Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
+#### [Musa AS Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
 

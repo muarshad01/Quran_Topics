@@ -2,7 +2,7 @@
 
 ***
 
-## [Darood Sharif](https://github.com/muarshad01/YouTube_Videos/blob/main/darood_shareef.md)
+#### [Darood Sharif](https://github.com/muarshad01/YouTube_Videos/blob/main/darood_shareef.md)
 * __Surah 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا ٥٦](https://quranwbw.com/33/56)
 * __Conditions__: Must have name (Muhammad PUBH) and also mention Salaam.
 

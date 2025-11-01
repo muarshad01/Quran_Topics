@@ -3,7 +3,7 @@
 ***
 
 #### Muhammad PBUH
-The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
+The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-time in the Quran.
 * __Surah Al-Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
 * __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
 * __Surah Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
@@ -24,6 +24,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
 ## Syed Sarfaraz Ahmed Shah
 
 #### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
+* This is Nafli Ibadaat
+* Don't miss Faraz-Ibadaat and Haqooq-ul-Ibaad
+* Izhar-e-Tashakar to Prophet PBUH
 
 ***
 
@@ -37,7 +40,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
 
 #### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
 * Aijzi / Humility
-* Rabb Talaa App SAW say Ihsq-karta-hai. App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
+* Rabb-Talaa App-SAW say Ihsq-karta-hai. App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
 
 ***
 

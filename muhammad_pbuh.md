@@ -373,3 +373,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 #### [Darood Sharif Ka Karishma Ap Ki Tamam Pareshanio Ka Wahid Hal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ila0VgpMpPQ)
 
 ***
+
+#### [Jibreel علیہ السلام Aur Ek Shakhs Ke Dilchasp Guftgu | Wasif Ali Wasif](https://www.youtube.com/watch?v=W-nywP3THeY)
+
+***

@@ -41,6 +41,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
   
 ***
 
+## Allama Talib Johri
+
 #### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 * __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
 #### Insaan versus Ale-Muhammad 
@@ -231,6 +233,28 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
 
 ***
 
+#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
+
+***
+
+#### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
+* Quality of Mitti of Hazrat Muhammad PBUH
+* Syed-ul-Anbii
+* Syed-ul-Malaika
+* __Surah 96/9__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ](https://quran.com/96/9)
+* Abad: Rooh + Jism is Abad. Niyat-karti-hai Rooh Namaz-parthi-hai Abaad
+1. Allah Ki Tauheed-ka-Iqrar
+2. App Ki Risalat-ka-Iqrar
+3. Ali AS ki Waliat-ka-Iqrar
+
+***
+
+#### [Musa as Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
+
+***
+
+## Irfan-ul-Haq
+
 #### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
 #### "Ba-adab ba-naseeb" -- "With manners comes fortune" -- "With politeness comes luck." 
 * __Surah An-Noor 24/63__: [Do not treat the Messenger’s summons to you ˹as lightly˺ as your summons to one another.1 Allah certainly knows those of you who slip away, hiding behind others.2 So let those who disobey his orders beware, for an affliction may befall them, or a painful torment may overtake them.](https://quranwbw.com/24/63)
@@ -259,8 +283,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
 
 
 ***
-
-## Irfan-ul-Haq
 
 #### [Darood and Salaam | Irfan-ul-Haq](https://www.youtube.com/shorts/1RZv-ybxYQU)
 
@@ -317,29 +339,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
 
 ***
 
-## Allama Talib Johri
-
-### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
-
-***
 
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
-
-***
-
-### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
-* Quality of Mitti of Hazrat Muhammad PBUH
-* Syed-ul-Anbii
-* Syed-ul-Malaika
-* __Surah 96/9__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ](https://quran.com/96/9)
-* Abad: Rooh + Jism is Abad. Niyat-karti-hai Rooh Namaz-parthi-hai Abaad
-1. Allah Ki Tauheed-ka-Iqrar
-2. App Ki Risalat-ka-Iqrar
-3. Ali AS ki Waliat-ka-Iqrar
-
-***
-
-### [Musa as Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
 

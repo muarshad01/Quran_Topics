@@ -404,7 +404,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ## Professor ARA
 
-### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor ARA](https://www.youtube.com/watch?v=m7eYm-wQkD8)
+#### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor ARA](https://www.youtube.com/watch?v=m7eYm-wQkD8)
 * 1/2-Ummat-Bakhshih versus Shafaat
 * Purity of Speech and Hospitality
 

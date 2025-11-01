@@ -178,15 +178,11 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-### [Rasool Allah (SAW) ka Seena Chak Huwa? | Allama Talib Johri‬](https://www.youtube.com/watch?v=3Q00tns5azs)
+#### [Rasool Allah (SAW) ka Seena Chak Huwa? | Allama Talib Johri‬](https://www.youtube.com/watch?v=3Q00tns5azs)
 #### "Sharh-e-Sadr" (Arabic: شرح الصدر)
 * __Surah 94/1__: [أَلَمْ نَشْرَحْ لَكَ صَدْرَكَ](https://quranwbw.com/94/1) 
 * __Surah Taa-Haa 20/25__: [قَالَ رَبِّ ٱشْرَحْ لِى صَدْرِى](https://quranwbw.com/20/25)
 * __Surah 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
-
-***
-
-#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
 
 ***
 
@@ -202,9 +198,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
+#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
+
+***
+
 #### [Musa AS Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
+
 
 #### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 * __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)

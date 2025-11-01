@@ -1,4 +1,4 @@
-#### [Mehrab un Nabi S.A.W.W | Saudia Ziyarat | Love Madinah Riyaz AlJanah](https://www.youtube.com/watch?v=-o5T7eeHr9U)
+#### [Mehrab-un-Nabi SAW | Riyaz AlJanah](https://www.youtube.com/watch?v=-o5T7eeHr9U)
 
 ***
 

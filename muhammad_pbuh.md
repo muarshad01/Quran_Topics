@@ -343,10 +343,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
-
-***
-
 ### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 
 ***
@@ -356,3 +352,13 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ***
 
 ### [Allama Talib Johri | Musa as Main Allah..............](https://www.youtube.com/watch?v=1kBrfZXU9I8)
+
+***
+
+### [Darood Sharif Ke Aadab Hz. Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
+
+***
+
+### [Find the love of Prophet PBUH in this life | Wasif Ali Wasif](https://www.youtube.com/watch?v=tCukYzgFpqk)
+
+***

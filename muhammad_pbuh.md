@@ -35,7 +35,7 @@
   
 ***
 
-### Muhammad PBUH
+#### Muhammad PBUH
 The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Quran. 
 * __Surah Al-'Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
 * __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
@@ -45,7 +45,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-## [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+#### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 * __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
 #### Insaan versus Ale-Muhammad 
 * __Surah 57/20 (Whole Human Life)__: [ٱعْلَمُوٓا۟ أَنَّمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا لَعِبٌۭ وَلَهْوٌۭ وَزِينَةٌۭ وَتَفَاخُرٌۢ بَيْنَكُمْ وَتَكَاثُرٌۭ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ ۖ](https://quranwbw.com/57/20)
@@ -69,11 +69,11 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 * __Surah Al-Israa 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quranwbw.com/17/1)
 * If you cross/go-beyond your limits...you'll be burnt.
 
-### Noor
+#### Noor
 * __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
 * __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
 
-### Allah Noor; Quran Noor; Imaan Noor; Muhammad PBUH Noor;
+#### Allah Noor; Quran Noor; Imaan Noor; Muhammad PBUH Noor;
 * __Surah At-Tahrim 66/8__: [يَوْمَ لَا يُخْزِى ٱللَّهُ ٱلنَّبِىَّ وَٱلَّذِينَ ءَامَنُوا۟ مَعَهُۥ ۖ...نُورُهُمْ يَسْعَىٰ بَيْنَ أَيْدِيهِمْ وَبِأَيْمَـٰنِهِمْ](https://quran.com/66/8)
 * Saath Imaan-Lai (Ma'ahu)
 * __Surah Al-Furqan 25/35__: [وَجَعَلْنَا مَعَهُۥٓ أَخَاهُ هَـٰرُونَ وَزِيرًۭا](https://quran.com/25/35)
@@ -82,7 +82,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
+#### [Hazrat Muhammad SAW ka Baki Ambiya sy Mawazna | Allama Talib Johri](https://www.youtube.com/watch?v=ygqR59UkWuM)
 #### Other Prophets
 * __Surah Al-Baqarah 2/213__: [](https://quranwbw.com/2/213)
 * __Surah An-Nahl 16/36__: [](https://quranwbw.com/16/36)
@@ -100,7 +100,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
+#### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
 * __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
 * __Surah 49/1-2__: [لَا تُقَدِّمُوا۟ بَيْنَ يَدَىِ ٱللَّهِ وَرَسُولِهِۦ ۖ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ](https://quran.com/49/1-2)
 * __Surah Ad-Duha 93__: [](https://quran.com/93)
@@ -109,7 +109,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Hazrat Muhammad saww ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
+#### [Hazrat Muhammad saww ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
 * __Surah Al-Jumma 62/1-3__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ ١...](https://quranwbw.com/62/1-3)
 1. Nabi: 124,000
 2. Rasbool: 313
@@ -124,7 +124,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
+#### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 * __Surah Maryam 19/16-29__: [Issa AS][(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
 * __Surah 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
 * Theory versus Practical
@@ -133,7 +133,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
+#### [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
 * __Surah 2/35 (Adam AS)__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ](https://quranwbw.com/2/35)
 * __Surah 11/48 (Nuh AS)__: [قِيلَ يَـٰنُوحُ ٱهْبِطْ بِسَلَـٰمٍۢ مِّنَّا](https://quranwbw.com/11/48)
 * __Surah 37/104-105 (Abraham AS)__: [.وَنَـٰدَيْنَـٰهُ أَن يَـٰٓإِبْرَٰهِيمُ  قَدْ صَدَّقْتَ ٱلرُّءْيَآ ۚ](https://quran.com/37/104-105)
@@ -190,7 +190,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)
+#### [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)
 #### Wish of Anbiyaa versus Allah SWT
 * __Surah Ad-Auhaa 93 (Allah SWT)__: [مَا وَدَّعَكَ رَبُّكَ وَمَا قَلَىٰ...وَلَسَوْفَ يُعْطِيكَ رَبُّكَ فَتَرْضَىٰٓ...](https://quran.com/93)
 * __Surah Taa-Haa (Moses AS)__: [۞ وَمَآ أَعْجَلَكَ عَن قَوْمِكَ يَـٰمُوسَىٰ...وَعَجِلْتُ إِلَيْكَ رَبِّ لِتَرْضَىٰ](https://quranwbw.com/20/83-84)
@@ -235,8 +235,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 
 ***
 
-### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
-#### "Ba adab ba naseeb" -- "With manners comes fortune" -- "With politeness comes luck." 
+#### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
+#### "Ba-adab ba-naseeb" -- "With manners comes fortune" -- "With politeness comes luck." 
 * __Surah An-Noor 24/63__: [Do not treat the Messenger’s summons to you ˹as lightly˺ as your summons to one another.1 Allah certainly knows those of you who slip away, hiding behind others.2 So let those who disobey his orders beware, for an affliction may befall them, or a painful torment may overtake them.](https://quranwbw.com/24/63)
 * __Surah 49/2__: [O believers! Do not raise your voices above the voice of the Prophet, nor speak loudly to him as you do to one another, or your deeds will become void while you are unaware.](https://quran.com/49/2)
 * __Surah 49/2__: [Indeed, most of those who call out to you ˹O Prophet˺ from outside ˹your˺ private quarters have no understanding ˹of manners˺.](https://quran.com/49/4)

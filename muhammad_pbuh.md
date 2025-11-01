@@ -2,13 +2,19 @@
 
 ***
 
-#### [Story of a Black Smith](https://www.youtube.com/shorts/f7Ku5S8dtXE)
-
-***
-
 ## [Darood Sharif](https://github.com/muarshad01/YouTube_Videos/blob/main/darood_shareef.md)
 * __Surah 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا ٥٦](https://quranwbw.com/33/56)
 * __Conditions__: Must have name (Muhammad PUBH) and also mention Salaam.
+
+***
+
+#### Muhammad PBUH
+The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
+* __Surah Al-Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
+* __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
+* __Surah Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
+* __Surah Al-Fath 48/29__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ](https://quranwbw.com/48/29)
+* __Surah As-Saff 61/6 (Ahmed)__: [وَإِذْ قَالَ عِيسَى ٱبْنُ مَرْيَمَ يَـٰبَنِىٓ إِسْرَٰٓءِيلَ إِنِّى رَسُولُ ٱللَّهِ إِلَيْكُم مُّصَدِّقًۭا لِّمَا بَيْنَ يَدَىَّ مِنَ ٱلتَّوْرَىٰةِ وَمُبَشِّرًۢا بِرَسُولٍۢ يَأْتِى مِنۢ بَعْدِى ٱسْمُهُۥٓ أَحْمَدُ ۖ فَلَمَّا جَآءَهُم بِٱلْبَيِّنَـٰتِ قَالُوا۟ هَـٰذَا سِحْرٌۭ مُّبِينٌۭ](https://quranwbw.com/61/6)
 
 ***
 
@@ -33,16 +39,6 @@
 #### [Aap (S.A.W) Ke Qurb Ka Hasool | SSA Shah](https://www.youtube.com/watch?v=Px_JRWrAuJY)
 * Ishq
   
-***
-
-#### Muhammad PBUH
-The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Quran. 
-* __Surah Al-'Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
-* __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ](https://quranwbw.com/33/40)
-* __Surah Muhammad 47/2__: [وَءَامَنُوا۟ بِمَا نُزِّلَ عَلَىٰ مُحَمَّدٍۢ](https://quranwbw.com/47/2)
-* __Surah Al-Fath 48/29__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ](https://quranwbw.com/48/29)
-* __Surah As-Saff 61/6__: [وَإِذْ قَالَ عِيسَى ٱبْنُ مَرْيَمَ يَـٰبَنِىٓ إِسْرَٰٓءِيلَ إِنِّى رَسُولُ ٱللَّهِ إِلَيْكُم مُّصَدِّقًۭا لِّمَا بَيْنَ يَدَىَّ مِنَ ٱلتَّوْرَىٰةِ وَمُبَشِّرًۢا بِرَسُولٍۢ يَأْتِى مِنۢ بَعْدِى ٱسْمُهُۥٓ أَحْمَدُ ۖ فَلَمَّا جَآءَهُم بِٱلْبَيِّنَـٰتِ قَالُوا۟ هَـٰذَا سِحْرٌۭ مُّبِينٌۭ](https://quranwbw.com/61/6)
-
 ***
 
 #### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
@@ -398,5 +394,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears four times in the Qu
 ### [When Prophet Muhammad decided what to accept Shafaat-or-Bakshish | Professor ARA](https://www.youtube.com/watch?v=m7eYm-wQkD8)
 * 1/2-Ummat-Bakhshih versus Shafaat
 * Purity of Speech and Hospitality
+
+***
+
+#### [Story of a Black Smith](https://www.youtube.com/shorts/f7Ku5S8dtXE)
 
 ***

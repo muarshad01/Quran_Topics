@@ -33,6 +33,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time in the Quran:
 ***
 
 #### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
+* Aijzi / Humility
+* Rabb Talaa App SAW say Ihsq-karta-hai. App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
 
 ***
 

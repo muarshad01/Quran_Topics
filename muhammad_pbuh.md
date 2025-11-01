@@ -21,33 +21,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-## Syed Sarfaraz Ahmed Shah
-
-#### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
-* This is Nafli Ibadaat
-* Don't miss Faraz-Ibadaat and Haqooq-ul-Ibaad
-* Izhar-e-Tashakar to Prophet PBUH
-
-***
-
-#### [How does the heart find peace? | SSA Shah](https://www.youtube.com/shorts/blmlmoxC_IA)
-* When we Ishq with Prophet PBUH, We start understanding Rabb communicatin...What Rabb wants...
-* Rabb doesn't need our Naiki, Ibadaat...He is Bay-Nayaaz from that.
-* We start loving Rabb...He sent 124k prophets.
-* Everything is for our own self-betterment.
-
-***
-
-#### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
-* Aijzi / Humility
-* Rabb-Talaa App-SAW say Ihsq-karta-hai. App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
-
-***
-
-#### [Aap (S.A.W) Ke Qurb Ka Hasool | SSA Shah](https://www.youtube.com/watch?v=Px_JRWrAuJY)
-* Ishq
-  
-***
 
 ## Allama Talib Johri
 
@@ -403,6 +376,35 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Surah 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ١...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ٢...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ٣...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
 
 ***
+
+## Syed Sarfaraz Ahmed Shah
+
+#### [Darood Shareef Ka Dor-e-Sageer Aur Dor-e-Kabeer Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=m9wTqCzHioE)
+* This is Nafli Ibadaat
+* Don't miss Faraz-Ibadaat and Haqooq-ul-Ibaad
+* Izhar-e-Tashakar to Prophet PBUH
+
+***
+
+#### [How does the heart find peace? | SSA Shah](https://www.youtube.com/shorts/blmlmoxC_IA)
+* When we Ishq with Prophet PBUH, We start understanding Rabb communicatin...What Rabb wants...
+* Rabb doesn't need our Naiki, Ibadaat...He is Bay-Nayaaz from that.
+* We start loving Rabb...He sent 124k prophets.
+* Everything is for our own self-betterment.
+
+***
+
+#### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
+* Aijzi / Humility
+* Rabb-Talaa App-SAW say Ihsq-karta-hai. App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
+
+***
+
+#### [Aap (S.A.W) Ke Qurb Ka Hasool | SSA Shah](https://www.youtube.com/watch?v=Px_JRWrAuJY)
+* Ishq
+  
+***
+
 
 ## Professor ARA
 

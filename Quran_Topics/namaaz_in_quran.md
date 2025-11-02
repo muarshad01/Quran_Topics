@@ -8,7 +8,7 @@
 
 #### [Namaz Qaim Karne Aur Ada Karne Mein Kya Farq Hai? The Hidden Meaning of Salah! | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=vfLtZtcfc-g)
 * __Surah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quran.com/2/43)
-* Offer Namaz with full Khushu-Kazoo, adaab-o-shariatt, and full mustahabaat
+* Offer Namaz with full Khushu-Kazoo, adaab-e-shariatt, and full mas-tahaabaat
 
 ***
 

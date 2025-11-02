@@ -424,5 +424,12 @@
 *** 
 
 #### [Maghrib THREE Rakat | Allama Talib Johri](https://www.youtube.com/watch?v=ZwR--z_IiaA)
+* Four Heavenly Books:
+1. __Zabur (Psalms)__: Revealed to the prophet David.
+2. __Tawrat (Torah)__: Revealed to the prophet Moses.
+3. __Injil (Gospel)__: Revealed to the prophet Jesus.
+4. __Furqan (Quran)__: The final revelation, sent to the prophet Muhammad. 
+* __Surah 15/9__: [إِنَّا نَحْنُ نَزَّلْنَا ٱلذِّكْرَ وَإِنَّا لَهُۥ لَحَـٰفِظُونَ ٩](https://quran.com/15/9)
+* __Surah 16/89__: [وَيَوْمَ نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
 
 ***

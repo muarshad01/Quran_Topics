@@ -1,7 +1,11 @@
 #### [Musa AS Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 * __Surah At-Tahrim 28/12__: [۞ وَحَرَّمْنَا عَلَيْهِ ٱلْمَرَاضِعَ مِن قَبْلُ فَقَالَتْ هَلْ أَدُلُّكُمْ عَلَىٰٓ أَهْلِ بَيْتٍۢ يَكْفُلُونَهُۥ لَكُمْ وَهُمْ لَهُۥ نَـٰصِحُونَ ١٢](https://quran.com/28/12)
 * __Surah Al-Anam 66/11__: [وَضَرَبَ ٱللَّهُ مَثَلًۭا لِّلَّذِينَ ءَامَنُوا۟ ٱمْرَأَتَ فِرْعَوْنَ إِذْ قَالَتْ رَبِّ ٱبْنِ لِى عِندَكَ بَيْتًۭا فِى ٱلْجَنَّةِ وَنَجِّنِى مِن فِرْعَوْنَ وَعَمَلِهِۦ وَنَجِّنِى مِنَ ٱلْقَوْمِ ٱلظَّـٰلِمِينَ ١١](https://quran.com/66/11)
+* __Surah Taha 20/12-15__: [](https://quran.com/20/12-15)
+* __Surah Taha 20/24-30__: [](https://quran.com/20/24-30)
 
 ***
 
 * Prophet Musa AS was married to Shuaib AS daughter in Madyan.
+
+***

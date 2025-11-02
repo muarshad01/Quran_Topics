@@ -163,7 +163,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ***
 
 #### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
-* __Surah Maryam 19/16-29__: [Issa AS][(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
+* __Surah Maryam 19/16-29 (Issa AS)__: [(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
 * __Surah 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
 * Theory versus Practical
 * Ilm-e-Ilahi in Alfaaz in Quran
@@ -171,7 +171,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
+#### [Allah-Nay Sab-Se-Pehlay Meray-Noor Ko Khalq-Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g)
+* __Surah Adh-Dhariyat 51/56__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/51/56)
+* __Surah Adh-Dhariyat 51/57__: [مَآ أُرِيدُ مِنْهُم مِّن رِّزْقٍۢ وَمَآ أُرِيدُ أَن يُطْعِمُونِ](https://quran.com/51/57)
+* __Surah Adh-Dhariyat 51/58__: [إِنَّ ٱللَّهَ هُوَ ٱلرَّزَّاقُ ذُو ٱلْقُوَّةِ ٱلْمَتِينُ](https://quran.com/51/58)
 
 ***
 

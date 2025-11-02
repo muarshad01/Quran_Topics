@@ -305,3 +305,7 @@
 #### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
 
 ***
+
+#### [Iblees kis vja sy nikala gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
+
+***

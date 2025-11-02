@@ -48,15 +48,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-#### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
-* __Surah Maryam 19/16-29__: [Issa AS][(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
-* __Surah 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
-* Theory versus Practical
-* Ilm-e-Ilahi in Alfaaz in Quran
-* Ilm-e-Ilahi in Noor is Muhammad PBUH
-
-***
-
 #### [Shan-e-Muhammad (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=L4XYtWN_7So)
 * __Surah 2/35 (Adam AS)__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ](https://quranwbw.com/2/35)
 * __Surah 11/48 (Nuh AS)__: [قِيلَ يَـٰنُوحُ ٱهْبِطْ بِسَلَـٰمٍۢ مِّنَّا](https://quranwbw.com/11/48)
@@ -168,6 +159,15 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 1. Allah Ki Tauheed-ka-Iqrar
 2. App Ki Risalat-ka-Iqrar
 3. Ali AS ki Waliat-ka-Iqrar
+
+***
+
+#### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
+* __Surah Maryam 19/16-29__: [Issa AS][(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
+* __Surah 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
+* Theory versus Practical
+* Ilm-e-Ilahi in Alfaaz in Quran
+* Ilm-e-Ilahi in Noor is Muhammad PBUH
 
 ***
 

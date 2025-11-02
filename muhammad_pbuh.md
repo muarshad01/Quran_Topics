@@ -194,12 +194,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Surah Al-Infitat 82/6-7__: [يَـٰٓأَيُّهَا ٱلْإِنسَـٰنُ مَا غَرَّكَ بِرَبِّكَ ٱلْكَرِيمِ ٦...ٱلَّذِى خَلَقَكَ فَسَوَّىٰكَ فَعَدَلَكَ ٧](https://quran.com/82/6-7)
 * __Surah Al-Alaa 87/1-2__: [سَبِّحِ ٱسْمَ رَبِّكَ ٱلْأَعْلَى ١...ٱلَّذِى خَلَقَ فَسَوَّىٰ ٢](https://quran.com/87/1-2)
 * __Surah Al-Alqa 96/1-2__: [ٱقْرَأْ بِٱسْمِ رَبِّكَ ٱلَّذِى خَلَقَ ١...خَلَقَ ٱلْإِنسَـٰنَ مِنْ عَلَقٍ ٢](https://quran.com/96/1-2)
-***
-
-#### [Musa AS Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)
 
 ***
-
 
 #### [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
 * __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)

@@ -394,6 +394,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Surah 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
 * __Surah 20/1-2__: [طه...مَآ أَنزَلْنَا عَلَيْكَ ٱلْقُرْءَانَ لِتَشْقَىٰٓ](https://quran.com/20/1-2)
 * __Surah 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ١...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ٢...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ٣...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
+* 40
+* Mahmood (Jis ki Hamad ki-Jai) - Rabb ka naam-hai aur Mustafa ka muqam-hai
+* Muhammad (Jis ki bohot-ziada-Hamad ki-Jai) - Name of Mustafa
+* Meri Hamad tum kartay ho...Muhammad ki Hamad mayn karta hoon...
 
 ***
 

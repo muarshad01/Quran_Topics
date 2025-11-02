@@ -33,7 +33,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-#### [Hazrat Muhammad saww ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
+#### [Hazrat Muhammad SAW ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
 * __Surah Al-Jumma 62/1-3__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ ١...](https://quranwbw.com/62/1-3)
 1. Nabi: 124,000
 2. Rasbool: 313

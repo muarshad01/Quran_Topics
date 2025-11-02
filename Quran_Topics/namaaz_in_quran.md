@@ -6,6 +6,11 @@
 
 ***
 
+#### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
+* __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quranwbw.com/24/41)
+
+***
+
 #### [Namaz Qaim Karne Aur Ada Karne Mein Kya Farq Hai? The Hidden Meaning of Salah! | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=vfLtZtcfc-g)
 * __Surah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quran.com/2/43)
 * Offer Namaz with full Khushu-Kazoo, adaab-e-shariatt, and full mas-tahaabaat
@@ -136,11 +141,6 @@
 * In every Rakat, Aytul kursi along with 4-Quls
 * 4-Rakat - 40 years of Sin are forgiven
 * 6-Rakat - 50 years of Sin are forgiven
-
-***
-
-#### [Kia Ap Janty Hain Janwar Bhi Namaz Parhty Hain | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J0Z8cQ6kQUQ)
-* __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quranwbw.com/24/41)
 
 ***
 

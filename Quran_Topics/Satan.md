@@ -309,3 +309,7 @@
 #### [Iblees kis vja sy nikala gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
 
 ***
+
+#### [039 | Ghair Allah Ko Sajda علامہ طالب جوہری۔](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
+
+***

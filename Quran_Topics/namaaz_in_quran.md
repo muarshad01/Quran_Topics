@@ -87,12 +87,12 @@
 ***
 
 #### [Baroz Itwar Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
-* Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai
-* Insaan kay dil say dunya-ki-mohabbat nikalnay lagti-hai
+* __Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai__
+* Insaan-kay dil -ay dunya-ki-mohabbat nikalnay lagti-hai
 * Rabb-par-Taqwa bharnay lagta-hai
-* Bala-ka-bharoosa paidao-hota-hai iss say Rabb-Tallah par
-* Wasail say hi bay-nayaz ho jaata-hai
-* Allah-Tallah kay qareeb ho jaata-hai
+* Bala-ka-bharoosa paidao-hota-hai iss-say Rabb-Tallah-par
+* Wasail-say-hi bay-nayaz ho-jaata-hai
+* Allah-Tallah kay qareeb ho-jaata-hai
 
 ***
 

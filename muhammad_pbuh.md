@@ -177,10 +177,16 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Surah Adh-Dhariyat 51/58__: [إِنَّ ٱللَّهَ هُوَ ٱلرَّزَّاقُ ذُو ٱلْقُوَّةِ ٱلْمَتِينُ](https://quran.com/51/58)
 
 * __Surah 36/78/79__: [وَضَرَبَ لَنَا مَثَلًۭا وَنَسِىَ خَلْقَهُۥ ۖ قَالَ مَن يُحْىِ ٱلْعِظَـٰمَ وَهِىَ رَمِيمٌۭ ٧٨...قُلْ يُحْيِيهَا ٱلَّذِىٓ أَنشَأَهَآ أَوَّلَ مَرَّةٍۢ ۖ وَهُوَ بِكُلِّ خَلْقٍ عَلِيمٌ ٧٩](https://quran.com/36/78-79)
+   * Allah SWT is aware of all ways of create
+   1. Sabab + Sabab = Nar + Mada = Aulad
+   2. Tareeqa-e-Kun: Make stone a Camel (Saleh AS Camel came out of Mountain; Ismail AS Sheep; Musa AS Stick (Snake))
+   3. Tareeq-e-Amr:
+  * __Surah 11/73__: [قَالُوٓا۟ أَتَعْجَبِينَ مِنْ أَمْرِ ٱللَّهِ ۖ رَحْمَتُ ٱللَّهِ وَبَرَكَـٰتُهُۥ عَلَيْكُمْ أَهْلَ ٱلْبَيْتِ ۚ إِنَّهُۥ حَمِيدٌۭ مَّجِيدٌۭ ٧٣](https://quran.com/11/73)
+  * __Surah 19/17__: [فَٱتَّخَذَتْ مِن دُونِهِمْ حِجَابًۭا فَأَرْسَلْنَآ إِلَيْهَا رُوحَنَا فَتَمَثَّلَ لَهَا بَشَرًۭا سَوِيًّۭا ١٧](https://quran.com/19/17)
+
 * __Surah Al-Infitat 82/6-7__: [يَـٰٓأَيُّهَا ٱلْإِنسَـٰنُ مَا غَرَّكَ بِرَبِّكَ ٱلْكَرِيمِ ٦...ٱلَّذِى خَلَقَكَ فَسَوَّىٰكَ فَعَدَلَكَ ٧](https://quran.com/82/6-7)
 * __Surah Al-Alaa 87/1-2__: [سَبِّحِ ٱسْمَ رَبِّكَ ٱلْأَعْلَى ١...ٱلَّذِى خَلَقَ فَسَوَّىٰ ٢](https://quran.com/87/1-2)
 * __Surah Al-Alqa 96/1-2__: [ٱقْرَأْ بِٱسْمِ رَبِّكَ ٱلَّذِى خَلَقَ ١...خَلَقَ ٱلْإِنسَـٰنَ مِنْ عَلَقٍ ٢](https://quran.com/96/1-2)
-
 ***
 
 #### [Musa AS Mayn Allah | Allama Talib Johri](https://www.youtube.com/watch?v=1kBrfZXU9I8)

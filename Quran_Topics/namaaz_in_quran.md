@@ -1,3 +1,11 @@
+#### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
+* __Offer 2-rakat Salat-e-Hajat (21 days regularly)__
+* First rakat recite __Surah Al-Kaifroon__
+* Second raket recite __Surah Al-Akhlas__
+* Then recite __Duai-e-Hajjat__
+
+***
+
 #### [Eid Night Miracle Amal – For Forgiveness, Rizq & Peace! | عیدالاضحیٰ کی رات کا خاص عمل](https://www.youtube.com/watch?v=K6tQZhzbb2E)
 
 ***
@@ -16,14 +24,6 @@
 * __Surah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quran.com/2/43)
 * Yahud Namaz has only Qayam-and-Sajdah but no Ruku
 * Offer the Namaz of Muhammad PBUH and which Muslims offer (Qayam; Ruku; Sajdah)
-
-***
-
-#### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
-* __Offer 2-rakat Salat-e-Hajat (21 days regularly)__
-* First rakat recite __Surah Al-Kaifroon__
-* Second raket recite __Surah Al-Akhlas__
-* Then recite __Duai-e-Hajjat__
 
 ***
 

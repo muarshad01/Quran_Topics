@@ -29,6 +29,18 @@
 
 ***
 
+#### [Namaz-aik-Technology Kesy-He | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
+* __Surah 8/60__: [وَأَعِدُّوا۟ لَهُم مَّا ٱسْتَطَعْتُم مِّن قُوَّةٍۢ وَمِن رِّبَاطِ ٱلْخَيْلِ تُرْهِبُونَ بِهِۦ عَدُوَّ ٱللَّهِ وَعَدُوَّكُمْ وَءَاخَرِينَ مِن دُونِهِمْ لَا تَعْلَمُونَهُمُ ٱللَّهُ يَعْلَمُهُمْ ۚ وَمَا تُنفِقُوا۟ مِن شَىْءٍۢ فِى سَبِيلِ ٱللَّهِ يُوَفَّ إِلَيْكُمْ وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/8/60)
+* __Namaz-e-Khauf__
+* __Surah 4/102__: [وَإِذَا كُنتَ فِيهِمْ فَأَقَمْتَ لَهُمُ ٱلصَّلَوٰةَ فَلْتَقُمْ طَآئِفَةٌۭ مِّنْهُم مَّعَكَ وَلْيَأْخُذُوٓا۟ أَسْلِحَتَهُمْ فَإِذَا سَجَدُوا۟ فَلْيَكُونُوا۟ مِن وَرَآئِكُمْ وَلْتَأْتِ طَآئِفَةٌ أُخْرَىٰ لَمْ يُصَلُّوا۟ فَلْيُصَلُّوا۟ مَعَكَ وَلْيَأْخُذُوا۟ حِذْرَهُمْ وَأَسْلِحَتَهُمْ ۗ وَدَّ ٱلَّذِينَ كَفَرُوا۟ لَوْ تَغْفُلُونَ عَنْ أَسْلِحَتِكُمْ وَأَمْتِعَتِكُمْ فَيَمِيلُونَ عَلَيْكُم مَّيْلَةًۭ وَٰحِدَةًۭ ۚ وَلَا جُنَاحَ عَلَيْكُمْ إِن كَانَ بِكُمْ أَذًۭى مِّن مَّطَرٍ أَوْ كُنتُم مَّرْضَىٰٓ أَن تَضَعُوٓا۟ أَسْلِحَتَكُمْ ۖ وَخُذُوا۟ حِذْرَكُمْ ۗ إِنَّ ٱللَّهَ أَعَدَّ لِلْكَـٰفِرِينَ عَذَابًۭا مُّهِينًۭا](https://quran.com/4/102)
+
+***
+
+#### [Universe in Prayer | Sahil Adeem](https://www.youtube.com/watch?v=-SCGRha-9rk)
+* __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
+
+***
+
 #### [How Salah Transforms Your Life? | SSA Shah](https://www.youtube.com/watch?v=3BDhsfse1oo)
 1. Araday ki Pukhtaagi (Strong determination)
 2. Taharat / Pakeezgi ()
@@ -46,18 +58,6 @@
 * Woh Bardashat jo shukar-kay-saath ki-jaati-hai, woh sabr-hai.
 * Khanda-paishani kay-saath masaib-ko Bardashat karna Sabr-hai.
 * Shukar kaynay walay par Naimatyn barha-dee-jaati-hayn.
-
-***
-
-#### [Namaz-aik-Technology Kesy-He | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
-* __Surah 8/60__: [وَأَعِدُّوا۟ لَهُم مَّا ٱسْتَطَعْتُم مِّن قُوَّةٍۢ وَمِن رِّبَاطِ ٱلْخَيْلِ تُرْهِبُونَ بِهِۦ عَدُوَّ ٱللَّهِ وَعَدُوَّكُمْ وَءَاخَرِينَ مِن دُونِهِمْ لَا تَعْلَمُونَهُمُ ٱللَّهُ يَعْلَمُهُمْ ۚ وَمَا تُنفِقُوا۟ مِن شَىْءٍۢ فِى سَبِيلِ ٱللَّهِ يُوَفَّ إِلَيْكُمْ وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/8/60)
-* __Namaz-e-Khauf__
-* __Surah 4/102__: [وَإِذَا كُنتَ فِيهِمْ فَأَقَمْتَ لَهُمُ ٱلصَّلَوٰةَ فَلْتَقُمْ طَآئِفَةٌۭ مِّنْهُم مَّعَكَ وَلْيَأْخُذُوٓا۟ أَسْلِحَتَهُمْ فَإِذَا سَجَدُوا۟ فَلْيَكُونُوا۟ مِن وَرَآئِكُمْ وَلْتَأْتِ طَآئِفَةٌ أُخْرَىٰ لَمْ يُصَلُّوا۟ فَلْيُصَلُّوا۟ مَعَكَ وَلْيَأْخُذُوا۟ حِذْرَهُمْ وَأَسْلِحَتَهُمْ ۗ وَدَّ ٱلَّذِينَ كَفَرُوا۟ لَوْ تَغْفُلُونَ عَنْ أَسْلِحَتِكُمْ وَأَمْتِعَتِكُمْ فَيَمِيلُونَ عَلَيْكُم مَّيْلَةًۭ وَٰحِدَةًۭ ۚ وَلَا جُنَاحَ عَلَيْكُمْ إِن كَانَ بِكُمْ أَذًۭى مِّن مَّطَرٍ أَوْ كُنتُم مَّرْضَىٰٓ أَن تَضَعُوٓا۟ أَسْلِحَتَكُمْ ۖ وَخُذُوا۟ حِذْرَكُمْ ۗ إِنَّ ٱللَّهَ أَعَدَّ لِلْكَـٰفِرِينَ عَذَابًۭا مُّهِينًۭا](https://quran.com/4/102)
-
-***
-
-#### [Universe in Prayer | Sahil Adeem](https://www.youtube.com/watch?v=-SCGRha-9rk)
-* __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
 
 ***
 
@@ -111,6 +111,18 @@
 
 ***
 
+#### [Importance of Namaz-e-Jumah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
+* Zawaal time:  
+
+***
+
+#### [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
+* In every Rakat, Aytul kursi along with 4-Quls
+* 4-Rakat - 40 years of Sin are forgiven
+* 6-Rakat - 50 years of Sin are forgiven
+
+***
+
 #### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
 * Discipline (Timing, Commitment, ...)
 * Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
@@ -129,18 +141,6 @@
   * Deter from Indecency and Wickedness - Things having limits set-up by Allah SWT.
   * There is some issue with our `Nayat-and-Ikhlas`
   * Self-monitoring (Tazkia) need to be done...
-
-***
-
-#### [Importance of Namaz-e-Jumah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
-* Zawaal time:  
-
-***
-
-#### [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
-* In every Rakat, Aytul kursi along with 4-Quls
-* 4-Rakat - 40 years of Sin are forgiven
-* 6-Rakat - 50 years of Sin are forgiven
 
 ***
 

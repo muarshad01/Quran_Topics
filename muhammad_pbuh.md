@@ -25,26 +25,25 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ## Allama Talib Johri
 
 #### [Fazail Hazrat Muhammad Mustafa SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TCZRg1Ugklc)
-* __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
-* __Surah 49/1-2__: [لَا تُقَدِّمُوا۟ بَيْنَ يَدَىِ ٱللَّهِ وَرَسُولِهِۦ ۖ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ](https://quran.com/49/1-2)
-* __Surah Ad-Duha 93__: [](https://quran.com/93)
 * __Surah An-Nisa 4/41 (see also: 16/89)__: [وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (see also: 4/41)__: [وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
+* __Surah 49/1-2__: [لَا تُقَدِّمُوا۟ بَيْنَ يَدَىِ ٱللَّهِ وَرَسُولِهِۦ ۖ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ](https://quran.com/49/1-2)
+* __Surah Al-Waqiah 56/77-80__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ...تَنزِيلٌۭ مِّن رَّبِّ ٱلْعَـٰلَمِينَ](https://quran.com/56/77-80)
+* __Surah Ad-Duha 93__: [](https://quran.com/93)
 
 ***
 
 #### [Hazrat Muhammad SAW ki Haqiki Shaan | Allama Talib Johri](https://www.youtube.com/watch?v=iYDlSFqEXDc)
-* __Surah Al-Jumma 62/1-3__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ ١...](https://quranwbw.com/62/1-3)
 1. Nabi: 124,000
 2. Rasbool: 313
 3. Ulul Azam: 5 [أُو۟لُوا۟ ٱلْعَزْمِ](https://quran.com/46/35)
 4. Khatamun Nabiyyin: 1
 
-* __Surah 18/110__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ يُوحَىٰٓ إِلَىَّ أَنَّمَآ إِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ فَلْيَعْمَلْ عَمَلًۭا صَـٰلِحًۭا وَلَا يُشْرِكْ بِعِبَادَةِ رَبِّهِۦٓ أَحَدًۢا ١١٠](https://quranwbw.com/18/110)
-* Mayn tum jaisa hoon...tum mujh jaisa naheen 
-
 * __Surah An-Nisa 4/41 (See Also: 16/89; 4/41)__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (See Also: 16/89; 4/41)__: [نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
+* __Surah 18/110__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ يُوحَىٰٓ إِلَىَّ أَنَّمَآ إِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ فَلْيَعْمَلْ عَمَلًۭا صَـٰلِحًۭا وَلَا يُشْرِكْ بِعِبَادَةِ رَبِّهِۦٓ أَحَدًۢا ١١٠](https://quranwbw.com/18/110)
+* Mayn tum jaisa hoon...tum mujh jaisa naheen 
+* __Surah Al-Jumma 62/1-3__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ ١...](https://quranwbw.com/62/1-3)
 
 ***
 
@@ -78,8 +77,8 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 
 #### Qaala (قَالَ) versus Qul (قُلْ)
-* __Surah Taha 20 (Moses AS)__: [...ٱذْهَبْ إِلَىٰ فِرْعَوْنَ إِنَّهُۥ طَغَىٰ...وَٱجْعَل لِّى وَزِيرًۭا مِّنْ أَهْلِى ...هَـٰرُونَ أَخِى](https://quranwbw.com/20/24-30)
 * __Surah Al-Israa 17/80__: [...وَٱجْعَل لِّى مِن لَّدُنكَ سُلْطَـٰنًۭا نَّصِيرًۭا...][And say, “My Lord! Grant me an honourable entrance and an honourable exit and give me a supporting authority from Yourself.”](https://quranwbw.com/17/80)
+* __Surah Taha 20 (Moses AS)__: [...ٱذْهَبْ إِلَىٰ فِرْعَوْنَ إِنَّهُۥ طَغَىٰ...وَٱجْعَل لِّى وَزِيرًۭا مِّنْ أَهْلِى ...هَـٰرُونَ أَخِى](https://quranwbw.com/20/24-30)
 
 ***
 
@@ -108,9 +107,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 #### [Maqam-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=ANzhqMBwLm4)
 #### Wish of Anbiyaa versus Allah SWT
 * __Surah Ad-Auhaa 93 (Allah SWT)__: [مَا وَدَّعَكَ رَبُّكَ وَمَا قَلَىٰ...وَلَسَوْفَ يُعْطِيكَ رَبُّكَ فَتَرْضَىٰٓ...](https://quran.com/93)
-* __Surah Taa-Haa (Moses AS)__: [۞ وَمَآ أَعْجَلَكَ عَن قَوْمِكَ يَـٰمُوسَىٰ...وَعَجِلْتُ إِلَيْكَ رَبِّ لِتَرْضَىٰ](https://quranwbw.com/20/83-84)
-* __Surah An-Naml (Solomon AS) 27/19__: [...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ...](https://quran.com/27/19)
-* __Surah Al-Ahzaab 33__: [يَـٰٓأَيُّهَا ٱلنَّبِىُّ إِنَّآ أَرْسَلْنَـٰكَ شَـٰهِدًۭا وَمُبَشِّرًۭا](https://quranwbw.com/33/45-47)
+* __Surah Taa-Haa 20/83-84 (Moses AS)__: [۞ وَمَآ أَعْجَلَكَ عَن قَوْمِكَ يَـٰمُوسَىٰ...وَعَجِلْتُ إِلَيْكَ رَبِّ لِتَرْضَىٰ](https://quranwbw.com/20/83-84)
+* __Surah An-Naml 27/19 (Solomon AS)__: [...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ...](https://quran.com/27/19)
+* __Surah Al-Ahzaab 33/45-47__: [يَـٰٓأَيُّهَا ٱلنَّبِىُّ إِنَّآ أَرْسَلْنَـٰكَ شَـٰهِدًۭا وَمُبَشِّرًۭا](https://quranwbw.com/33/45-47)
 * __Surah Al-Muzzammil 73/15__: [إِنَّآ أَرْسَلْنَآ إِلَيْكُمْ رَسُولًۭا شَـٰهِدًا عَلَيْكُمْ](https://quran.com/73/15)
 * __Surah An-Nisa 4/41 (See Also: 16/89; 4/41)__: [فَكَيْفَ إِذَا جِئْنَا مِن كُلِّ أُمَّةٍۭ بِشَهِيدٍۢ وَجِئْنَا بِكَ عَلَىٰ هَـٰٓؤُلَآءِ شَهِيدًۭا](https://quranwbw.com/4/41)
 * __Surah An-Nahl 16/89 (See Also: 16/89; 4/41)__: [نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ](https://quran.com/16/89)
@@ -130,10 +129,10 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 #### (Quran == Muhammad PBUH) & (Muhammad PBUH > Quran)
 * __Surah An-Nahl 16/89 (Rehmat for Muslimeen)__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
-* __Surah 4/113__: [وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
-* __Surah 42/52__ : [وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quranwbw.com/42/52)
-* __Surah 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
 * __Surah 1/2__: [ٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/1/2)
+* __Surah 4/113__: [وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
+* __Surah 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
+* __Surah 42/52__ : [وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quranwbw.com/42/52)
 
 #### Ibrahim AS versus Muhammad PBUH
 * __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
@@ -144,9 +143,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 #### [Rasool Allah (SAW) ka Seena Chak Huwa? | Allama Talib Johri‬](https://www.youtube.com/watch?v=3Q00tns5azs)
 #### "Sharh-e-Sadr" (Arabic: شرح الصدر)
-* __Surah 94/1__: [أَلَمْ نَشْرَحْ لَكَ صَدْرَكَ](https://quranwbw.com/94/1) 
-* __Surah Taa-Haa 20/25__: [قَالَ رَبِّ ٱشْرَحْ لِى صَدْرِى](https://quranwbw.com/20/25)
 * __Surah 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
+* __Surah Taa-Haa 20/25__: [قَالَ رَبِّ ٱشْرَحْ لِى صَدْرِى](https://quranwbw.com/20/25)
+* __Surah 94/1__: [أَلَمْ نَشْرَحْ لَكَ صَدْرَكَ](https://quranwbw.com/94/1) 
 
 ***
 

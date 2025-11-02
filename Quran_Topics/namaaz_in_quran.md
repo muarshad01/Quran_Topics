@@ -6,14 +6,6 @@
 
 ***
 
-#### [Eid Night Miracle Amal – For Forgiveness, Rizq & Peace! | SSA Shah](https://www.youtube.com/watch?v=K6tQZhzbb2E)
-
-***
-
-#### [ REEL: Best Way to Release Mental Stress | SSA Shah](https://www.youtube.com/shorts/9PYerqtZQeY)
-
-***
-
 #### [Namaz Qaim Karne Aur Ada Karne Mein Kya Farq Hai? The Hidden Meaning of Salah! | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=vfLtZtcfc-g)
 * __Surah 2/43__: [وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ وَٱرْكَعُوا۟ مَعَ ٱلرَّٰكِعِينَ](https://quran.com/2/43)
 * Offer Namaz with full Khushu-Kazoo, adaab-e-shariatt, and full mas-tahaabaat
@@ -32,14 +24,7 @@
 
 ***
 
-#### [Namaz-aik-Technology Kesy-He | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
-* __Surah 8/60__: [وَأَعِدُّوا۟ لَهُم مَّا ٱسْتَطَعْتُم مِّن قُوَّةٍۢ وَمِن رِّبَاطِ ٱلْخَيْلِ تُرْهِبُونَ بِهِۦ عَدُوَّ ٱللَّهِ وَعَدُوَّكُمْ وَءَاخَرِينَ مِن دُونِهِمْ لَا تَعْلَمُونَهُمُ ٱللَّهُ يَعْلَمُهُمْ ۚ وَمَا تُنفِقُوا۟ مِن شَىْءٍۢ فِى سَبِيلِ ٱللَّهِ يُوَفَّ إِلَيْكُمْ وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/8/60)
-* __Namaz-e-Khauf__
-* __Surah 4/102__: [وَإِذَا كُنتَ فِيهِمْ فَأَقَمْتَ لَهُمُ ٱلصَّلَوٰةَ فَلْتَقُمْ طَآئِفَةٌۭ مِّنْهُم مَّعَكَ وَلْيَأْخُذُوٓا۟ أَسْلِحَتَهُمْ فَإِذَا سَجَدُوا۟ فَلْيَكُونُوا۟ مِن وَرَآئِكُمْ وَلْتَأْتِ طَآئِفَةٌ أُخْرَىٰ لَمْ يُصَلُّوا۟ فَلْيُصَلُّوا۟ مَعَكَ وَلْيَأْخُذُوا۟ حِذْرَهُمْ وَأَسْلِحَتَهُمْ ۗ وَدَّ ٱلَّذِينَ كَفَرُوا۟ لَوْ تَغْفُلُونَ عَنْ أَسْلِحَتِكُمْ وَأَمْتِعَتِكُمْ فَيَمِيلُونَ عَلَيْكُم مَّيْلَةًۭ وَٰحِدَةًۭ ۚ وَلَا جُنَاحَ عَلَيْكُمْ إِن كَانَ بِكُمْ أَذًۭى مِّن مَّطَرٍ أَوْ كُنتُم مَّرْضَىٰٓ أَن تَضَعُوٓا۟ أَسْلِحَتَكُمْ ۖ وَخُذُوا۟ حِذْرَكُمْ ۗ إِنَّ ٱللَّهَ أَعَدَّ لِلْكَـٰفِرِينَ عَذَابًۭا مُّهِينًۭا](https://quran.com/4/102)
-
-***
-
-#### [How Salah Transforms Your Life?](https://www.youtube.com/watch?v=3BDhsfse1oo)
+#### [How Salah Transforms Your Life? | SSA Shah](https://www.youtube.com/watch?v=3BDhsfse1oo)
 1. Araday ki Pukhtaagi (Strong determination)
 2. Taharat / Pakeezgi ()
 3. Waqt ki Pabandi (Punctuality)
@@ -59,12 +44,10 @@
 
 ***
 
-#### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
-* Discipline (Timing, Commitment, ...)
-* Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
-* Sit respectfully in a grouping... (quran.com/58/)
-* Good Chararacter
-* __Surah Al-Baqara 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ](https://quranwbw.com/2/125)
+#### [Namaz-aik-Technology Kesy-He | Sahil Adeem](https://www.youtube.com/watch?v=kiHMTeU4xw0)
+* __Surah 8/60__: [وَأَعِدُّوا۟ لَهُم مَّا ٱسْتَطَعْتُم مِّن قُوَّةٍۢ وَمِن رِّبَاطِ ٱلْخَيْلِ تُرْهِبُونَ بِهِۦ عَدُوَّ ٱللَّهِ وَعَدُوَّكُمْ وَءَاخَرِينَ مِن دُونِهِمْ لَا تَعْلَمُونَهُمُ ٱللَّهُ يَعْلَمُهُمْ ۚ وَمَا تُنفِقُوا۟ مِن شَىْءٍۢ فِى سَبِيلِ ٱللَّهِ يُوَفَّ إِلَيْكُمْ وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/8/60)
+* __Namaz-e-Khauf__
+* __Surah 4/102__: [وَإِذَا كُنتَ فِيهِمْ فَأَقَمْتَ لَهُمُ ٱلصَّلَوٰةَ فَلْتَقُمْ طَآئِفَةٌۭ مِّنْهُم مَّعَكَ وَلْيَأْخُذُوٓا۟ أَسْلِحَتَهُمْ فَإِذَا سَجَدُوا۟ فَلْيَكُونُوا۟ مِن وَرَآئِكُمْ وَلْتَأْتِ طَآئِفَةٌ أُخْرَىٰ لَمْ يُصَلُّوا۟ فَلْيُصَلُّوا۟ مَعَكَ وَلْيَأْخُذُوا۟ حِذْرَهُمْ وَأَسْلِحَتَهُمْ ۗ وَدَّ ٱلَّذِينَ كَفَرُوا۟ لَوْ تَغْفُلُونَ عَنْ أَسْلِحَتِكُمْ وَأَمْتِعَتِكُمْ فَيَمِيلُونَ عَلَيْكُم مَّيْلَةًۭ وَٰحِدَةًۭ ۚ وَلَا جُنَاحَ عَلَيْكُمْ إِن كَانَ بِكُمْ أَذًۭى مِّن مَّطَرٍ أَوْ كُنتُم مَّرْضَىٰٓ أَن تَضَعُوٓا۟ أَسْلِحَتَكُمْ ۖ وَخُذُوا۟ حِذْرَكُمْ ۗ إِنَّ ٱللَّهَ أَعَدَّ لِلْكَـٰفِرِينَ عَذَابًۭا مُّهِينًۭا](https://quran.com/4/102)
 
 ***
 
@@ -73,7 +56,11 @@
 
 ***
 
-#### [Namaaz-e-Ishq | Irfan-ul-Haq](https://www.youtube.com/shorts/scudC5_27L0)
+#### [Eid Night Miracle Amal – For Forgiveness, Rizq & Peace! | SSA Shah](https://www.youtube.com/watch?v=K6tQZhzbb2E)
+
+***
+
+#### [ REEL: Best Way to Release Mental Stress | SSA Shah](https://www.youtube.com/shorts/9PYerqtZQeY)
 
 ***
 
@@ -116,6 +103,19 @@
 
 #### [Jummah Ke Din Ki Ahmiyat (Ilm Ki Baarish) | SSA Shah](https://www.youtube.com/watch?v=iHTNHcZc-CI)
 * __Surah Al-Israa__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quranwbw.com/17/79)
+
+***
+
+#### [Nimaz Kyun Farz Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=BF1XRXXd7Gc)
+* Discipline (Timing, Commitment, ...)
+* Cleanliness: Pak-aur-Saff Rakhna, maintain yourself, ...
+* Sit respectfully in a grouping... (quran.com/58/)
+* Good Chararacter
+* __Surah Al-Baqara 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ](https://quranwbw.com/2/125)
+
+***
+
+#### [Namaaz-e-Ishq | Irfan-ul-Haq](https://www.youtube.com/shorts/scudC5_27L0)
 
 ***
 

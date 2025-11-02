@@ -81,8 +81,20 @@
 
 ***
 
+#### [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+
+***
+
 #### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
 * __Iss-namaz-ko ada-karnay-wala, Allah-kay beyhaad-qareeb ho-jaata-hai__
+
+***
+
+#### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
+
+***
+
+#### [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
 
 ***
 
@@ -93,19 +105,6 @@
 * Bala-ka-bharoosa paidao-hota-hai iss-say Rabb-Tallah-par
 * Wasail-say-hi bay-nayaz ho-jaata-hai
 * Allah-Tallah kay qareeb ho-jaata-hai
-
-***
-
-#### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
-
-***
-
-
-#### [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
-
-***
-
-#### [Broz Jummah Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
 
 ***
 

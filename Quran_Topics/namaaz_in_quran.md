@@ -81,12 +81,13 @@
 
 ***
 
-#### [Friday & Sunday (9 am -- 10 am) Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+#### [Friday Aur Sunday Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+* Dua: Ah Allah, mujhay iss-dunya-may-bhi aur-uss-dunya-may-bhi apni-pasand-ki-zindagi ataa-farmay-deh
 
 ***
 
 #### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
-* __Iss-namaz-ko ada-karnay-wala, Allah-kay beyhaad-qareeb ho-jaata-hai__
+* Iss-namaz-ko ada-karnay-wala, __Allah-kay beyhaad-QAREEB ho-jaata-hai__
 
 ***
 
@@ -98,7 +99,7 @@
 
 ***
 
-#### [Baroz Itwar Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
+#### [Baroz Itwar (Sunday) Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
 * __Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai__
 * Insaan-kay dil -ay dunya-ki-mohabbat nikalnay lagti-hai
 * Rabb-par-Taqwa bharnay lagta-hai

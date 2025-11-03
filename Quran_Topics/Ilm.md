@@ -197,3 +197,7 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 #### [ALI (A S) ka ILM by Allama Talib HUSSAIN Johri 😱😱🔥](https://www.youtube.com/watch?v=TdKKgfM6NSE)
 
 ***
+
+#### [ILM ki intahaa ka maqam | علم کی انتہا | Syed Sarfraz Shah Sb](https://www.youtube.com/watch?v=rtKAu9-q9YY)
+
+***

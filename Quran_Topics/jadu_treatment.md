@@ -110,6 +110,25 @@
 
 ***
 
+#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
+
+***
+
+#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
+* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
+* Ya Muzzilu, Ya Mumeetu
+* Surah Yunus 10/81 - 11-times
+
+***
+
+#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+
+***
+
+#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+
+***
+
 ## Prof. ARA
 
 #### [Black magic and Quran | Prof. ARA](https://www.youtube.com/watch?v=Rg92WohFBUE)
@@ -140,26 +159,6 @@
 * __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
 
 ***
-
-#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
-
-***
-
-#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
-* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
-* Ya Muzzilu, Ya Mumeetu
-* Surah Yunus 10/81 - 11-times
-
-***
-
-#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-
-***
-
-#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-
-***
-
 
 ## Irfan-ul-Haq
 

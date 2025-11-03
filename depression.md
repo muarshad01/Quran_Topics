@@ -1,3 +1,4 @@
+## Prof Dr Javed Iqbal
 #### [Keep-Your-Mind-Calm to Solve-the-Problems | Prof Dr Javed Iqbal](https://www.youtube.com/watch?v=fVs1O9svcKE)
 * Everybody has problems
 * Learn to Calm your Mind
@@ -87,6 +88,7 @@
 
 ***
 
+## Professor Ahmead Rafique Akhtar
 #### [Impact-of-Tasbeeh on Brain | Professor ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 * It travels throgh time
 * it travels through blood
@@ -123,6 +125,11 @@
 
 ***
 
+#### [Psychotic Depression Treatment, Anxiety aur Depression ka elaj | Professor ARA](https://www.youtube.com/watch?v=_4f6uVGgaqc)
+
+***
+
+## Irfan-ul-Haq
 #### [Depression Ka Elaaj | Irfan-ul-Haq](https://www.youtube.com/shorts/YRJVg5XRdHQ)
 * Ya-Salaam-u
 * Ya-Rehman-u
@@ -162,6 +169,7 @@
 
 ***
 
+## Syed Sarfaraz Shah
 #### [Mayoosi (Disappointment)| SSA Shah](https://www.youtube.com/watch?v=n4jFhXx0zGE)
 * __Mayoosi kufr hai__
 * Tawakka has three ghatian and last one is __Tawfeez__
@@ -191,16 +199,7 @@
 
 ***
 
-#### [Depression Ke Mareez Ka Ilaaj | Irfan-ul-Haq](https://www.youtube.com/watch?v=QXtG5xANLbo)
-
-***
-
-
-#### [Psychotic Depression Treatment, Anxiety aur Depression ka elaj | Professor ARA](https://www.youtube.com/watch?v=_4f6uVGgaqc)
-
-***
-
-#### [Your Biggest Enemy -Uncontrolled mind? l Dr Rafiq Dar](https://www.youtube.com/watch?v=HHJCgOfwCbw)
+#### [Your Biggest Enemy - Uncontrolled mind? | Dr Rafiq Dar](https://www.youtube.com/watch?v=HHJCgOfwCbw)
 
 ***
 
@@ -208,6 +207,7 @@
 
 ***
 
+## Wasif Ali Wasif
 #### [Bay Sukoni Kaise Khatam Ho | Anxiety, Unrest | Wasif Ali Wasif](https://www.youtube.com/watch?v=tgkb1HXOWq0)
 
 ***

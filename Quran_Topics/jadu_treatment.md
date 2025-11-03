@@ -46,6 +46,16 @@
 
 ***
 
+#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+
+* Jadu-as-Ilm exists.
+* __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
+* Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
+* __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening.__
+* Jadu asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
+
+***
+
 #### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 * Brain power is tremendous
 * Three parts: Unconcious, Sub-concious (La-Shahoar), Concious mind.
@@ -64,16 +74,6 @@
 * Our own planning is faulty...
 * __Surah 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Birla and Tata 
-
-***
-
-#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-
-* Jadu-as-Ilm exists.
-* __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
-* __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening.__
-* Jadu asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
 
 ***
 

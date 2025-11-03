@@ -43,3 +43,7 @@ https://quran.com/27/15-16
 * 
 
 ***
+
+#### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Hazrat Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
+
+***

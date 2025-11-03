@@ -19,76 +19,6 @@
 
 ***
 
-#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-
-***
-
-#### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
-
-***
-
-#### [Jadu Ke Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
-* [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
-
-***
-
-#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
-
-***
-
-#### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
-
-#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti’s](https://www.youtube.com/watch?v=CCWc8H8xM3U)
-* __Surah Yunus 81,84,85
-* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru
-
-***
-
-#### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
-* First 10-ayats of Surah Kahf after Fajr / Maghrib
-* Ayatul Kursi, Tasbeeh-e-Fatima
-* Last two ayats of Surah Baqarah
-```
-أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ
-
-A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min kulli ‛aynin laammah
-
-(O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
-```
-
-```
-بسم الله الذي لا يضر مع اسمه شيء في الأرض ولا في السماء وهو السميع العليم
-```
-* 4th Kalma 100 times
-* All 4-quls each 3-time
-
-***
-
-#### [Black magic and Quran | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=Rg92WohFBUE)
-* __Surah 2/102 (يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ......وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ)__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
-* Remember: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
-
-***
-
-#### [Black Magic and Islam | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=O7j5u1Zahns)
-* Yaqeen
-* Surah An-Naas and Surah Al-Falaq
-* Jadu doesn't happens from outside. It happens because of your own weaknesses (weakness of your hearts). Not having firm Imaan on Allah SWT. Satan exploits that.
-* __Surah 2/102__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
-* __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
-
-***
-
-#### [Surah An-Naas, Al-Falaq aur Jadu-ka-Elaj | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=EcIx5DJqlxw)
-* Jadu causes Obsessional though, Neurosis, Psychosis
-* Treatment: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
-* __Surah Al-Baqarag 2/37__: [فَتَلَقَّىٰٓ ءَادَمُ مِن رَّبِّهِۦ كَلِمَـٰتٍۢ فَتَابَ عَلَيْهِ ۚ إِنَّهُۥ هُوَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quran.com/2/37)
-* __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
-* __Surah Al-Anbya 21/87__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
-* __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
-
-***
-
 #### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 * Brain power is tremendous
 * Three parts: Unconcious, Sub-concious (La-Shahoar), Concious mind.
@@ -126,6 +56,78 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 * Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
 * __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening.__
 * Jadu asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
+
+***
+
+#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+
+***
+
+#### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
+
+***
+
+#### [Jadu Ke Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
+* [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
+
+***
+
+#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
+
+***
+
+#### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
+* First 10-ayats of Surah Kahf after Fajr / Maghrib
+* Ayatul Kursi, Tasbeeh-e-Fatima
+* Last two ayats of Surah Baqarah
+```
+أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ
+
+A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min kulli ‛aynin laammah
+
+(O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
+```
+
+```
+بسم الله الذي لا يضر مع اسمه شيء في الأرض ولا في السماء وهو السميع العليم
+```
+* 4th Kalma 100 times
+* All 4-quls each 3-time
+
+***
+
+#### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
+
+***
+
+#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti’s](https://www.youtube.com/watch?v=CCWc8H8xM3U)
+* __Surah Yunus 81,84,85
+* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru
+
+***
+
+#### [Black magic and Quran | Prof. ARA](https://www.youtube.com/watch?v=Rg92WohFBUE)
+* __Surah 2/102 (يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ......وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ)__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
+* Remember: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
+
+***
+
+#### [Black Magic and Islam | Prof. ARA](https://www.youtube.com/watch?v=O7j5u1Zahns)
+* Yaqeen
+* Surah An-Naas and Surah Al-Falaq
+* Jadu doesn't happens from outside. It happens because of your own weaknesses (weakness of your hearts). Not having firm Imaan on Allah SWT. Satan exploits that.
+* __Surah 2/102__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
+* __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
+
+***
+
+#### [Surah An-Naas, Al-Falaq aur Jadu-ka-Elaj | Prof. ARA](https://www.youtube.com/watch?v=EcIx5DJqlxw)
+* Jadu causes Obsessional though, Neurosis, Psychosis
+* Treatment: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
+* __Surah Al-Baqarag 2/37__: [فَتَلَقَّىٰٓ ءَادَمُ مِن رَّبِّهِۦ كَلِمَـٰتٍۢ فَتَابَ عَلَيْهِ ۚ إِنَّهُۥ هُوَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quran.com/2/37)
+* __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
+* __Surah Al-Anbya 21/87__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
+* __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
 
 ***
 

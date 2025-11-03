@@ -40,37 +40,44 @@
 
 #### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
 * Unusual things, sudden-changes start-to-happen.
-* He who worships regularly (offer-prayers and reads-quaran regularly) is saved from such things.
-* Before sleeping read Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
-* __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening!__
+* __He who worships-regularly (offer-prayers and reads-quaran regularly) is saved from such things.__
+* Before sleeping read:
+1. Surah Ikhlas
+2. Surah Al-Falaq
+3. Surah An-Naas
+* __Best Protection__: Surah Al-Baqarah daily...as much as you can recite...keep it listening!
 
 ***
 
 #### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-
 * Jadu-as-Ilm exists.
 * __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
-* __Best Protection: Surah Al-Baqarah daily...as much as you can recite...keep it listening.__
-* Jadu asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
+* Recite Quls:
+1. Surah Ikhlas
+2. Surah Al-Falaq
+3. Surah An-Naas
+* __Best Protection__: Surah Al-Baqarah daily...as much as you can recite...keep it listening.
+* Jadu-asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
 
 ***
 
 #### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
-* Brain power is tremendous
-* Three parts: Unconcious, Sub-concious (La-Shahoar), Concious mind.
+* Brain power is tremendous. Three parts:
+1. Unconcious
+2. Sub-concious (La-Shahoar)
+3. Concious mind.
 
 ***
 
 #### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
-* Mera Rabb sab-say-ziada taqat-war hai.
+* Mera-Rabb sab-say-ziada taqat-war-hai (most powerful).
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 
 ***
 
 #### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
 * The power of human mind
-* Self suggestion to improve psychological condition
+* Self suggestion to improve psychological-condition
 * Our own planning is faulty...
 * __Surah 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Birla and Tata 

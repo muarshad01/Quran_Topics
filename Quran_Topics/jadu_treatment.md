@@ -81,10 +81,6 @@
 
 ***
 
-#### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
-
-***
-
 #### [Jadu Ke Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
 * [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
 

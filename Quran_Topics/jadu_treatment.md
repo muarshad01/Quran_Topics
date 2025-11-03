@@ -1,3 +1,25 @@
+## Allama Hisham Elahi Zaheer
+
+#### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
+* First 10-ayats of Surah Kahf after Fajr / Maghrib
+* Ayatul Kursi, Tasbeeh-e-Fatima
+* Last two ayats of Surah Baqarah
+```
+أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ
+
+A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min kulli ‛aynin laammah
+
+(O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
+```
+
+```
+بسم الله الذي لا يضر مع اسمه شيء في الأرض ولا في السماء وهو السميع العليم
+```
+* 4th Kalma 100 times
+* All 4-quls each 3-time
+
+***
+
 ## Syed Sarfaraz Shah
 #### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
 * Three things make you weak-from-inside.
@@ -76,27 +98,6 @@
 
 ***
 
-## Allama Hisham Elahi Zaheer
-
-#### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
-* First 10-ayats of Surah Kahf after Fajr / Maghrib
-* Ayatul Kursi, Tasbeeh-e-Fatima
-* Last two ayats of Surah Baqarah
-```
-أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ
-
-A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min kulli ‛aynin laammah
-
-(O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
-```
-
-```
-بسم الله الذي لا يضر مع اسمه شيء في الأرض ولا في السماء وهو السميع العليم
-```
-* 4th Kalma 100 times
-* All 4-quls each 3-time
-
-***
 
 ## Abdullah Bhatti
 

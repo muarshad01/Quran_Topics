@@ -5,11 +5,7 @@
 * Ayatul Kursi, Tasbeeh-e-Fatima
 * Last two ayats of Surah Baqarah
 ```
-أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ
-
-A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min kulli ‛aynin laammah
-
-(O Allah! I seek Refuge with Your Perfect Words from every devil and from poisonous pests and from every evil, harmful, envious eye)  
+أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ 
 ```
 
 ```

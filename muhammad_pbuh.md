@@ -259,7 +259,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ## Irfan-ul-Haq
 
 #### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
-#### "Ba-adab ba-naseeb" -- "With manners comes fortune" -- "With politeness comes luck." 
+* __Ba-adab ba-naseeb__
+* __With manners comes fortune__
+* __With politeness comes luck.__ 
 * __Surah An-Noor 24/63__: [Do not treat the Messenger’s summons to you ˹as lightly˺ as your summons to one another.1 Allah certainly knows those of you who slip away, hiding behind others.2 So let those who disobey his orders beware, for an affliction may befall them, or a painful torment may overtake them.](https://quranwbw.com/24/63)
 * __Surah 49/2__: [O believers! Do not raise your voices above the voice of the Prophet, nor speak loudly to him as you do to one another, or your deeds will become void while you are unaware.](https://quran.com/49/2)
 * __Surah 49/2__: [Indeed, most of those who call out to you ˹O Prophet˺ from outside ˹your˺ private quarters have no understanding ˹of manners˺.](https://quran.com/49/4)
@@ -283,7 +285,6 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
   * Nabi: The one who take Naba(Khabar) from Allah SWT
   * Rasool: The messenger, the one who conveys the message to People
 * __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
-
 
 ***
 
@@ -320,7 +321,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-### [Hidden Meanings of the Name Muhammad You Won't Believe! | What Secrets Lie Behind the Name MUHAMMAD?](https://www.youtube.com/watch?v=VihC5yFPZjI)
+#### [Hidden Meanings of the Name Muhammad You Won't Believe! | What Secrets Lie Behind the Name MUHAMMAD?](https://www.youtube.com/watch?v=VihC5yFPZjI)
 * Meem-1:
 * Meem-2:
 1. Adam (Meem)
@@ -330,7 +331,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-### [Muhammad (PBUH) Ne Kamyabi Ki Zindagi Guzarne Ke Liye Ye Cheez Sikhai | Irfan-ul-Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)
+#### [Muhammad (PBUH) Ne Kamyabi Ki Zindagi Guzarne Ke Liye Ye Cheez Sikhai | Irfan-ul-Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)
 * Syed-ul-Anbiyaa
 * Syed-ul-Maliaka
 * __Surah Al-Alaq 96/9-10__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quranwbw.com/96/9-10)
@@ -343,7 +344,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ***
 
 
-### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
+#### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 
 ***
 

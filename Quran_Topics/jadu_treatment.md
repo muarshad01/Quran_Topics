@@ -1,3 +1,4 @@
+## Syed Sarfaraz Shah
 #### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
 * Three things make you weak-from-inside.
 1. Waswasa (Lurking Whisperer)
@@ -50,7 +51,6 @@
 
 #### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
 
-***
 * Jadu-as-Ilm exists.
 * __Surah Ale-Imran 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Recite Quls: Surah Ikhlas, Surah An-Naas, Surah Al-Falaq
@@ -76,6 +76,8 @@
 
 ***
 
+## Allama Hisham Elahi Zaheer
+
 #### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
 * First 10-ayats of Surah Kahf after Fajr / Maghrib
 * Ayatul Kursi, Tasbeeh-e-Fatima
@@ -96,19 +98,27 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 
 ***
 
+## Abdullah Bhatti
+
 #### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 
 ***
 
-#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti’s](https://www.youtube.com/watch?v=CCWc8H8xM3U)
+#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
 * __Surah Yunus 81,84,85
 * Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru
 
 ***
 
+## Prof. ARA
+
 #### [Black magic and Quran | Prof. ARA](https://www.youtube.com/watch?v=Rg92WohFBUE)
 * __Surah 2/102 (يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ......وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ)__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
 * Remember: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
+
+***
+
+#### [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
 
 ***
 
@@ -130,6 +140,28 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 * __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
 
 ***
+
+#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
+
+***
+
+#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
+* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
+* Ya Muzzilu, Ya Mumeetu
+* Surah Yunus 10/81 - 11-times
+
+***
+
+#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+
+***
+
+#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+
+***
+
+
+## Irfan-ul-Haq
 
 #### [Kaala-Jaadu Aur Is-Ka-Solution? | Irfan-ul-Haq](https://www.youtube.com/watch?v=0gWXO2lHEpc)
 * __Rizq__:
@@ -181,10 +213,14 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+## Wasif Ali Wasif
+
 #### [Jitna Alert Ho Jao Gay Utna Hi Raaz Qareeb Aa Jaye Ga | Wasif Ali Wasif](https://www.youtube.com/watch?v=vGtbeYo8ueo)
 * Allah ki-raah-mayn-khairat kartay-jao aur Allah ka-safar kartay-jao.
 
 ***
+
+## Sahil Adeem
 
 #### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)
 * __Surah 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quranwbw.com/6/59)
@@ -198,30 +234,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+## Mufti Muneer Akhoon
+
 #### [Remove Nazr (evil eye) through Fitkari, whole black peppers or whole dried red chilies 🌶️ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8evp-q-qHx8)
-
-***
-
-#### [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
-
-***
-
-#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
-
-***
-
-#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
-* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
-* Ya Muzzilu, Ya Mumeetu
-* Surah Yunus 10/81 - 11-times
-
-***
-
-#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-
-***
-
-#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
 
 ***
 

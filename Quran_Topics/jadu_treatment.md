@@ -19,6 +19,23 @@
 
 ***
 
+#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+
+***
+
+#### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
+
+***
+
+#### [Jadu Ke Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
+* [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
+
+***
+
+#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
+
+***
+
 #### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti’s](https://www.youtube.com/watch?v=CCWc8H8xM3U)
@@ -72,7 +89,7 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 
 ***
 
-### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+#### [Reality Of Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 * Brain power is tremendous
 * Three parts: Unconcious, Sub-concious (La-Shahoar), Concious mind.
 
@@ -101,7 +118,7 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 
 ***
 
-#### [Jadu Ka Ilaj Kaise Kare |SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
 
 ***
 * Jadu-as-Ilm exists.
@@ -124,11 +141,14 @@ A’udhu bi kalimaat-illaahit-taammah min kulli shaytaanin, wa haammah, wa min k
 
 ***
 
-
 #### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna Chahiye? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
 * Best Approach: Repeat Azaan
 * Du Wudu, drink water
 * White Hen
+
+***
+
+#### [Jaadu Key Tor Ka Ilm | Irfan-ul-Haq](https://www.youtube.com/watch?v=B958eO6gjpA)
 
 ***
 
@@ -195,15 +215,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-#### [Qutb Online with Bilal Qutb | Zangani Shb](https://www.youtube.com/watch?v=bNbnfovxwUw)
-
-***
-
 #### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-
-***
-
-#### [JAADU KEY TOR KA ILM / IRFAN UL HAQ](https://www.youtube.com/watch?v=B958eO6gjpA)
 
 ***
 
@@ -222,22 +234,6 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-
-#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-
-***
-
-#### [Protect Yourself from Evil Eye | نظر بد کا توڑ کیا ہے؟ | Qibla Syed Sarfraz Ahmad Shah Sahab](https://www.youtube.com/watch?v=qQTYsdSIryI)
+#### [Qutb Online with Bilal Qutb | Zangani Shb](https://www.youtube.com/watch?v=bNbnfovxwUw)
 
 ***
-
-#### [Jadu Ke Asraat - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
-* [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
-
-***
-
-#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun!](https://www.youtube.com/watch?v=fATEeYcVO8k)
-
-***
-
-#### []

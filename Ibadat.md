@@ -6,6 +6,10 @@
 
 ***
 
+* __Surah__: [](https://quran.com/3/18-19)
+
+***
+
 ## [Asal Ibadat Kya Hai? | اصل عبادت کیا ہے؟](https://www.youtube.com/watch?v=ZkpktaeCWIc)
 * Following Do and Don't is the real Ibadat.
 * Namaz, Roza, Zakat, Hajj...these 4-things are not Ibadaat are not the only Ibadaat.

@@ -19,8 +19,9 @@
 
 #### [Jadu Jinnat ka Ilaj Khud Krin | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=hr42VyMl2TQ)
 * [First 10-ayats of Surah Kahf](https://quran.com/10/1-10) after Fajr / Maghrib
-* [Ayatul Kursi](https://quran.com/2/255), Tasbeeh-e-Fatima
-*[ Last two ayats of Surah Baqarah](https://quran.com/2/285-286)
+* [Ayatul Kursi](https://quran.com/2/255)
+* Tasbeeh-e-Fatima after every namaz
+* [ Last two ayats of Surah Baqarah](https://quran.com/2/285-286)
 ```
 أَعُوذُ بِكَلِمَاتِ اللَّهِ التَّامَّةِ مِنْ كُلِّ شَيْطَانٍ وَهَامَّةٍ، وَمِنْ كُلِّ عَيْنٍ لاَمَّةٍ 
 ```

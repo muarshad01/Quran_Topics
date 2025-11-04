@@ -7,7 +7,7 @@
 ## Quran Fazilat
 * [Notes](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md)
 * [Rewards of True Worship | بے غرض عبادت کا صلہ](https://www.youtube.com/watch?v=OOU18bsazh0)
-* [Allah Ko Jann nah](https://www.youtube.com/shorts/TwDJhC5TcPQ)
+* [Allah Ko Jann-nah](https://www.youtube.com/shorts/TwDJhC5TcPQ)
 * [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 * __Surah 27/19__: [تَرْضَىٰهُ وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 * __Surah 26/85__: [وَٱجْعَلْنِى مِن وَرَثَةِ جَنَّةِ ٱلنَّعِيمِ](https://quran.com/26/85)

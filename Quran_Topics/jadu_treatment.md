@@ -68,15 +68,15 @@
 
 ***
 
-#### [Reality-of-Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+#### [Reality-of-Bad Dreams | Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
 * Brain power is tremendous. Three parts:
 1. Unconcious
-2. Sub-concious (La-Shahoar)
-3. Concious mind.
+2. Sub-concious (La-Shaoar)
+3. Concious mind
 
 ***
 
-#### [Kala-Jadu Ka-Toar | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
+#### [Kala-Jadu Ka-Toar | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
 * __My-Rabb is the most Powerful__
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 

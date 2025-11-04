@@ -102,7 +102,9 @@
 1. Waswasa (Lurking Whisperer)
 2. Fear
 3. Anger (Shows your weakness); Drop in tolerance-level.
-* I don't want to accept my failures. I want a scape goat to hide my faiulure.
+* I don't want to accept my failures. I want a scape-goat to hide my faiulure and its Jadu-and-Taweez from your enemies.
+* Strong people accept their failures whole heartedly.
+* __Treatment: 4-Quls__
 
 ***
 

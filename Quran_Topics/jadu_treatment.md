@@ -116,18 +116,18 @@
 ***
 
 #### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
-* Ya Raqeebu
-* Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
+* 300-time
+1. Ya Raqeebu
+2. Ya Hafeezu
+3. Ya Jabbaru
+4. Ya Qaharru
 * Ya Muzzilu, Ya Mumeetu
 * Surah Yunus 10/81 - 11-times
 
 ***
 
-#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-
-***
-
-#### [Signs Of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+#### [Signs of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
 
 ***
 

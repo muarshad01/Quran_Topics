@@ -96,41 +96,6 @@
 
 ***
 
-## Abdullah Bhatti
-
-#### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
-
-***
-
-#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
-* __Surah Yunus 81,84,85
-1. Ya Raqeebu
-2. Ya Hafeezu
-3. Ya Jabbaru
-4. Ya Qaharru
-
-***
-
-#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
-
-***
-
-#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
-* 300-time
-1. Ya Raqeebu
-2. Ya Hafeezu
-3. Ya Jabbaru
-4. Ya Qaharru
-* Ya Muzzilu, Ya Mumeetu
-* Surah Yunus 10/81 - 11-times
-
-***
-
-#### [Signs of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
-
-***
-
 ## Prof. ARA
 
 #### [Black magic and Quran | Prof. ARA](https://www.youtube.com/watch?v=Rg92WohFBUE)
@@ -211,6 +176,41 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ```
 * __Surah 2/104__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَقُولُوا۟ رَٰعِنَا وَقُولُوا۟ ٱنظُرْنَا وَٱسْمَعُوا۟ ۗ](https://quranwbw.com/2/104)
 * Unzurna: Nazr-e-Karam adhir Pharayee
+
+***
+
+## Abdullah Bhatti
+
+#### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
+
+***
+
+#### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
+* __Surah Yunus 81,84,85
+1. Ya Raqeebu
+2. Ya Hafeezu
+3. Ya Jabbaru
+4. Ya Qaharru
+
+***
+
+#### [How to Identify & Remove Black Magic | Prof. Abdullah Bhatti ](https://www.youtube.com/watch?v=yj1zjAQMIpE)
+
+***
+
+#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
+* 300-time
+1. Ya Raqeebu
+2. Ya Hafeezu
+3. Ya Jabbaru
+4. Ya Qaharru
+* Ya Muzzilu, Ya Mumeetu
+* Surah Yunus 10/81 - 11-times
+
+***
+
+#### [Signs of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
 
 ***
 

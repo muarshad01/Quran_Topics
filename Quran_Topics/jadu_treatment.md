@@ -58,15 +58,13 @@
 
 ***
 
-#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-* Jadu-as-Ilm exists.
-* __Surah Ale-Imran 3/140 (وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Recite Quls:
-1. Surah Ikhlas
-2. Surah Al-Falaq
-3. Surah An-Naas
-* __Best Protection__: Surah Al-Baqarah daily...as much as you can recite...keep it listening.
-* Jadu-asarat will not-come-to-that-house where Surah Al-Baqarah is recited regularly!
+#### [Jadu-ka-Ilaj Kaise-Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+* Jadu-batoor-ilm exists
+* __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
+* Jadu-karnay-wala Imaan khoo-detah-hai
+* Recite 4-Quls
+* __Best Protection__: Read Surah Al-Baqarah daily...as much as you can recite...keep it listening.
+* __Jadu-asarat doesn't-come-to-that-house, where Surah Al-Baqarah is recited regularly!__
 
 ***
 
@@ -91,14 +89,6 @@
 * __Surah 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Birla-and-Tata Groups of India
 * Tadbeer, Qabiliyat, Mehnat doesn't let you fall on ground.
-
-***
-
-#### [Jadu-ka-Ilaj Kaise-Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-* Jadu-batoor-ilm exists
-* __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Jadu-karnay-wala Imaan khoo-detah-hai
-* __Jadu-asarat doesn't-come-to-that-house, where Surah Al-Baqarah is recited regularly!__
 
 ***
 

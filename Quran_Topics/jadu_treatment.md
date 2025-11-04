@@ -108,13 +108,6 @@
 
 ***
 
-<!--
-#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
--->
-
-***
-
-
 ## Abdullah Bhatti
 
 #### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
@@ -274,3 +267,8 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Qutb Online with Bilal Qutb | Zangani Shb](https://www.youtube.com/watch?v=bNbnfovxwUw)
 
 ***
+
+<!--
+#### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
+-->
+

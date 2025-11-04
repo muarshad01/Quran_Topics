@@ -70,44 +70,51 @@
 
 ***
 
-#### [Kala Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
-* Mera-Rabb sab-say-ziada taqat-war-hai (most powerful).
+#### [Kala-Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
+* __Mera-Rabb saab-say-ziada Taqat-warr-hai (most powerful)__.
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 
 ***
 
-#### [Nazr-e-baad ki haqeeqat aur uss-kaIlaaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
-* The power of human mind
-* Self suggestion to improve psychological-condition
-* Our own planning is faulty...
-* __Surah 3/140 (مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
+#### [Nazr-e-baad ki Haqeeqat aur Uss-kaI-laaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
+* The power of human-mind
+* Self-suggestion to improve psychological-condition
+* Our own planning is faulty
+* __Surah 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Birla and Tata 
 
 ***
 
-#### [Jadu Ka Ilaj Kaise Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+#### [Jadu-ka-Ilaj Kaise-Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+* Jadu-batoor-ilm exists
+* __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 
 ***
 
-#### [Jadu Ke Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
+#### [Jadu-ke-Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
 * [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
 
 ***
 
+<!--
 #### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
+-->
 
 ***
 
 
 ## Abdullah Bhatti
 
-#### [Nasl Dar Nasl Chalne Wale Jadu Ka Mukammal Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
+#### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 
 ***
 
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
 * __Surah Yunus 81,84,85
-* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru
+1. Ya Raqeebu
+2. Ya Hafeezu
+3. Ya Jabbaru
+4. Ya Qaharru
 
 ***
 
@@ -116,7 +123,8 @@
 ***
 
 #### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=JOiGIOVyd9M)
-* Ya Raqeebu, Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
+* Ya Raqeebu
+* Ya Hafeezu, Ya Jabbaru, Ya Qaharru - 300-times
 * Ya Muzzilu, Ya Mumeetu
 * Surah Yunus 10/81 - 11-times
 

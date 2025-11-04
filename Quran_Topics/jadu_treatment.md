@@ -76,7 +76,7 @@
 
 ***
 
-#### [Kala-Jadu Ka Tor | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
+#### [Kala-Jadu Ka-Toar | جادو کا توڑ | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
 * __Mera-Rabb saab-say-ziada Taqat-warr-hai (most powerful)__.
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 
@@ -84,10 +84,11 @@
 
 #### [Nazr-e-baad ki Haqeeqat aur Uss-kaI-laaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
 * The power of human-mind
-* Self-suggestion to improve psychological-condition
-* Our own planning is faulty
+* Using self-suggestion we can improve our psychological-condition
+* Our-own-planning is faulty
 * __Surah 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Birla and Tata 
+* Birla-and-Tata Groups of India
+* Tadbeer, Qabiliyat, Mehnat doesn't let you fall on ground.
 
 ***
 

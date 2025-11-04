@@ -64,7 +64,7 @@
 2. Surah Al-Falaq
 3. Surah An-Naas
 * __Best Protection__: Surah Al-Baqarah daily...as much as you can recite...keep it listening.
-* Jadu-asarat will not-come-to-that-house where surah Al-Baqarah is recited regularly.
+* Jadu-asarat will not-come-to-that-house where Surah Al-Baqarah is recited regularly!
 
 ***
 
@@ -95,7 +95,7 @@
 * Jadu-batoor-ilm exists
 * __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Jadu-karnay-wala Imaan khoo-detah-hai
-* __Jadu-asarat doesn't-come-to-that-house, where Surah Baqarah is recited regularly__
+* __Jadu-asarat doesn't-come-to-that-house, where Surah Al-Baqarah is recited regularly!__
 
 ***
 

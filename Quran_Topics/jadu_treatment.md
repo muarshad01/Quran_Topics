@@ -39,14 +39,13 @@
 
 ## Syed Sarfaraz Shah
 
-#### [Symptoms Of Black Magic | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
-* Three things make you weak-from-inside:
-1. Waswasa (Lurking Whisperer)
-2. Fear
-3. Anger (Shows your weakness); Drop in tolerance-level.
-* I don't want to accept my failures. I want a scape-goat to hide my faiulure and its Jadu-and-Taweez from your enemies.
-* Strong people accept their failures whole heartedly.
-* __Treatment: 4-Quls__
+#### [Jadu-ka-Ilaj Kaise-Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
+* Jadu-batoor-ilm exists
+* __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
+* Jadu-karnay-wala Imaan khoo-detah-hai
+* Recite 4-Quls
+* __Best Protection__: Read Surah Al-Baqarah daily...as much as you can recite...keep it listening.
+* __Jadu-asarat doesn't-come-to-that-house, where Surah Al-Baqarah is recited regularly!__
 
 ***
 
@@ -61,13 +60,24 @@
 
 ***
 
-#### [Jadu-ka-Ilaj Kaise-Kare | SSA Shah](https://www.youtube.com/watch?v=zj7Kb1j8FIw)
-* Jadu-batoor-ilm exists
-* __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Jadu-karnay-wala Imaan khoo-detah-hai
-* Recite 4-Quls
-* __Best Protection__: Read Surah Al-Baqarah daily...as much as you can recite...keep it listening.
-* __Jadu-asarat doesn't-come-to-that-house, where Surah Al-Baqarah is recited regularly!__
+#### [Symptoms Of Black Magic | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
+* Three things make you weak-from-inside:
+1. Waswasa (Lurking Whisperer)
+2. Fear
+3. Anger (Shows your weakness); Drop in tolerance-level.
+* I don't want to accept my failures. I want a scape-goat to hide my faiulure and its Jadu-and-Taweez from your enemies.
+* Strong people accept their failures whole heartedly.
+* __Treatment: 4-Quls__
+
+***
+
+#### [Nazr-e-baad ki Haqeeqat aur Uss-kaI-laaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
+* The power of human-mind
+* Using self-suggestion we can improve our psychological-condition
+* Our-own-planning is faulty
+* __Surah 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
+* Birla-and-Tata Groups of India
+* Tadbeer, Qabiliyat, Mehnat doesn't let you fall on ground.
 
 ***
 
@@ -82,16 +92,6 @@
 #### [Kala-Jadu Ka-Toar | SSA Shah](https://www.youtube.com/watch?v=4UwhSrTVHj8)
 * __My-Rabb is the most Powerful__
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
-
-***
-
-#### [Nazr-e-baad ki Haqeeqat aur Uss-kaI-laaj | SSA Shah](https://www.youtube.com/watch?v=r7s04SNiPHw)
-* The power of human-mind
-* Using self-suggestion we can improve our psychological-condition
-* Our-own-planning is faulty
-* __Surah 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
-* Birla-and-Tata Groups of India
-* Tadbeer, Qabiliyat, Mehnat doesn't let you fall on ground.
 
 ***
 

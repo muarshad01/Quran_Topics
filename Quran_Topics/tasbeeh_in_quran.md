@@ -98,3 +98,5 @@
 * __Surah 27/59-66__: [](https://quran.com/27/59-66)
 
 *** 
+
+#### [3rd Kalma | Hicham Ilahi Zaheer ](https://www.youtube.com/shorts/bOsL9ecMlBg)

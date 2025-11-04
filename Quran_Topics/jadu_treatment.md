@@ -100,11 +100,9 @@
 
 #### [Black magic and Quran | Prof. ARA](https://www.youtube.com/watch?v=Rg92WohFBUE)
 * __Surah 2/102 (يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ......وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ)__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
-* Remember: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
-
-***
-
-#### [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
+* __Treatment__:
+1. Surah An-Naas
+2. Surah Al-Falaq
 
 ***
 
@@ -118,12 +116,20 @@
 ***
 
 #### [Surah An-Naas, Al-Falaq aur Jadu-ka-Elaj | Prof. ARA](https://www.youtube.com/watch?v=EcIx5DJqlxw)
-* Jadu causes Obsessional though, Neurosis, Psychosis
-* Treatment: Jadu treatment is in Surah An-Naas and Surah Al-Falaq
+* __Jadu Causes__:
+1. Obsessional though
+2. Neurosis, Psychosis
+* __Treatment__:
+1. Surah An-Naas
+2. Surah Al-Falaq
 * __Surah Al-Baqarag 2/37__: [فَتَلَقَّىٰٓ ءَادَمُ مِن رَّبِّهِۦ كَلِمَـٰتٍۢ فَتَابَ عَلَيْهِ ۚ إِنَّهُۥ هُوَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quran.com/2/37)
 * __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
 * __Surah Al-Anbya 21/87__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
 * __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
+
+***
+
+#### [Jadoo-Toona ki Haqeeqat | Prof ARA](https://www.youtube.com/watch?v=ED1CtaY4vaA)
 
 ***
 

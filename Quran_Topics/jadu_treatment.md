@@ -38,14 +38,17 @@
 ***
 
 ## Syed Sarfaraz Shah
-#### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
-* Three things make you weak-from-inside.
+
+#### [Symptoms Of Black Magic | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
+* Three things make you weak-from-inside:
 1. Waswasa (Lurking Whisperer)
 2. Fear
 3. Anger (Shows your weakness); Drop in tolerance-level.
-* I don't want to accept my failures. I want a scape goat to hide my faiulure.
+* I don't want to accept my failures. I want a scape-goat to hide my faiulure and its Jadu-and-Taweez from your enemies.
+* Strong people accept their failures whole heartedly.
+* __Treatment: 4-Quls__
 
-*** 
+***
 
 #### [Protect Yourself from Evil Eye | SSA Shah](https://www.youtube.com/watch?v=qQTYsdSIryI)
 * Unusual things, sudden-changes start-to-happen.
@@ -89,17 +92,6 @@
 * __Surah 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Birla-and-Tata Groups of India
 * Tadbeer, Qabiliyat, Mehnat doesn't let you fall on ground.
-
-***
-
-#### [Symptoms Of Black Magic - Islamic Remedies To Cure Black Magic | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
-* Three things make you weak-from-inside:
-1. Waswasa (Lurking Whisperer)
-2. Fear
-3. Anger (Shows your weakness); Drop in tolerance-level.
-* I don't want to accept my failures. I want a scape-goat to hide my faiulure and its Jadu-and-Taweez from your enemies.
-* Strong people accept their failures whole heartedly.
-* __Treatment: 4-Quls__
 
 ***
 

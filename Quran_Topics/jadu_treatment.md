@@ -29,6 +29,10 @@
 
 ***
 
+#### [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
+
+***
+
 ## Syed Sarfaraz Shah
 #### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
 * Three things make you weak-from-inside.
@@ -89,11 +93,16 @@
 * Jadu-batoor-ilm exists
 * __Surah Ale-Imran 3/140 ( وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * Jadu-karnay-wala Imaan khoo-detah-hai
+* __Jadu-asarat doesn't-come-to-that-house, where Surah Baqarah is recited regularly__
 
 ***
 
-#### [Jadu-ke-Asraat | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
-* [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
+#### [Symptoms Of Black Magic - Islamic Remedies To Cure Black Magic | SSA Shah](https://www.youtube.com/watch?v=Th6hMss_1M8)
+* Three things make you weak-from-inside:
+1. Waswasa (Lurking Whisperer)
+2. Fear
+3. Anger (Shows your weakness); Drop in tolerance-level.
+* I don't want to accept my failures. I want a scape goat to hide my faiulure.
 
 ***
 

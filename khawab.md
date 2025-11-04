@@ -23,8 +23,11 @@
 
 ***
 
-#### [Reality of Bad Dreams - Solve Your Problems | SSA Shah](https://www.youtube.com/watch?v=lf7z7gW4yA0)
-* 
+#### [Reality-of-Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+* Brain power is tremendous. Three parts:
+1. Unconcious
+2. Sub-concious (La-Shahoar)
+3. Concious mind.
 
 ***
 

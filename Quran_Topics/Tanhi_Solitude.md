@@ -1,4 +1,4 @@
-* Insaan hamaisha-apni-Zaban-kay-haathon pannsh-jata-hai
+* Insaan hamaisha-apni-Zaban-kay-haathon panish-jata-hai
 
 ***
 
@@ -34,3 +34,5 @@
 #### [Tanha Se Tanha Ka Taaluq | Forty Rules of Love | Irfan-ul-Haq](https://www.youtube.com/watch?v=PpQbDGwcm2M)
 
 ***
+
+#### [The Power of Silence | Wasif Ali Wasif](https://www.youtube.com/watch?v=bdgEz2qZgbk)

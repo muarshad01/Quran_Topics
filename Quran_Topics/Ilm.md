@@ -203,3 +203,9 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 ***
 
 #### [Ilm Mukammal Kb Hota Hay? | Shaykh-Islam Dr Muhammad Tahir ul Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
+
+***
+
+#### [Maqaam-e-Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
+
+***

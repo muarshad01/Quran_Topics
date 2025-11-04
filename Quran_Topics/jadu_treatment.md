@@ -33,7 +33,8 @@
 
 ***
 
-#### [...](https://www.youtube.com/shorts/nnBxv6sfr5k)
+#### [Symptons and Treatment | Allama Hisham Elahi Zaheer](https://www.youtube.com/shorts/nnBxv6sfr5k)
+* 4-Kalma 40 days, 1 tasbeeh, subh and shaam
 
 ***
 

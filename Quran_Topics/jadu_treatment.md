@@ -159,6 +159,7 @@
 ***
 
 #### [Jaadu Key Tor Ka Ilm | Irfan-ul-Haq](https://www.youtube.com/watch?v=B958eO6gjpA)
+* __Surah 42/49-50__: [](https://quran.com/42/49-50)
 
 ***
 

@@ -211,6 +211,10 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+#### [Allah Ka Wo Naam Jisy Parhne Se Jinnat Bhaag Jayen | Abdullah Bhatti](https://www.youtube.com/watch?v=QmCh-x19Vw4)
+
+***
+
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
 * __Surah Yunus__:[81,84,85]()
 1. Ya Raqeebu

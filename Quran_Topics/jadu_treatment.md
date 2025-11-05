@@ -191,6 +191,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ## Abdullah Bhatti
 
+#### [Signs of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+
+***
+
 #### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 
 ***
@@ -216,11 +221,6 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 4. Ya Qaharru
 * Ya Muzzilu, Ya Mumeetu
 * Surah Yunus 10/81 - 11-times
-
-***
-
-#### [Signs of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
 
 ***
 

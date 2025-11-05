@@ -146,14 +146,15 @@
     * __Surah 29/62__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥٓ ۚ إِنَّ ٱللَّهَ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/29/62)
     * __Surah 34/39__: [قُلْ إِنَّ رَبِّى يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥ ۚ وَمَآ أَنفَقْتُم مِّن شَىْءٍۢ فَهُوَ يُخْلِفُهُۥ ۖ وَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/34/39)
 * __Children__:
-    * __Surah__: [لِّلَّهِ مُلْكُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ يَخْلُقُ مَا يَشَآءُ ۚ يَهَبُ لِمَن يَشَآءُ إِنَـٰثًۭا وَيَهَبُ لِمَن يَشَآءُ ٱلذُّكُورَ......أَوْ يُزَوِّجُهُمْ ذُكْرَانًۭا وَإِنَـٰثًۭا ۖ وَيَجْعَلُ مَن يَشَآءُ عَقِيمًا ۚ إِنَّهُۥ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/42/49-50)
-* Ali AS: How Rizq will come to a sealed room? Ali AS Replied: Just like death reaches that perosn.
+    * __Surah 42/49-50__: [لِّلَّهِ مُلْكُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ يَخْلُقُ مَا يَشَآءُ ۚ يَهَبُ لِمَن يَشَآءُ إِنَـٰثًۭا وَيَهَبُ لِمَن يَشَآءُ ٱلذُّكُورَ......أَوْ يُزَوِّجُهُمْ ذُكْرَانًۭا وَإِنَـٰثًۭا ۖ وَيَجْعَلُ مَن يَشَآءُ عَقِيمًا ۚ إِنَّهُۥ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/42/49-50)
+* __Ali AS__: How Rizq will come to a sealed room? Ali AS Replied: Just like death reaches that perosn.
 
 ***
 
 #### [Ghar Mein Agar Jaadu Nazr Aaye, Toh Kya Karna Chahiye? | Irfan-ul-Haq](https://www.youtube.com/watch?v=uphYHCthTXY)
-* Best Approach: Repeat Azaan
-* Du Wudu, drink water
+* __Best Approach: Repeat Azaan__
+* __Du Wudu__
+* Drink water
 * White Hen
 
 ***
@@ -177,9 +178,9 @@ Sikhaye Kis Ne Ismaeel (A.S.) Ko Adaab-e-Farzandi
 3. Adaab-e-Farzandi
 
 #### Three Personalities
-1. Abraham AS
-2. Hajra AS
-3. Ismael AS
+1. Abraham AS (Faizan-e-Nazar)
+2. Hajra AS (Maktab-Ki-Karamat)
+3. Ismael AS (Adaab-e-Farzandi)
 
 ```
 Khird-Ke-Paas Khabar-Ke-Siwa Kuch-Aur-Nahin
@@ -192,7 +193,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ## Abdullah Bhatti
 
-#### [Signs of Black Magic | Jaadu Karne Waly Ki Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+#### [Jaadu-Karne-Waly-Ki-Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
 * __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
 
 ***

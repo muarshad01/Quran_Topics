@@ -240,15 +240,15 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ## Mufti Muneer Akhoon
 
-#### [Jadu-ka-Toar| Mufti Munner Akhoon](https://www.youtube.com/shorts/AapCR1WXB0Y)
-* 101-time Surah Falak & Naas for Five days, 12-time Darood-e-Ibrahi at the end.
-
-***
-
 #### [Rishtedaron Ke-Hasad aur Jadoo-se-Bachne Ka Asan Tariqa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=pGPksbYs9io)
 * Surah Falak and Naas - 11x times daily
 * Surah Rehman Recite & Play at home
 * 21 days
+
+***
+
+#### [Jadu-ka-Toar| Mufti Munner Akhoon](https://www.youtube.com/shorts/AapCR1WXB0Y)
+* 101-time Surah Falak & Naas for Five days, 12-time Darood-e-Ibrahi at the end.
 
 ***
 

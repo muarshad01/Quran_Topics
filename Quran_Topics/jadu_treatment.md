@@ -251,7 +251,8 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-* https://www.youtube.com/shorts/AapCR1WXB0Y
+* [Jadu-ka-Toar| Mufti Munner Akhoon](https://www.youtube.com/shorts/AapCR1WXB0Y)
+* 101-time Surah Falak & Naas for Five days, 12-time Darood-e-Ibrahi at the end.
 
 ***
 

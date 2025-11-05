@@ -203,7 +203,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
-* __Surah Yunus 81,84,85
+* __Surah Yunus__:[81,84,85]()
 1. Ya Raqeebu
 2. Ya Hafeezu
 3. Ya Jabbaru

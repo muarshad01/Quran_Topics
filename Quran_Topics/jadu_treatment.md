@@ -207,6 +207,10 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+#### [Chaar Suraakh Jis Se Jinnat Insaan Mein Dakhil Hote Hain | Abdullah Bhatti](https://www.youtube.com/watch?v=mbTKXZo0lAE)
+
+***
+
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)
 * __Surah Yunus__:[81,84,85]()
 1. Ya Raqeebu

@@ -200,18 +200,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 #### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 * 10:00
-1. La Latifu
-2. Ya Aleemu
-3. Ya Khabeeru - Recite 300x-time (before sleeping for 2/3 nights for Istikhara)
-
-1. Ya Hayyu
-2. Ya Qayuum
-3. Ya Latifu- Recite 300x-time (For Rukawat)
-
-1. Ya Allah
-2. Ya Wakeelu
-3. Ya Naseeru - Recite 300x-time (For Going Abroad)
-
+* [La Latifu, Ya Aleemu, Ya Khabeeru] - Recite 300-time (Before sleeping for 2/3 nights for Istikhara)
+* [ Ya Hayyu, Ya Qayuum, Ya Latifu]   - Recite 300-time (For Rukawat)
+* [Ya Allah, Ya Wakeelu, Ya Naseeru]  - Recite 300-time (For Going Abroad)
 * 13:00
 
 ***

@@ -199,6 +199,13 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
+* 10:00
+1. La Latifu
+2. Ya Aleemu
+3. Ya Khabeeru - Recite 300x-time before sleeping
+
+1. Ya Hayyu
+2. Ya Qayuum - Recite 300x-time
 
 ***
 

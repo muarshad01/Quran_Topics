@@ -186,6 +186,7 @@
 * __Surah Al-Muddaththir 74/30__: [It is overseen by 19 ˹keepers˺.](https://quran.com/74/30)
 * __Surah Al Alaq 96/1-5__: [19 words - The famous FIRST relelation](https://quran.com/96/1-5)
 * __Surah An Nasr 110__: [19 words - The LAST revelation](https://quran.com/110)
+* [SCIENTISTS STUNNED: Quran's Code 19 Defies Mathematics (1 in TRILLIONS!)](https://www.youtube.com/watch?v=CAlVn-t97XM)
 
 ***
 
@@ -342,3 +343,4 @@ https://quran.com/12/101
 ***
 
 * [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)
+

@@ -238,20 +238,9 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-#### [Jadu Ka Tor Bus Ek Minute Mean | Azmoda Wazifa | wazifa for black magic in urdu | Nazeer Ahmad Ghazi](https://www.youtube.com/watch?v=ZIV1BYeq5fs)
-* Mauzatain: 
-1. Surah Al-Falaq
-2. Surah An-Nas
-
-***
-
 ## Mufti Muneer Akhoon
 
-#### [Remove Nazr (evil eye) through Fitkari, whole black peppers or whole dried red chilies 🌶️ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=8evp-q-qHx8)
-
-***
-
-* [Jadu-ka-Toar| Mufti Munner Akhoon](https://www.youtube.com/shorts/AapCR1WXB0Y)
+#### [Jadu-ka-Toar| Mufti Munner Akhoon](https://www.youtube.com/shorts/AapCR1WXB0Y)
 * 101-time Surah Falak & Naas for Five days, 12-time Darood-e-Ibrahi at the end.
 
 ***

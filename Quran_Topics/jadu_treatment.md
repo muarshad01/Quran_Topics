@@ -212,6 +212,8 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 2. Ya Wakeelu
 3. Ya Naseeru - Recite 300x-time (For Going Abroad)
 
+* 13:00
+
 ***
 
 #### [Children’s Memory Booster & Stress Relief | End of Black Magic | Abdullah Bhatti](https://www.youtube.com/watch?v=CCWc8H8xM3U)

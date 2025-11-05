@@ -212,6 +212,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Allah Ka Wo Naam Jisy Parhne Se Jinnat Bhaag Jayen | Abdullah Bhatti](https://www.youtube.com/watch?v=QmCh-x19Vw4)
+1. Fear (Khauf)
+2. Waswasa
+3. Anger
+4. Brain Chemicals are disturbed (AURA becomes weak)
+* __Make your shield AURA strong__
 
 ***
 

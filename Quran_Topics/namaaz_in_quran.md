@@ -96,6 +96,7 @@
 ***
 
 #### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
+* Just before-of-after Zawwal time
 
 ***
 

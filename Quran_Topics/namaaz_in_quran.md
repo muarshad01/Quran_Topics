@@ -61,22 +61,6 @@
 
 ***
 
-#### [Eid Night Miracle Amal – For Forgiveness, Rizq & Peace! | SSA Shah](https://www.youtube.com/watch?v=K6tQZhzbb2E)
-
-***
-
-#### [ REEL: Best Way to Release Mental Stress | SSA Shah](https://www.youtube.com/shorts/9PYerqtZQeY)
-
-***
-
-#### [How Prayer Relieves Worries and Anxiety? | SSA Shah](https://www.youtube.com/watch?v=cm27aWW4_tU)
-
-***
-
-#### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
-
-***
-
 #### [Broz Jummah (Friday) Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
 * Yeah Namaz bohot Fazilat wali hai...Ilm and Qurbat
 * __Allah-kay beyhaad-QAREEB ho-jaata-hai__
@@ -108,6 +92,22 @@
 
 #### [Jummah Ke Din Ki Ahmiyat (Ilm Ki Baarish) | SSA Shah](https://www.youtube.com/watch?v=iHTNHcZc-CI)
 * __Surah Al-Israa__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quranwbw.com/17/79)
+
+***
+
+#### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
+
+***
+
+#### [Eid Night Miracle Amal – For Forgiveness, Rizq & Peace! | SSA Shah](https://www.youtube.com/watch?v=K6tQZhzbb2E)
+
+***
+
+#### [ REEL: Best Way to Release Mental Stress | SSA Shah](https://www.youtube.com/shorts/9PYerqtZQeY)
+
+***
+
+#### [How Prayer Relieves Worries and Anxiety? | SSA Shah](https://www.youtube.com/watch?v=cm27aWW4_tU)
 
 ***
 

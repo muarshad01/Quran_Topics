@@ -1,3 +1,11 @@
+### Chemicals (DOES) are balanced in our Brain:
+* D: Dopamine 
+* E: Endorphin 
+* O: Oxytocin
+* S: Serotonin
+
+***
+
 #### [Bari Hajat Kayley Chota Sa Amal (Salat al-Hajjat)| Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
 * __Offer 2-rakat Salat-e-Hajat (21 days regularly)__
 * First-rakat recite __Surah Al-Kaifroon__
@@ -160,14 +168,6 @@
 ## Hadith
 * `Namaz momin-ki-Miraj Hai` - Hadith
 * `Momin-aur-kafir mayn faraq-karnay wali-cheez Namaz hai.` - Hadith
-
-***
-
-### Chemicals (DOES) are balanced in our Brain:
-* D: Dopamine 
-* E: Endorphin 
-* O: Oxytocin
-* S: Serotonin
 
 ***
 

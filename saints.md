@@ -290,3 +290,5 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * You'll have to prepare a mixture of (1 + 2 + 3) to find Rabb
 
 ***
+
+#### [Hazrat Nizamuddin Aualiya (RA) Mehboob-e-Ilahi Banne Ka Waqia | Molana Abdul Waheed Qadri](https://www.youtube.com/watch?v=6LcqnNJhkFg)

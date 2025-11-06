@@ -73,16 +73,6 @@
 
 ***
 
-#### [Friday Aur Sunday Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
-* Dua: Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh
-
-***
-
-#### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
-* Iss-namaz-ko ada-karnay-wala, __Allah-kay beyhaad-QAREEB ho-jaata-hai__
-
-***
-
 #### [Jumman Time (Sayat) for Dua | SSA Shah](https://www.youtube.com/shorts/0_Xytl5D4fk)
 
 ***
@@ -103,6 +93,16 @@
 * Bala-ka-bharoosa paidao-hota-hai iss-say Rabb-Tallah-par
 * Wasail-say-hi bay-nayaz ho-jaata-hai
 * Allah-Tallah kay qareeb ho-jaata-hai
+
+***
+
+#### [Friday Aur Sunday Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
+* Dua: Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh
+
+***
+
+#### [Friday & Sunday Ki Ibadat | SSA Shah](https://www.youtube.com/shorts/-wGZ56ro2Ic)
+* Iss-namaz-ko ada-karnay-wala, __Allah-kay beyhaad-QAREEB ho-jaata-hai__
 
 ***
 

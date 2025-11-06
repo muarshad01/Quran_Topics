@@ -1,7 +1,7 @@
 * Allah-ka-Burhaan
 * Allah ki daleel-ya-hujjat.
 * Aisi-daleel joo-tori-na jaa-sakay
-* 
+* Joo Haqiqat ko wada-kar-dah, aud dil-mayn itminan paida-kar-dah
 
 ***
 

@@ -1,8 +1,15 @@
-#### [Bari Hajat Kayley Chota Sa Amal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
+#### [Bari Hajat Kayley Chota Sa Amal (Salat al-Hajjat)| Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
 * __Offer 2-rakat Salat-e-Hajat (21 days regularly)__
 * First-rakat recite __Surah Al-Kaifroon__
 * Second-raket recite __Surah Al-Akhlas__
 * Then recite __Duai-e-Hajjat__
+
+***
+
+#### [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
+* In every Rakat, Aytul kursi along with 4-Quls
+* 4-Rakat - 40 years of Sin are forgiven
+* 6-Rakat - 50 years of Sin are forgiven
 
 ***
 
@@ -114,13 +121,6 @@
 ***
 
 #### [How Prayer Relieves Worries and Anxiety? | SSA Shah](https://www.youtube.com/watch?v=cm27aWW4_tU)
-
-***
-
-#### [4-Rakat Nawafil after Maghrib (Salat al-Awwabin)| SSA Shah](https://www.youtube.com/shorts/MmpvuJIRgmw)
-* In every Rakat, Aytul kursi along with 4-Quls
-* 4-Rakat - 40 years of Sin are forgiven
-* 6-Rakat - 50 years of Sin are forgiven
 
 ***
 

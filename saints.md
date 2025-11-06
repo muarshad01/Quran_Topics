@@ -292,3 +292,9 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 ***
 
 #### [Hazrat Nizamuddin Aualiya (RA) Mehboob-e-Ilahi Banne Ka Waqia | Molana Abdul Waheed Qadri](https://www.youtube.com/watch?v=6LcqnNJhkFg)
+
+***
+
+#### [Muhib Ya Mahboob | Mehboob-e-Ilahi | Nizamuddin Auliya Ka Waqia | By Shahbaz Qadri](https://www.youtube.com/watch?v=BVu7u0OwA3o)
+
+***

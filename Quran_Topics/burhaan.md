@@ -22,6 +22,7 @@
 
 #### [The Greatest Proof of Allah’s Existence | اللہ کی بُرہان کیا ہے؟](https://www.youtube.com/watch?v=LjyKoSIIzkI)
 * Arz-e-Faqeer, Lecture 9, page 91
+* __Surah Yusuf 12/24__: [وَلَقَدْ هَمَّتْ بِهِۦ ۖ وَهَمَّ بِهَا لَوْلَآ أَن رَّءَا بُرْهَـٰنَ رَبِّهِۦ ۚ كَذَٰلِكَ لِنَصْرِفَ عَنْهُ ٱلسُّوٓءَ وَٱلْفَحْشَآءَ ۚ إِنَّهُۥ مِنْ عِبَادِنَا ٱلْمُخْلَصِينَ ٢٤](https://quran.com/12/24)
 * Anyone can experience the Burhaan
 * Gunah-say taubah-kar-layn aur irada-karayn kay-hum gunah-nahi karayan-gay, aur Rabb-Tallah say yeah darkhawast-kar-layn
 * Ya-Bari-Talaa, mayn kamzoor hoon, merey-qadam larkaraha-jaatay-hayn, meri madad farma, aur mujhay gunahoon say mehfooz rakh. Mayn-apnay-app-ko teri-pannah-mayn deeta-hoon

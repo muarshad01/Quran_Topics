@@ -95,7 +95,7 @@
 ***
 
 #### [Friday Aur Sunday Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
-* Dua: Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh
+* Duaa: __Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh__
 
 ***
 

@@ -11,7 +11,13 @@
 ***
 
 #### [The Greatest Proof of Allah’s Existence | اللہ کی بُرہان کیا ہے؟](https://www.youtube.com/watch?v=LjyKoSIIzkI)
-* Ya Bari Talaa, mayn kamzoor hoon, gunahoon say larkaraha-jaata-hoon, mayn-apnay-app-ko teri-pannah-mayn deeta-hoon
-* Ya Bari Talaa, mayn kamzoor hoon, gunahoon say bachna chahta hoon, tuh nayatoon ko jannta hai.
+* Arz-e-Faqeer, Lecture 9, page 91
+* Anyone can experience the Burhaan
+* Gunah-say taubah-kar-layn aur irada-karayn kay-hum gunah-nahi karayan-gay, aur Rabb-Tallah say yeah darkhawast-kar-layn
+* Ya-Bari-Talaa, mayn kamzoor hoon, merey-qadam larkaraha-jaatay-hayn, meri madad farma, aur mujhay gunahoon say mehfooz rakh. Mayn-apnay-app-ko teri-pannah-mayn deeta-hoon
+* You'll experience Allah SWT Burhann
+* Jahan app Gunah karnay lagay, wahan Rabb Talaa nay kuch iss tarah ki rukaway daal deen, app gunah-ki-jagah-par jaa-hee nahi-sakay, yah gunah kar nahi sakay
+* Apnay app ko Allah ki Panah mayn deh deayn
+* Ya Bari Talaa, mayn kamzoor hoon, gunahoon-say bachna-chahta-hoon, tuh nayatoon ko jannta hai.
 
 ***

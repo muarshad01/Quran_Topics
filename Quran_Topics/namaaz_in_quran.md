@@ -100,6 +100,11 @@
 
 ***
 
+#### [Importance of Namaz-e-Jumah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
+* Zawaal time:  
+
+***
+
 #### [Eid Night Miracle Amal – For Forgiveness, Rizq & Peace! | SSA Shah](https://www.youtube.com/watch?v=K6tQZhzbb2E)
 
 ***
@@ -109,11 +114,6 @@
 ***
 
 #### [How Prayer Relieves Worries and Anxiety? | SSA Shah](https://www.youtube.com/watch?v=cm27aWW4_tU)
-
-***
-
-#### [Importance of Namaz-e-Jumah | Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=pmr2DS66Hro)
-* Zawaal time:  
 
 ***
 

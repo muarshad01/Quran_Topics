@@ -78,7 +78,7 @@
 #### [Broz Jummah (Friday) Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
 * Yeah Namaz bohot Fazilat wali hai...Ilm and Qurbat
 * __Allah-kay beyhaad-QAREEB ho-jaata-hai__
-* Duaa are acccepted after this Namaz
+* __Duaa are acccepted after this Namaz__
 * I kept asking for only one thing:
   * __Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh__
 

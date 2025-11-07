@@ -173,29 +173,28 @@
 ***
 
 #### Is there Anyone
-* __Surah Al-Qamar 54/17__: [And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?](https://quranwbw.com/54/17)
+* __Surah Al-Qamar 54/17 (Challenge)__: [وَلَقَدْ يَسَّرْنَا ٱلْقُرْءَانَ لِلذِّكْرِ فَهَلْ مِن مُّدَّكِرٍۢ ١٧](https://quran.com/54/17)
 
 ***
 
-* __Surah Jummah 62/10 (Wazkurul laaha kaseeral la'allakum tuflihoon)__: [Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.](https://quranwbw.com/62/10)
+* __Surah Jummah 62/10 (And remember Allah often so you may be successful.)__: [فَإِذَا قُضِيَتِ ٱلصَّلَوٰةُ فَٱنتَشِرُوا۟ فِى ٱلْأَرْضِ وَٱبْتَغُوا۟ مِن فَضْلِ ٱللَّهِ وَٱذْكُرُوا۟ ٱللَّهَ كَثِيرًۭا لَّعَلَّكُمْ تُفْلِحُونَ ١٠](https://quran.com/62/10)
 
 ***
 
-* __Surah Al-Qalam 68/51__: [The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder,1 and say, “He is certainly a madman.”](https://quran.com/68/51)
+* __Surah Al-Qalam 68/51__: [وَإِن يَكَادُ ٱلَّذِينَ كَفَرُوا۟ لَيُزْلِقُونَكَ بِأَبْصَـٰرِهِمْ لَمَّا سَمِعُوا۟ ٱلذِّكْرَ وَيَقُولُونَ إِنَّهُۥ لَمَجْنُونٌۭ ٥١](https://quran.com/68/51)
 
 ***
 
-__Surah At-Takwir [The Overthrowing] 81/27__: [Surely this ˹Quran˺ is only a reminder to the whole world—](https://quranwbw.com/81/27)
+* __Surah At-Takwir [The Overthrowing] 81/27__: [إِنْ هُوَ إِلَّا ذِكْرٌۭ لِّلْعَـٰلَمِينَ ٢٧](https://quran.com/81/27)
 
 ***
 
-* __Surah Al-Ala [The most high] 87/1__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
-* __Surah Al-Ala [The most high] 87/14-15__: [(14) Successful indeed are those who purify themselves,
-(15) remember the Name of their Lord, and pray.](https://quranwbw.com/87/14-15)
+* __Surah Al-Ala 87/1__: [سَبِّحِ ٱسْمَ رَبِّكَ ٱلْأَعْلَى ١](https://quranwbw.com/87/1)
+* __Surah Al-Ala 87/14-15__: [قَدْ أَفْلَحَ مَن تَزَكَّىٰ ١٤...وَذَكَرَ ٱسْمَ رَبِّهِۦ فَصَلَّىٰ ١٥](https://quranwbw.com/87/14-15)
 
 ***
 
-* __Surah Sharh [The Consolation] 94/4 (Warafa'na)__: [and elevated your renown for you?1](https://quran.com/94/4)
+* __Surah Ash-Sharh [The Consolation] 94/4__: [وَرَفَعْنَا لَكَ ذِكْرَكَ ٤](https://quran.com/94/4)
 
 ***
 

@@ -25,3 +25,5 @@
 * First condition is "keep-the-Secret", if you help others.
 
 ***
+
+* __Surah 25/63-66 (Abaad-Dur-Rehman...say...Salaam-to-Jahil)__ : [](https://quran.com/25/63-66)

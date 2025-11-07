@@ -15,3 +15,5 @@
 * __Surah Al-Kahf 18/63__: [He replied, “Do you remember when we rested by the rock? ˹That is when˺ I forgot the fish. None made me forget to mention this except Satan. And the fish made its way into the sea miraculously.”](https://quran.com/18/63)
 
 * __Surah Al-Mujadila 58/19__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quranwbw.com/58/19)
+
+* https://quran.com/18/24

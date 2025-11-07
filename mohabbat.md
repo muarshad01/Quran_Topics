@@ -1,3 +1,7 @@
+#### [Love-or-Fear of Allah SWT | SSA Shah](https://www.youtube.com/shorts/Hk1Y5vwh1ts)
+
+***
+
 #### [Allah-ki-mohabbat kaise hasil-kare | SSA Shah](https://www.youtube.com/watch?v=a1uQqD4i-s4)
 * Dunya say kyt-kar bhair-nikal-jaye banda aur aun-deeki-dunya ki seer-karnay-laghay
 * Kishsi-cheez kay-undar itna gharaq-ho-jaye-banda keh dunya-say kat-jaye.

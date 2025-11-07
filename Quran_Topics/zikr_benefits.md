@@ -15,10 +15,13 @@
 
 ***
 
-#### [Importance of Zikr](https://www.youtube.com/shorts/aPIk1CYyZ9o)
-1. Hazrat Yunus AS
-2. Quran is Shifa (Zikr)
-3. Pear-of-Hearts (Challenge of Quran)
+#### [Importance of Zikr | Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
+* [Hazrat Yunus AS - 36/43-144](https://quran.com/37/143-144)
+* Quran-is-Shifa for Momineen:
+    * __Surah 9/14__:  [قَـٰتِلُوهُمْ يُعَذِّبْهُمُ ٱللَّهُ بِأَيْدِيكُمْ وَيُخْزِهِمْ وَيَنصُرْكُمْ عَلَيْهِمْ وَيَشْفِ صُدُورَ قَوْمٍۢ مُّؤْمِنِينَ ١٤](https://quran.com/9/14)
+    * __Surah 10/57__:  [](https://quran.com/10/57)
+    * __Surah 17/82__:  [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا ٨٢](https://quran.com/17/82)
+* __Surah 13/28__: [Pear-of-Hearts (Challenge of Quran)](https://quran.com/13/28)
 
 ***
 

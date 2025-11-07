@@ -20,4 +20,6 @@
 ### Are those who know equal to those who do not know?
 * __Surah Al-Baqarah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quran.com/39/9)
 
+* __Surah 25/63-66 (Abaad-Dur-Rehman...say...Salaam-to-Jahil)__ : [](https://quran.com/25/63-66)
+
 *** 

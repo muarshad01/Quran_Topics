@@ -193,25 +193,24 @@ __Surah At-Takwir [The Overthrowing] 81/27__: [Surely this ˹Quran˺ is only a r
 
 ***
 
-* __Surah Sharh [The Consolation] 94/4 (Warafa'na)__: [and elevated your renown for you?1](https://quranwbw.com/94/4)
+* __Surah Sharh [The Consolation] 94/4 (Warafa'na)__: [and elevated your renown for you?1](https://quran.com/94/4)
 
 ***
 
 ## When and What Time?
-* __Surah Ale-i-Imran 3/41 (Morning and Evening)__:[Zachariah said, “My Lord! Grant me a sign.” He said, “Your sign is that you will not ˹be able to˺ speak to people for three days except through gestures. Remember your Lord often and glorify ˹Him˺ morning and evening.”](https://quranwbw.com/3#41)
+* __Surah Ale-i-Imran 3/41 (Zakaria AS: Morning and Evening)__:[قَالَ رَبِّ ٱجْعَل لِّىٓ ءَايَةًۭ ۖ قَالَ ءَايَتُكَ أَلَّا تُكَلِّمَ ٱلنَّاسَ ثَلَـٰثَةَ أَيَّامٍ إِلَّا رَمْزًۭا ۗ وَٱذْكُر رَّبَّكَ كَثِيرًۭا وَسَبِّحْ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quran.com/3/41)
 
-* __Surah Fatah 48/9 (Morning and Evening)__: [so that you ˹believers˺ may have faith in Allah and His Messenger, support and honour him, and glorify Allah morning and evening.](https://quranwbw.com/48/9)
+* __Surah Fatah 48/9 (Morning and Evening)__: [لِّتُؤْمِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ وَتُسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quran.com/48/9)
 
-* __Surah Toor 52/48 (When you rise)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
+* __Surah at-Toor 52/48 (When you Rise)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ](https://quran.com/52/48)
 
 
-* __Surah Al-Munafiqun 63/9__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تُلْهِكُمْ أَمْوَٰلُكُمْ وَلَآ أَوْلَـٰدُكُمْ عَن ذِكْرِ ٱللَّهِ ۚ وَمَن يَفْعَلْ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ ٩](https://quran.com/63/9)
+* __Surah Al-Munafiqun 63/9 (Warning: Wealth & Children)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تُلْهِكُمْ أَمْوَٰلُكُمْ وَلَآ أَوْلَـٰدُكُمْ عَن ذِكْرِ ٱللَّهِ ۚ وَمَن يَفْعَلْ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ ٩](https://quran.com/63/9)
 
-* __Surah Al-Insan 76/25-25 (Morning, Evening, Night)__: [(25) ˹Always˺ remember the Name of your Lord morning and evening,(26) and prostrate before Him during part of the night, and glorify Him long-at-night.](https://quranwbw.com/76/25-26)
+* __Surah Al-Insan 76/25-25 (Morning, Evening, Night)__: [وَٱذْكُرِ ٱسْمَ رَبِّكَ بُكْرَةًۭ وَأَصِيلًۭا...وَمِنَ ٱلَّيْلِ فَٱسْجُدْ لَهُۥ وَسَبِّحْهُ لَيْلًۭا طَوِيلًا](https://quran.com/76/25-26)
 
 *** 
 
-* __Surah Al-Alaa 87/14-15__: [قَدْ أَفْلَحَ مَن تَزَكَّىٰ ١٤...وَذَكَرَ ٱسْمَ رَبِّهِۦ فَصَلَّىٰ ١٥](https://quran.com/87/14-15)
+* __Surah Al-Alaa 87/14-15__: [قَدْ أَفْلَحَ مَن تَزَكَّىٰ ...وَذَكَرَ ٱسْمَ رَبِّهِۦ فَصَلَّىٰ ](https://quran.com/87/14-15)
 
 ***
-

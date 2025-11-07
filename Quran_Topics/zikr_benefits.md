@@ -68,7 +68,7 @@
 
 ***
 
-* __Surah Al-Baqarah 2/152 (Remember me...Be Thankful...)__: [remember Me; I will remember you. And thank Me, and never be ungrateful.](https://quranwbw.com/2/152)
+* __Surah Al-Baqarah 2/152 (Remember me...Be Thankful...)__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ وَٱشْكُرُوا۟ لِى وَلَا تَكْفُرُونِ ١٥٢](https://quranwbw.com/2/152)
 
 ***
 
@@ -79,6 +79,10 @@
 
 #### After prayers: Zikr Standing, Sitting, or Lying-down
 * __Surah 4/103__: [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
+
+***
+
+* __Surah 7/205 Al-Araf__: [وَٱذْكُر رَّبَّكَ فِى نَفْسِكَ تَضَرُّعًۭا وَخِيفَةًۭ وَدُونَ ٱلْجَهْرِ مِنَ ٱلْقَوْلِ بِٱلْغُدُوِّ وَٱلْـَٔاصَالِ وَلَا تَكُن مِّنَ ٱلْغَـٰفِلِينَ ](https://quran.com/7/205)
 
 ***
 
@@ -192,7 +196,14 @@ __Surah At-Takwir [The Overthrowing] 81/27__: [Surely this ˹Quran˺ is only a r
 
 * __Surah Toor 52/48 (When you rise)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
 
+
+* __Surah Al-Munafiqun 63/9__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تُلْهِكُمْ أَمْوَٰلُكُمْ وَلَآ أَوْلَـٰدُكُمْ عَن ذِكْرِ ٱللَّهِ ۚ وَمَن يَفْعَلْ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ ٩](https://quran.com/63/9)
+
 * __Surah Al-Insan 76/25-25 (Morning, Evening, Night)__: [(25) ˹Always˺ remember the Name of your Lord morning and evening,(26) and prostrate before Him during part of the night, and glorify Him long-at-night.](https://quranwbw.com/76/25-26)
 
 *** 
+
+* __Surah Al-Alaa 87/14-15__: [قَدْ أَفْلَحَ مَن تَزَكَّىٰ ١٤...وَذَكَرَ ٱسْمَ رَبِّهِۦ فَصَلَّىٰ ١٥](https://quran.com/87/14-15)
+
+***
 

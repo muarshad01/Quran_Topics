@@ -8,7 +8,7 @@
 * After taleem-o-tarbiat 1 Faqeer -> 2 Sufi (Indepdent Tabhleeg)
 * Sufi -> 3 Pear (Sahib-e-aqal-o-danish)
 * 31:50
-* Imran Khan: Will definately come back...but take more time to come out of jail...
+* __Imran Khan: Will definately come back...but take more time to come out of jail...__
 
 ***
 
@@ -19,12 +19,16 @@
 
 #### [Exclusive Latest Podcast | SSA Shah | Fatima Saif](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
 * What is Life: Dunwaai-zindagi maut-kay intizaar-ka naam-hai.
-* Hamari daimi zindagi ka inhisaar isss aarzi zindagi par hai.
+* Hamari daimi-zindagi ka-inhisaar isss aarzi-zindagi par-hai.
 * Sunnat
 #### Alam-e-Barzhaq
 
 #### 70,000 Jahans; 20,000 Alameen
 * Zameen aik jahan hai
+
+* 51:00
+* Pakistan InShaa Allah, qaim-rahay-gaa
+* Both sides bear looses
 
 ***
 
@@ -44,12 +48,12 @@
 ***
 
 #### [Noor-e-Sehar with Syed Sarfraz Ahmad Shah Sahab | 20 September 2025 on Channel 24 Part 1](https://www.youtube.com/watch?v=I-_fq2wnsUg)
-* __In the next war, forseeable future, India with be defeated such that it will take 50 years to recover.__ 39:10
+* __In the next war, forseeable future, India-will-be-defeated such that it-will-take 50-years to recover.__ 39:10
 * We're not so weak, Bani Israel attack us...it will start their own downfall.
 
 ***
 
-#### [Exclusive Interview with Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=s6T4gXdttC0)
+#### [Exclusive Interview with SSA Shah](https://www.youtube.com/watch?v=s6T4gXdttC0)
 
 ***
 

@@ -7,7 +7,10 @@
 ***
 
 #### [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
-* Jab Insaan, kisi-bhi-andaaz-mayn Rabb-ki-taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh-woo Zikr-hai.
+* Qalb-ki-parwarish
+* Rooh-ki-parwarish versus Jism-ki-parwarish
+* Qalb-ki-parwarish (Zikr-e-Rabb)
+* __Jab Insaan, kisi-bhi-andaaz-mayn Rabb-ki-taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh-woo Zikr-hai.__
 
 ***
 

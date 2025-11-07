@@ -205,6 +205,23 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * [ Ya Hayyu, Ya Qayuum, Ya Latifu]   - Recite 300-time (For Rukawat)
 * [Ya Allah, Ya Wakeelu, Ya Naseeru]  - Recite 300-time (For Going Abroad)
 * 13:00
+* Snake Bite: Surah Naas (11-time); [Ya Raqeebu, Ya Hafeezu] - 300-time
+* 16:00
+* __Namaz Focus__: I'm reciting prayer in front of Khana-Kabba with closed eyes. Think Allah SWT is sitting on Arsh and I'm sitting in front of Him and watching Him
+* Surah Falaq and Surah Naas 11-time dum-on-water and drink.
+* [La Latifu, Ya Aleemu, Ya Khabeeru] - Recite 300-time
+* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+* 19:00
+
+***
+* Nasl-dar-Nasl Jadoo
+        * __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
+        * __Surah Yunus 10/85-86__: [فَقَالُوا۟ عَلَى ٱللَّهِ تَوَكَّلْنَا رَبَّنَا لَا تَجْعَلْنَا فِتْنَةًۭ لِّلْقَوْمِ ٱلظَّـٰلِمِينَ.....وَنَجِّنَا بِرَحْمَتِكَ مِنَ ٱلْقَوْمِ ٱلْكَـٰفِرِينَ](https://quran.com/10/85-86)
+        * [Surah Yunus 85-86](https://www.youtube.com/shorts/O-Qch76R4pc)
+        * Dum on water 11-time and drink.
+* [1. Ya Raqeebu, 2. Ya Hafeezu, 3. Ya Jabbaru, 4. Ya Qaharru] - 300-time
+
+***
 
 ***
 

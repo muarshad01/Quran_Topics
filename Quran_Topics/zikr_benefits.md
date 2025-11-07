@@ -142,26 +142,22 @@
 
 ***
 
-#### Benefits In The Hereafter: Forgiveness & Great Reward
-* __Surah Al-Ahzab 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quran.com/33/35)
-
-#### zikran kaseera
-* __Surah Al-Ahzab 33/41__: [O believers! Always remember Allah often,](https://quranwbw.com/33/41)
-* __Surah Al-Ahzab 33/42 (Glorify Him in Morning and Evening)__: [and glorify Him morning and evening.](https://quranwbw.com/33/42)
+* __Surah Al-Ahzab 33/35 (Forgiveness & Great Reward)__: [إِنَّ ٱلْمُسْلِمِينَ وَٱلْمُسْلِمَـٰتِ وَٱلْمُؤْمِنِينَ وَٱلْمُؤْمِنَـٰتِ وَٱلْقَـٰنِتِينَ وَٱلْقَـٰنِتَـٰتِ وَٱلصَّـٰدِقِينَ وَٱلصَّـٰدِقَـٰتِ وَٱلصَّـٰبِرِينَ وَٱلصَّـٰبِرَٰتِ وَٱلْخَـٰشِعِينَ وَٱلْخَـٰشِعَـٰتِ وَٱلْمُتَصَدِّقِينَ وَٱلْمُتَصَدِّقَـٰتِ وَٱلصَّـٰٓئِمِينَ وَٱلصَّـٰٓئِمَـٰتِ وَٱلْحَـٰفِظِينَ فُرُوجَهُمْ وَٱلْحَـٰفِظَـٰتِ وَٱلذَّٰكِرِينَ ٱللَّهَ كَثِيرًۭا وَٱلذَّٰكِرَٰتِ أَعَدَّ ٱللَّهُ لَهُم مَّغْفِرَةًۭ وَأَجْرًا عَظِيمًۭا](https://quran.com/33/35)
+* __Surah Al-Ahzab 33/41 (Zikran kaseera)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱذْكُرُوا۟ ٱللَّهَ ذِكْرًۭا كَثِيرًۭا ](https://quran.com/33/41)
+* __Surah Al-Ahzab 33/42 (Morning and Evening)__: [وَسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quranwbw.com/33/42)
 
 ***
 
-* __Surah Yunus [Jonah] 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37#143-144)
+* __Surah Yunus [Jonah] 37/143-144__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ](https://quran.com/37/143-144)
 
 ***
 
-* __Surah Saad 38/1__: [Ṣãd. By the Quran, full of reminders!](https://quranwbw.com/38/1)
-* __Surah Saad 38/49__: [This is ˹all˺ a reminder. And the righteous will certainly have an honourable destination:](https://quranwbw.com/38/49)
+* __Surah Saad 38/1__: [صٓ ۚ وَٱلْقُرْءَانِ ذِى ٱلذِّكْرِ ](https://quran.com/38/1)
+* __Surah Saad 38/49__: [هَـٰذَا ذِكْرٌۭ ۚ وَإِنَّ لِلْمُتَّقِينَ لَحُسْنَ مَـَٔابٍۢ](https://quran.com/38/49)
 
 ***
 
 * __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
-
 
 ***
 
@@ -200,6 +196,8 @@
 
 ## When and What Time?
 * __Surah Ale-i-Imran 3/41 (Zakaria AS: Morning and Evening)__:[قَالَ رَبِّ ٱجْعَل لِّىٓ ءَايَةًۭ ۖ قَالَ ءَايَتُكَ أَلَّا تُكَلِّمَ ٱلنَّاسَ ثَلَـٰثَةَ أَيَّامٍ إِلَّا رَمْزًۭا ۗ وَٱذْكُر رَّبَّكَ كَثِيرًۭا وَسَبِّحْ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quran.com/3/41)
+
+* __Surah Al-Ahzab 33/42 (Morning and Evening)__: [وَسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quranwbw.com/33/42)
 
 * __Surah Fatah 48/9 (Morning and Evening)__: [لِّتُؤْمِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ وَتُسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quran.com/48/9)
 

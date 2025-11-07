@@ -11,6 +11,14 @@
 
 ***
 
+#### [Bond Between Allah and Servant | Teachings of Syed Yaqoob Ali Shah (R.A) | SSA Shah](https://www.youtube.com/watch?v=HRl0Yti1XFM)
+* Rabb-aur-Banday kaa-Taulaq
+* Yak-Jaai
+* Sirf Apna-Zikr Choor-Jaa
+* Tuh-Kun aur Mayn-Kun...aik-hee too-hayn
+
+***
+
 #### [Ibn ‘Abbas reported God’s messenger as saying, “The devil is couching at the heart of the son of Adam. When he mentions God he withdraws, but when he is neglectful he makes evil suggestions.”](https://sunnah.com/mishkat:2281) - Mishkat al-Masabih 2281
 
 ***
@@ -27,15 +35,6 @@
 
 #### ["La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ) ](https://www.youtube.com/shorts/hrvdOSDK7NY)
 * __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ](https://quranwbw.com/4/103)
-***
-
-#### [Lay-Jaa Apna-Sab-Kuch bus Apna-Zikr Choor-Jaa | SSA Shah](https://www.youtube.com/shorts/WHKM41Rf5gQ)
-#### [Bond Between Allah and Servant | Teachings of Syed Yaqoob Ali Shah (R.A) | SSA Shah](https://www.youtube.com/watch?v=HRl0Yti1XFM)
-* Rabb-aur-Banday kaa-Taulaq
-* Yak-Jaai
-* Sirf Apna-Zikr Choor-Jaa
-* Tuh-Kun aur Mayn-Kun...aik-hee too-hayn
-
 ***
 
 #### Zikr (وَلِلَّهِ الْأَسْمَاءُ الْحُسْنَىٰ فَادْعُوهُ بِهَا)

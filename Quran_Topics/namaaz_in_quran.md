@@ -76,9 +76,9 @@
 ***
 
 #### [Broz Jummah (Friday) Ki Khaas Ibadat | SSA Shah](https://www.youtube.com/watch?v=Wh3ZGSAgOkE)
-* Yeah Namaz bohot Fazilat wali hai...Ilm and Qurbat
+* Yeah Namaz bohot Fazilat wali hai...Ilm-and-Qurbat
 * __Allah-kay beyhaad-QAREEB ho-jaata-hai__
-* __Duaa are acccepted after this Namaz__
+* __Duas are ACCEPTED after this Namaz__
 * I kept asking for only one thing:
   * __Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh__
 
@@ -86,16 +86,16 @@
 
 #### [Baroz Itwar (Sunday) Ki Khaas-Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
 * __Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai__
-* Insaan-kay dil -ay dunya-ki-mohabbat nikalnay lagti-hai
+* Insaan-kay dil-say dunya-ki-mohabbat nikalnay lagti-hai
 * Rabb-par-Taqwa bharnay lagta-hai
-* Bala-ka-bharoosa paidao-hota-hai iss-say Rabb-Tallah-par
+* Bala-ka-BHAROOSA paidao-hota-hai iss-say Rabb-Tallah-par
 * Wasail-say-hi bay-nayaz ho-jaata-hai
-* Allah-Tallah kay qareeb ho-jaata-hai
+* Allah-Tallah kay QAREEB ho-jaata-hai
 
 ***
 
 #### [Friday Aur Sunday Kay 2-Nawafil ki Fazeelat | SSA Shah](https://www.youtube.com/watch?v=DNtEZrTlys4)
-* Duaa: __Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh__
+* __Ah Allah, Tu mujhay iss-jahan-mayn-bhi aur-aglay-jahan-may-bhi apni-pasand-ki bethareen-zindagi ataa-farmay-deh__
 
 ***
 

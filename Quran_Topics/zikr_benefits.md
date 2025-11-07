@@ -57,7 +57,7 @@
 * Attitudes, Behavior, Temperament, Moral, Genes Change (Genetic Problems), All-issues
 * __Under Debt__: `Ya Zuljalal Wal Ikram`
 * ...
-* Don't leave Zikr ever...All problems will be solved! 
+* __Don't leave Zikr ever...All problems will be solved!__
 
 ***
 

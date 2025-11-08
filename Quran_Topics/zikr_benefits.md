@@ -74,16 +74,15 @@
 ***
 
 ### Hadith
-* [Abu Ad-Darda [may Allah be pleased with him] narrated that : the Prophet said: “Should I not inform you of the best of your deed, and the purest of them with your Master, and the highest of them in your ranks, and what is better for you than spending gold and silver, and better for you than meeting your enemy and striking their necks, and they strike your necks?” They said: “Of course.” He said, “The remembrance of Allah [Most High].” [Then] Mu’adh bin Jabal [may Allah be pleased with him] said: “There is nothing that brings more salvation from the punishment of Allah than the remembrance of Allah.”](https://sunnah.com/tirmidhi:3377) -- Jami` at-Tirmidhi 3377
+* [Abu Ad-Darda [may Allah be pleased with him] narrated that : the Prophet said: “Should I not inform you of the best of your deed, and the purest of them with your Master, and the highest of them in your ranks, and what is better for you than spending gold and silver, and better for you than meeting your enemy and striking their necks, and they strike your necks?” They said: “Of course.” He said, “The remembrance of Allah [Most High].” [Then] Mu’adh bin Jabal [may Allah be pleased with him] said: “There is nothing that brings more salvation from the punishment-of-Allah than the remembrance-of-Allah.”](https://sunnah.com/tirmidhi:3377) -- Jami` at-Tirmidhi 3377
 
 ***
 
-* __Surah Al-Baqarah 2/152 (Remember me...Be Thankful...)__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ وَٱشْكُرُوا۟ لِى وَلَا تَكْفُرُونِ ١٥٢](https://quranwbw.com/2/152)
+* __Surah Al-Baqarah 2/152 (Remember me...Be Thankful...)__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ وَٱشْكُرُوا۟ لِى وَلَا تَكْفُرُونِ ١٥٢](https://quran.com/2/152)
 
 ***
 
-#### Zikr Standing, Sitting, or Lying-down
-* __Surah Ali 'Imran 3/191__: [˹They are˺ those who remember Allah while standing, sitting, and lying on their sides, and reflect on the creation of the heavens and the earth ˹and pray˺, “Our Lord! You have not created ˹all of˺ this without purpose. Glory be to You! Protect us from the torment of the Fire.](https://quranwbw.com/3/191)
+* __Surah 4/103 (Zikr Standing, Sitting, or Lying-down)__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quranwbw.com/4/103)
 
 ***
 

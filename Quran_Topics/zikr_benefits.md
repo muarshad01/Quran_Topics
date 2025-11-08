@@ -5,6 +5,14 @@
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png" width="400" height="400" />
 
 ***
+* Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
+* Hikmat Momim-ki gum-shuda-mataa hai, chahay Munafiq say-bhee-milay lay-loo. -- Hazrat Ali RA
+* Insaan Zabaan-kay-parday mayn chupa-hai. -- Hazrat Ali RA
+* __Don't leave Zir ever...All problems will be solved!__ -- Irfan-ul-Haq
+* Tasbeeh walay BRAVE hotay hayn. -- Prof. ARA
+* `SECRET`: No body can fight that person because Allah SWT takes care of his ememies-:) -- Prof. ARA
+
+***
 
 #### [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
 * Qalb-ki-parwarish
@@ -41,35 +49,38 @@
 ***
 
 #### Zikr (وَلِلَّهِ الْأَسْمَاءُ الْحُسْنَىٰ فَادْعُوهُ بِهَا)
-* Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
-* __Surah Al-Araaf 7/180 (Most Beautiful Names)__: [Allah has the Most Beautiful Names. So call upon Him by them, and keep away from those who abuse His Names. They will be punished for what they used to do.](https://quranwbw.com/7/180)
+* __Surah Al-Araaf 7/180 (Most Beautiful Names)__: [وَلِلَّهِ ٱلْأَسْمَآءُ ٱلْحُسْنَىٰ فَٱدْعُوهُ بِهَا ۖ وَذَرُوا۟ ٱلَّذِينَ يُلْحِدُونَ فِىٓ أَسْمَـٰٓئِهِۦ ۚ سَيُجْزَوْنَ مَا كَانُوا۟ يَعْمَلُونَ](https://quran.com/7/180)
 
-* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
+* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quranwbw.com/4/103)
 
 ***
 
 #### [Importance of Zikr | Baba Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
-* __Surah Yunus 37/143-144 (Nooh AS: Importance of Zikr)__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
-* __Surah Al-Isra [The night journey] 17/82__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
+* __Surah Saaffaat 37/143-144 (Nooh AS: Importance of Zikr)__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ ١٤٣...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ ١٤٤](https://quran.com/37/143-144)
+* __Surah Al-Isra 17/82__: [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا](https://quran.com/17/82)
 
 ***
 
 #### [Zikar Ky Zindgi-Pr-Asaraat | Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
-* Physical, Psychological, Economic, Social, Moral, ...
+1. Physical
+2. Psychological
+3. Economical
+4. Social
+5. Moral
 * Attitudes, Behavior, Temperament, Moral, Genes Change (Genetic Problems), All-issues
-* __Under Debt__: `Ya Zuljalal Wal Ikram`
+* __Under Debt__: `Ya-Zuljalal Wal-Ikram`
 * ...
-* __Don't leave Zikr ever...All problems will be solved!__
+* __Don't leave Zir ever...All problems will be solved!__
 
 ***
 
 #### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
-* https://quranwbw.com/2/200 (فَاذْكُرُوا اللَّهَ كَذِكْرِكُمْ آبَاءَكُمْ أَوْ أَشَدَّ ذِكْرًا)
-* __Surah Anbiyaa 21/87-88__: [Then in the ˹veils of˺ darkness2 he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”](https://quranwbw.com/21/87-88)
-* __Surah Saaffaat 37/143-144__: [(143) Had he not ˹constantly˺ glorified ˹Allah˺, (144) he would have certainly remained in its belly until the Day of Resurrection.](https://quranwbw.com/37/143-144)
+* __Surah 2/200__: [فَإِذَا قَضَيْتُم مَّنَـٰسِكَكُمْ فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ فَمِنَ ٱلنَّاسِ مَن يَقُولُ رَبَّنَآ ءَاتِنَا فِى ٱلدُّنْيَا وَمَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ](https://quran.com/2/200)
+* __Surah Anbiyaa 21/87-88__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87-88)
+* __Surah Saaffaat 37/143-144 (Nooh AS: Importance of Zikr)__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ ١٤٣...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ ١٤٤](https://quran.com/37/143-144)
 * Friend-of-Friend (FoF)
 * Tasbeeh walay BRAVE hotay hayn.
-* `SECRET`: No body can fight that person because Allah SWT takes care of ememies-:)
+* `SECRET`: No body can fight that person because Allah SWT takes care of his ememies-:)
 
 ***
 
@@ -159,8 +170,7 @@
 
 ***
 
-### Devil as a Close Associate
-* __Surah Az-Zukhruf [Ornaments of Gold] 43/36-38__: [(36) And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate, (37) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (38) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/36-38)
+* __Surah Az-Zukhruf 43/36-38 (Devil as a Close Associate)__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ ٣٦...وَإِنَّهُمْ لَيَصُدُّونَهُمْ عَنِ ٱلسَّبِيلِ وَيَحْسَبُونَ أَنَّهُم مُّهْتَدُونَ ٣٧](https://quran.com/43/36-38)
 
 * __Surah Az-Zukhruf 43/44__: [وَإِنَّهُۥ لَذِكْرٌۭ لَّكَ وَلِقَوْمِكَ ۖ وَسَوْفَ تُسْـَٔلُونَ](https://quran.com/43/44)
 
@@ -202,7 +212,6 @@
 * __Surah Fatah 48/9 (Morning and Evening)__: [لِّتُؤْمِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ وَتُسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quran.com/48/9)
 
 * __Surah at-Toor 52/48 (When you Rise)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ فَإِنَّكَ بِأَعْيُنِنَا ۖ وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ](https://quran.com/52/48)
-
 
 * __Surah Al-Munafiqun 63/9 (Warning: Wealth & Children)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تُلْهِكُمْ أَمْوَٰلُكُمْ وَلَآ أَوْلَـٰدُكُمْ عَن ذِكْرِ ٱللَّهِ ۚ وَمَن يَفْعَلْ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ ٩](https://quran.com/63/9)
 

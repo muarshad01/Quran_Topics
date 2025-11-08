@@ -112,23 +112,23 @@
 
 ***
 
-* __Surah Al-Hijr [The Rock] 15/ (We'll protect it)9__: [It is certainly We Who have revealed the Reminder, and it is certainly We Who will preserve it.](https://quranwbw.com/15/9)
+* __Surah Al-Hijr 15/ (We'll protect it)9__: [إِنَّا نَحْنُ نَزَّلْنَا ٱلذِّكْرَ وَإِنَّا لَهُۥ لَحَـٰفِظُونَ](https://quran.com/15/9)
 
 ***
 
-* __Surah Al-Isra [The Night Journey] 17/82 (Shifa and Rehmat)__: [We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.](https://quranwbw.com/17/82)
+* __Surah Al-Isra 17/82 (Shifa and Rehmat)__: [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا](https://quran.com/17/82)
 
 ***
 
-* __Surah Taha 20/14__: [‘It is truly I. I am Allah! There is no god ˹worthy of worship˺ except Me. So worship Me ˹alone˺, and establish prayer for My remembrance.](https://quranwbw.com/20/14)
+* __Surah Taha 20/14__: [إِنَّنِىٓ أَنَا ٱللَّهُ لَآ إِلَـٰهَ إِلَّآ أَنَا۠ فَٱعْبُدْنِى وَأَقِمِ ٱلصَّلَوٰةَ لِذِكْرِىٓ](https://quran.com/20/14)
 
-* __Surah Taha 20/42 (Never falter in Remembering me)__: [Go forth, you and your brother, with My signs and never falter in remembering Me.](https://quranwbw.com/20#42)
+* __Surah Taha 20/42 (Never FALTER-in-Remembering-Me)__: [ٱذْهَبْ أَنتَ وَأَخُوكَ بِـَٔايَـٰتِى وَلَا تَنِيَا فِى ذِكْرِى](https://quran.com/20/42)
 
-* __Surah Taha 20/124 (Who turns away from my reminder...)__: [But whoever turns away from My Reminder will certainly have a miserable life,1 then We will raise them up blind on the Day of Judgment.”](https://quranwbw.com/20#124)
+* __Surah Taha 20/124 (Who turns-away from my reminder...)__: [وَمَنْ أَعْرَضَ عَن ذِكْرِى فَإِنَّ لَهُۥ مَعِيشَةًۭ ضَنكًۭا وَنَحْشُرُهُۥ يَوْمَ ٱلْقِيَـٰمَةِ أَعْمَىٰ](https://quran.com/20/124)
 
 ***
 
-* __Surah Al-Anbya 21/10__: We have surely revealed to you a Book, in which there is glory for you. Will you not then understand?https://quranwbw.com/21/10)
+* __Surah Al-Anbya 21/10__: [لَقَدْ أَنزَلْنَآ إِلَيْكُمْ كِتَـٰبًۭا فِيهِ ذِكْرُكُمْ ۖ أَفَلَا تَعْقِلُونَ](https://quran.com/21/10)
 
 ***
 
@@ -137,7 +137,7 @@
 
 ***
 
-* __Surah Ar-Room 30/17-18 (Evening [Maghrib, Isha] and Morning; Afternoon & Noon)__: [(17) So glorify Allah in the evening and in the morning—(18) all praise is for Him in the heavens and the earth—as well as in the afternoon, and at noon.1 ](https://quranwbw.com/30/17-18)
+* __Surah Ar-Room 30/17-18 (Evening [Maghrib, Isha] and Morning; Afternoon & Noon)__: [فَسُبْحَـٰنَ ٱللَّهِ حِينَ تُمْسُونَ وَحِينَ تُصْبِحُونَ ١٧...وَلَهُ ٱلْحَمْدُ فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَعَشِيًّۭا وَحِينَ تُظْهِرُونَ ١٨](https://quran.com/30/17-18)
 
 ***
 
@@ -196,6 +196,8 @@
 ## When and What Time?
 * __Surah Ale-i-Imran 3/41 (Zakaria AS: Morning and Evening)__:[قَالَ رَبِّ ٱجْعَل لِّىٓ ءَايَةًۭ ۖ قَالَ ءَايَتُكَ أَلَّا تُكَلِّمَ ٱلنَّاسَ ثَلَـٰثَةَ أَيَّامٍ إِلَّا رَمْزًۭا ۗ وَٱذْكُر رَّبَّكَ كَثِيرًۭا وَسَبِّحْ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quran.com/3/41)
 
+* __Surah Ar-Room 30/17-18 (Evening [Maghrib, Isha] and Morning; Afternoon & Noon)__: [فَسُبْحَـٰنَ ٱللَّهِ حِينَ تُمْسُونَ وَحِينَ تُصْبِحُونَ ١٧...وَلَهُ ٱلْحَمْدُ فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَعَشِيًّۭا وَحِينَ تُظْهِرُونَ ١٨](https://quran.com/30/17-18)
+ 
 * __Surah Al-Ahzab 33/42 (Morning and Evening)__: [وَسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quranwbw.com/33/42)
 
 * __Surah Fatah 48/9 (Morning and Evening)__: [لِّتُؤْمِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ وَتُسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quran.com/48/9)

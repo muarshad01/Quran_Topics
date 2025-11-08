@@ -87,8 +87,7 @@
 
 ***
 
-#### After prayers: Zikr Standing, Sitting, or Lying-down
-* __Surah 4/103__: [When the prayers are over, remember Allah—whether you are standing, sitting, or lying down. But when you are secure, establish regular prayers. Indeed, performing prayers is a duty on the believers at the appointed times.](https://quranwbw.com/4/103)
+* __Surah 4/103 (Zikr Standing, Sitting, or Lying-down)__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quranwbw.com/4/103)
 
 ***
 
@@ -100,11 +99,11 @@
 
 ***
 
-* __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quranwbw.com/12/42)
+* __Surah Yusuf 12/42__: [وَقَالَ لِلَّذِى ظَنَّ أَنَّهُۥ نَاجٍۢ مِّنْهُمَا ٱذْكُرْنِى عِندَ رَبِّكَ فَأَنسَىٰهُ ٱلشَّيْطَـٰنُ ذِكْرَ رَبِّهِۦ فَلَبِثَ فِى ٱلسِّجْنِ بِضْعَ سِنِينَ](https://quran.com/12/42)
 
 ***
 
-* __Surah Ar-Rad [The Thunder] 13/28 (Hearts find Comfort)__: [those who believe and whose hearts find comfort in the remembrance of Allah. Surely in the remembrance of Allah do hearts find comfort.](https://quranwbw.com/en/13/28)
+* __Surah Ar-Rad 13/28 (Hearts Comfort)__: [ٱلَّذِينَ ءَامَنُوا۟ وَتَطْمَئِنُّ قُلُوبُهُم بِذِكْرِ ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/en/13/28)
 
 ***
 

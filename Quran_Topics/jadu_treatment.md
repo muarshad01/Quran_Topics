@@ -295,6 +295,12 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 <!--
+#### [How had done Jadu, Shaadi, Karobar | Pir Azmat Nawaz](https://www.youtube.com/shorts/VqdcvVmNkKo)
+* __Ya Khabeeru__ (100-time to avoid Waswas-in-Namaz)
+* 812-time for 7 --days after Ishaa (for Shaadi, Karobar)
+
+*** 
+
 #### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
 -->
 

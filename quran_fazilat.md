@@ -62,8 +62,6 @@
 * __Surah Al-Insan 76/29__: [إِنَّ هَـٰذِهِۦ تَذْكِرَةٌۭ ۖ فَمَن شَآءَ ٱتَّخَذَ إِلَىٰ رَبِّهِۦ سَبِيلًۭا](https://quran.com/76/29)
 
 ***
-
-***
 #### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)
 * Recite so loud that you can hear it yourself.
 * During recitation-of-Quran see Zirat-e-Kabba 

@@ -1,4 +1,4 @@
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png" width="400" height="400" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png" width="500" height="500" />
 
 ***
 

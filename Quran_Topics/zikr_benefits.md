@@ -107,8 +107,8 @@
 
 ***
 
-* __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quranwbw.com/18/28)
-* __Surah Al-Kahf 18/101__: [those who turned a blind eye to My Reminder1 and could not stand listening ˹to it˺.](https://quranwbw.com/18/101)
+* __Surah Al-Kahf 18/28__: [وَٱصْبِرْ نَفْسَكَ مَعَ ٱلَّذِينَ يَدْعُونَ رَبَّهُم بِٱلْغَدَوٰةِ وَٱلْعَشِىِّ يُرِيدُونَ وَجْهَهُۥ ۖ وَلَا تَعْدُ عَيْنَاكَ عَنْهُمْ تُرِيدُ زِينَةَ ٱلْحَيَوٰةِ ٱلدُّنْيَا ۖ وَلَا تُطِعْ مَنْ أَغْفَلْنَا قَلْبَهُۥ عَن ذِكْرِنَا وَٱتَّبَعَ هَوَىٰهُ وَكَانَ أَمْرُهُۥ فُرُطًۭا ٢٨](https://quran.com/18/28)
+* __Surah Al-Kahf 18/101__: [ٱلَّذِينَ كَانَتْ أَعْيُنُهُمْ فِى غِطَآءٍ عَن ذِكْرِى وَكَانُوا۟ لَا يَسْتَطِيعُونَ سَمْعًا](https://quran.com/18/101)
 
 ***
 
@@ -163,7 +163,7 @@
 ### Devil as a Close Associate
 * __Surah Az-Zukhruf [Ornaments of Gold] 43/36-38__: [(36) And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate, (37) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (38) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/36-38)
 
-* __Surah Az-Zukhruf 43/44__: [Surely this ˹Quran˺ is a glory for you and your people. And you will ˹all˺ be questioned ˹about it˺.](https://quranwbw.com/43/44)
+* __Surah Az-Zukhruf 43/44__: [وَإِنَّهُۥ لَذِكْرٌۭ لَّكَ وَلِقَوْمِكَ ۖ وَسَوْفَ تُسْـَٔلُونَ](https://quran.com/43/44)
 
 ***
 

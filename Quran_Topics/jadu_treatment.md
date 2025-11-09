@@ -269,6 +269,10 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+#### [How Does Magic Happen? How to Break it? | جادو کا توڑ | Wasif Ali Wasif](https://www.youtube.com/watch?v=H_Kb6vaetQI)
+
+***
+
 ## Sahil Adeem
 
 #### [His 3 Sons Di*d… The Reason? Black Magic | Sahil Adeem](https://www.youtube.com/watch?v=dZjMoPGUyj4)

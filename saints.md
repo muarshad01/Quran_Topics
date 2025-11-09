@@ -228,6 +228,15 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 *** 
 
+### [Hazrat Baba Farid Ganj shakar ka khandani tauraf](https://www.youtube.com/watch?v=UhtPUqvTTxQ)
+* Name: Masood
+* Laqb: Ganjshakar
+* Laqb: Zuhd-ul-Anbia
+* 12-13 Century
+* If talab-is-sadiq and johar-is-qabil
+
+***
+
 ### [Mazar Mubarak Hazrat Fatima...Imam Hassan...Imam Zain Ul Abadein....Imam Baqir](https://www.youtube.com/shorts/VP17EaFegs0)
 
 * https://www.youtube.com/shorts/GdvWMbYDRT8

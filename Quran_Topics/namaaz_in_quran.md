@@ -6,6 +6,10 @@
 
 ***
 
+#### [ Namaz Mein Haath Uthana | SSA Shah](https://www.youtube.com/shorts/UCKWkERKgCg)
+
+***
+
 #### [Bari Hajat Kayley Chota Sa Amal -- (Salat al-Hajjat) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=dPgFJ-q7HBo)
 * __Offer 2-rakat Salat-e-Hajat (21 days regularly)__
 * First-rakat recite __Surah Al-Kaifroon__

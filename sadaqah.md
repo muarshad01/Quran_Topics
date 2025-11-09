@@ -7,10 +7,6 @@
 
 ***
 
-#### [Charity Prevents Evil | What If the Problems are not Solved after Giving Charity | Irfan-ul-Haq](https://www.youtube.com/watch?v=PGQiXyGCOCg)
-
-***
-
 #### [Sadqa Bala Ko Kaise Rokta Hai? | Hifazati Shield Ka Raaz Janiye](https://www.youtube.com/watch?v=myjh60SSh1U)
 * Allah SWT say tijarat
 * Sunday - Yellow things

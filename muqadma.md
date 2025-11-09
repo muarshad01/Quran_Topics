@@ -2,6 +2,10 @@
 
 ***
 
+#### [Dar Ko Kaise Door Karein? | Dr Isran](https://www.youtube.com/shorts/Mta-hRZQch8)
+
+***
+
 * __Sultan-e-Naseer Ayat__
 
 ***

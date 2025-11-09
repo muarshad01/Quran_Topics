@@ -1,3 +1,16 @@
+#### [Saqda Raad-e-Bala Hai | Agar Sadqe ke Bawajood Masla Hal Na Ho Roh Kya Kiya Jaye? | Irfan-ul-Haq](https://www.youtube.com/watch?v=TJ6tGQuhm88)
+* Keep reciting duas...
+* ALL CURE is in duaas...
+* Tauz
+* Awais Qarni...(Lesson: Merey Muqarab bandoan say Duaa karwatay-rehna...)
+* Duaaian shatani-quwatoon-kay-rastay-ka sabb-say-bara phathar-hooti-hayn
+
+***
+
+#### [Charity Prevents Evil | What If the Problems are not Solved after Giving Charity | Irfan-ul-Haq](https://www.youtube.com/watch?v=PGQiXyGCOCg)
+
+***
+
 #### [Sadqa Bala Ko Kaise Rokta Hai? | Hifazati Shield Ka Raaz Janiye](https://www.youtube.com/watch?v=myjh60SSh1U)
 * Allah SWT say tijarat
 * Sunday - Yellow things
@@ -8,7 +21,6 @@
 * Friday - Sweet things. Venus day
 * Saturday - Black things
   
-
 ***
 
 #### [The True Essence of Sadaqah | صدقہ کی حقیقت کیا ہے؟](https://www.youtube.com/watch?v=0bQBMSOAWhA)
@@ -17,10 +29,6 @@
 * __Iss say musaibatyn-aur-balayan doar hooti-hayn__
 * __Ghurbat-aur-Musibat ka muqabla Sadqah-aur-khairaat say karo - Hazrat Ali RA__
 * Kya App SAW ka Sadqah diya jaa sakta hai?
-
-***
-
-#### [Charity Prevents Evil| What If the Problems are not Solved Sfter Giving Charity | Irfan-ul-Haq](https://www.youtube.com/watch?v=PGQiXyGCOCg)
 
 ***
 

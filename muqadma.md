@@ -2,6 +2,10 @@
 
 ***
 
+* __Surah 17/80__: [وَقُل رَّبِّ أَدْخِلْنِى مُدْخَلَ صِدْقٍۢ وَأَخْرِجْنِى مُخْرَجَ صِدْقٍۢ وَٱجْعَل لِّى مِن لَّدُنكَ سُلْطَـٰنًۭا نَّصِيرًۭا](https://quran.com/17/80)
+
+***
+
 #### [Dar Ko Kaise Door Karein? | Dr Isran](https://www.youtube.com/shorts/Mta-hRZQch8)
 
 ***

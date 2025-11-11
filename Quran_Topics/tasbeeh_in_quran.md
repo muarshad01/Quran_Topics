@@ -1,7 +1,7 @@
 #### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
 * Woh Musalman aqalmand-nahi-hai, joo-Allah-Ko uska-wadaa yaad-nahi-dilata ([كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54))
 * Woh Musalman aqalmand nahi hai, joo-Satan-Ko doge-nahi deh-sakta
-* __Hadith: Afzal Zikr La-ilaha-illAllah hai aur afzal-dua Alhamdulillah hai.__ ✦ Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
+* __Hadith: Afzal Zikr La-ilaha-illAllah hai aur afzal-dua Alhamd-u-lillah hai.__ ✦ Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
 * __Darood-Sharif__: 1/3, 1/2, Only Darood..with do kafait!!!
 * Anxiety & Depression: __Ya-Salaamu & Ya-Momin__
 * __Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu__

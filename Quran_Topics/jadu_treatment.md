@@ -18,7 +18,7 @@
 * [Surah Baqarah 2/32 -- Istikhara: 11-time](https://quran.com/2/32)
 * [Surah Yunus 10/81 -- 11-time](https://quran.com/10/81)
 * [Surah Mominoon 23/115-118 -- 11-time](https://quran.com/23/115-118)
-* [Surah Rum 30/21](https://quran.com/30/21)
+* [Surah Rum 30/21 -- Marriage Husband/Wife](https://quran.com/30/21)
 * [Surah Hadid 57/1 -- Liver: 101-time](https://quran.com/57/1)
 * [Surah Talaq 65/2-3 -- (Rizq)](https://quran.com/65/2-3)
 * [Surah Tariq 86 -- (Sickness)](https://quran.com/86)

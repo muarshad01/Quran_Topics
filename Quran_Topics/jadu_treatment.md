@@ -11,6 +11,23 @@
 * __Dua__: [اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ][“O Allah, we make You our shield against them, and take refuge in You from their evils.”]
 
 ***
+
+#### [Surah Baqra Ki Ye Ayaat Parh Len Ap Ke Saray Maslay Hal Ho Jayen Ge | Faqeer Di Dua](https://www.youtube.com/watch?v=5dp2D-mOhy8)
+* [Surah Fatiha 1/5](https://quran.com/1/5)
+* [Surah Baqarah 2/285-286 -- 11-time](https://quran.com/2/285-286)
+* [Surah Baqarah 2/32 -- Istikhara: 11-time](https://quran.com/2/32)
+* [Surah Yunus 10/81 -- 11-time](https://quran.com/10/81)
+* [Surah Mominoon 23/115-118 -- 11-time](https://quran.com/23/115-118)
+* [Surah Rum 30/21](https://quran.com/30/21)
+* [Surah Hadid 57/1 -- Liver: 101-time](https://quran.com/57/1)
+* [Surah Talaq 65/2-3 -- (Rizq)](https://quran.com/65/2-3)
+* [Surah Tariq 86 -- (Sickness)](https://quran.com/86)
+* [Surah Shamas 91 -- (Sickness)](https://quran.com/91)
+
+* Khauf, Waswasa, Brain, Illusion - Weaken the Aura
+
+***
+
 * __Surah Ale-Imran 3/140 (وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ)__: [إِن يَمْسَسْكُمْ قَرْحٌۭ فَقَدْ مَسَّ ٱلْقَوْمَ قَرْحٌۭ مِّثْلُهُۥ ۚ وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ وَلِيَعْلَمَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَيَتَّخِذَ مِنكُمْ شُهَدَآءَ ۗ وَٱللَّهُ لَا يُحِبُّ ٱلظَّـٰلِمِينَ](https://quran.com/3/140)
 * __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ فَلَا كَاشِفَ لَهُۥٓ إِلَّا هُوَ ۖ وَإِن يُرِدْكَ بِخَيْرٍۢ فَلَا رَآدَّ لِفَضْلِهِۦ ۚ يُصِيبُ بِهِۦ مَن يَشَآءُ مِنْ عِبَادِهِۦ ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 

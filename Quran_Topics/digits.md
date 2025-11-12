@@ -347,14 +347,15 @@ https://quran.com/12/101
 
 
 ***
+#### [Mind Blowing Symmetry in Quran Pages! - The Miracle You’ll Hear for the First Time!](https://www.youtube.com/watch?v=2iiGZlyDOXk)
 
 | Occurance | Word |
 | --- | --- |
 | 365 | Days     |
 | 12  | Months   |
-| 88  | Angels   |
-| 88  | Satan    |
-| 77  | Paradise |
-| 77  | Hell     |
+| 24 | Jesus & Adam | 
+| 77  | Paradise & Hell |
+| 88  | Angels & Satan|
 
 ***
+

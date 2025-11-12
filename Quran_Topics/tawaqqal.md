@@ -14,7 +14,7 @@
 * Nuqsaan-o-Faidq sabb Rabb kay hukum-say-hai
 * "Inna Allaha ala-kulli-shayin Qadeer" (إِنَّ اللَّهَ عَلَىٰ كُلِّ شَيْءٍ قَدِيرٌ)
 * XXX
-* Apnay Rabb par andha-Yaqeen Karna-seekh-layn
+* Apnay Rabb par andha-YAQEEN Karna-seekh-layn
 
 ***
 

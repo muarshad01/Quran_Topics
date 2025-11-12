@@ -4,9 +4,12 @@
 ***
 
 ### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
-* If you want to acquire Ilm then first become obedient-with-everyone.
+* If you want to acquire Ilm then first become OBEDIENT-with-everyone.
 
 ***
+
+* __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
+
 ***
 
 Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH

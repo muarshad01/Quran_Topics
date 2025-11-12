@@ -8,15 +8,15 @@
 
 ***
 
-#### [Qur'an verses on shaitan](https://myislam.org/quran-verses/shaitan/)
+#### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
 
 ***
 
-#### [How-to-shield your-deeds from-Shaytan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
+#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
 
 ***
 
-#### [Shataan Can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
+#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
 
 ***
 
@@ -24,7 +24,7 @@
 
 ***
 
-#### [The laughter of devil and the answer of Allah SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
+#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
 
 ***
 

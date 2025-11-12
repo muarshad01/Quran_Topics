@@ -26,8 +26,8 @@
 ***
 
 #### [Allah Par Tawakal (Bharosa) | Irfan-ul-Haq](https://www.youtube.com/watch?v=yf7XXEmFzis)
-* Zikr, dua, nazr, guftagoo say, tuwajoo say...restore confidence on Allah
-* Umeed ko zinda kar-dena
+* Zikr, dua, nazr, guftagoo say, tuwajoo say...restore-confidence-on-Allah-SWT
+* Umeed-ko-zinda kar-dena
 * Umeed-and-Tawakkal are adjancet
 
 ***

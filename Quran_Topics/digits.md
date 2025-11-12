@@ -346,3 +346,15 @@ https://quran.com/12/101
 * [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)
 
 
+***
+
+| Occurance | Word |
+| --- | --- |
+| 365 | Days     |
+| 12  | Months   |
+| 88  | Angels   |
+| 88  | Satan    |
+| 77  | Paradise |
+| 77  | Hell     |
+
+***

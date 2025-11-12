@@ -8,7 +8,7 @@
 
 ***
 
-#### [How to strengthen your heart in tough times?](https://www.youtube.com/watch?v=4_mcKCtfklQ)
+#### [How to strengthen your heart in tough times? | SSA Shah](https://www.youtube.com/watch?v=4_mcKCtfklQ)
 * Raziq Rabb hai
 * Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
 * Nuqsaan-o-Faidq sabb Rabb kay hukum-say-hai

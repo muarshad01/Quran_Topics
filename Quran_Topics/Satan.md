@@ -315,3 +315,7 @@
 ***
 
 #### [Was IBLEES Really Commanded to Prostrate | ابلیس کو سجدے کا حکم نہیں ہوا ؟ | By Javed Ahmad Ghamidi](https://www.youtube.com/watch?v=2FnYTas1nnc)
+
+***
+
+#### [😱Shaitan Nafarman Kyun⁉️ | سب کچھ دیکھ کر بھی شیطان نے انکار کیوں کیا؟ | Javed Ahmed Ghamidi](https://www.youtube.com/watch?v=5MaVzD678cc)

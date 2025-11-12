@@ -43,8 +43,10 @@ And so are Badr and Hunayn in the battle of existence.
  * __Surah An-Nalh 16/127 (Don't be in distress)__: [Be patient ˹O Prophet˺, for your patience is only with Allah’s help. Do not grieve over those ˹who disbelieve˺, nor be distressed by their schemes.](https://quranwbw.com/16/127)
 
 * __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quranwbw.com/18/28)
-
+ 
 * __Surah Al-Kahf 18/68__: [And how can you be patient with what is beyond your ˹realm of˺ knowledge?”](https://quranwbw.com/18/68)
+
+* __Surah Al-Kahf 18/78 (Impatient)__: [قَالَ هَـٰذَا فِرَاقُ بَيْنِى وَبَيْنِكَ ۚ سَأُنَبِّئُكَ بِتَأْوِيلِ مَا لَمْ تَسْتَطِع عَّلَيْهِ صَبْرًا](https://quran.com/18/78)
 
 * __Surah An-Naml [Ant] 27/19 (King Solomon...Thankfulness)__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
 
@@ -62,6 +64,8 @@ And so are Badr and Hunayn in the battle of existence.
     * He didn't waited for Allah SWT order...(He left the city...)
 
 * __Surah Al-Qalam [Nun] 68/51-52__: [(51) The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” (52) But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+
+* __Surah Al-Maarij 70/19 (Impatient)__: [۞ إِنَّ ٱلْإِنسَـٰنَ خُلِقَ هَلُوعًا](https://quran.com/70/19)
 
 * __Surah Al-Asr 103/3 (Urge/Enjoin Sabr)__: [except those who have faith, do good, and urge each other to the truth, and urge each other to perseverance.](https://quranwbw.com/103/3)
 
@@ -103,6 +107,8 @@ And so are Badr and Hunayn in the battle of existence.
 ***
 
 * __Surah 6/33__: [قَدْ نَعْلَمُ إِنَّهُۥ لَيَحْزُنُكَ ٱلَّذِى يَقُولُونَ ۖ فَإِنَّهُمْ لَا يُكَذِّبُونَكَ وَلَـٰكِنَّ ٱلظَّـٰلِمِينَ بِـَٔايَـٰتِ ٱللَّهِ يَجْحَدُونَ](https://quran.com/6/33)
+
+***
 
 <!--
 ## Sumayyah (Wife; Kaneez), Yasir (Husband), Ammar (Son)

@@ -5,8 +5,7 @@
 * __Surah 27/19__: [وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ ١٩](https://quran.com/27/19)
 * __Surah 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ ٢٧...ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ ٢٨...فَٱدْخُلِى فِى عِبَـٰدِى ٢٩...وَٱدْخُلِى جَنَّتِى ٣٠](https://quran.com/89/27-30)
 
-
-
+***
 
 #### [(29) Chapter: The invocation of the Prophet (saws) "O Allah! The Highest Companion"](https://sunnah.com/bukhari:6348)-- Sahih al-Bukhari 6348
 

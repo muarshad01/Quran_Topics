@@ -313,3 +313,5 @@
 #### [039 | Ghair Allah Ko Sajda علامہ طالب جوہری۔](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
 
 ***
+
+#### [Was IBLEES Really Commanded to Prostrate | ابلیس کو سجدے کا حکم نہیں ہوا ؟ | By Javed Ahmad Ghamidi](https://www.youtube.com/watch?v=2FnYTas1nnc)

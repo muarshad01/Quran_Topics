@@ -19,9 +19,12 @@
 #### [Impact of Tasbeeh on Brain | Prof ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 * It travels through time, blood, genetic-length of a human-being
 * From tongue it moves to your mind...from mind to heart...from heart to every drop-of-a-blood
-* Even if you're sleeping your Tasbeeh remains contiue
-* __Hadith__: If a person sleep while doing Tasbeeh then Malika (Angels) complete his Tasbeeh. He gets complete reward according to his intention.
-* It changes your character and behavior
+* Even if you're sleeping your Tasbeeh remains-contiue
+* __Hadith__: If a person sleeps while doing Tasbeeh then Malika (Angels) make it a must to complete his Tasbeeh. He gets complete reward according to his intention.
+* Rememberance-of-Allah, Allah works of that particular-self corrective methods
+* Nothing changes your fundamental habits (Fitrat) except Rememberance-of-Allah
+* It changes your character-and-behavior
+* Transforms you Jibilli-Aadat to Aqli-aadat.
 
 ***
 

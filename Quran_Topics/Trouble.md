@@ -20,11 +20,11 @@
 ***
 
 #### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
-* __Surah 65/2__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا ٢](https://quran.com/65/2)
-* __Surah 65/3__: [فَإِذَا بَلَغْنَ أَجَلَهُنَّ فَأَمْسِكُوهُنَّ بِمَعْرُوفٍ أَوْ فَارِقُوهُنَّ بِمَعْرُوفٍۢ وَأَشْهِدُوا۟ ذَوَىْ عَدْلٍۢ مِّنكُمْ وَأَقِيمُوا۟ ٱلشَّهَـٰدَةَ لِلَّهِ ۚ ذَٰلِكُمْ يُوعَظُ بِهِۦ مَن كَانَ يُؤْمِنُ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۚ وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا ٢ وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
-* __Surah 9/40__: [لِصَـٰحِبِهِۦ لَا تَحْزَنْ إِنَّ ٱللَّهَ مَعَنَا ۖ](https://quran.com/9/40)
+* __Surah 65/2__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا](https://quran.com/65/2)
+* __Surah 65/3__: [وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
+* __Surah 9/40__: [ لَا تَحْزَنْ إِنَّ ٱللَّهَ مَعَنَا ۖ](https://quran.com/9/40)
 * Returned empty-handed from Taif
-* Allah SWT open doors of Madina
+* Allah SWT opened doors-of-Madina
 
 ***
 
@@ -38,14 +38,14 @@
 
 ***
 
-#### [Remember Allah In Hard Time... | Professor Ahmed Rafique Akhtar](https://www.youtube.com/watch?v=qpV8dowbTjE)
+#### [Remember Allah In Hard Time... | Prof ARA](https://www.youtube.com/watch?v=qpV8dowbTjE)
 * __Surah 3/140__: [وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ](https://quran.com/3/140)
 * __Surah 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
 * __Surah 11/56__: [مَّا مِن دَآبَّةٍ إِلَّا هُوَ ءَاخِذٌۢ بِنَاصِيَتِهَآ ۚ](https://quran.com/11/56)
 
 ***
 
-#### [How to Deal with bad times in Life | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=ulL2Kxbij90)
+#### [How to Deal with bad times in Life | Prof ARA](https://www.youtube.com/watch?v=ulL2Kxbij90)
 * Allah uss-sakhs-ki zindagi barha-daita-hai, loag jis-kay-liye dua-kartay-hayn
 * Dua balaa-ko tall-ti-hai: 
   * 1 - Jo anay-wali-hai, ruk jaiti-hai

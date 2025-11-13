@@ -144,3 +144,7 @@
 
 * __Surah 89/15-20__: [فَأَمَّا ٱلْإِنسَـٰنُ إِذَا مَا ٱبْتَلَىٰهُ رَبُّهُۥ فَأَكْرَمَهُۥ وَنَعَّمَهُۥ فَيَقُولُ رَبِّىٓ أَكْرَمَنِ...وَأَمَّآ إِذَا مَا ٱبْتَلَىٰهُ فَقَدَرَ عَلَيْهِ رِزْقَهُۥ فَيَقُولُ رَبِّىٓ أَهَـٰنَنِ ١٦](https://quran.com/89/15-20)
 * [Surah Fajr 15-20](https://www.youtube.com/shorts/dza5PYeSwYI)
+
+***
+
+#### [Azmaeish and Musibat mein kiya parhna chaye ||آزمائش اور مصیبت || Prof ARA](https://www.youtube.com/watch?v=5cSVLuPoiEY)

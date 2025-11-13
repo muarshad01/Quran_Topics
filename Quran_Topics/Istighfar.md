@@ -47,7 +47,7 @@
 ***
 
 #### Hadith
-* [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than seventy times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
+* [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than 70 times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
 
 ***
 

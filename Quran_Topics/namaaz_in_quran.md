@@ -6,6 +6,10 @@
 
 ***
 
+#### [Namaz Tarjuma ke sath | Namaz With Urdu Translation | نماز کا طریقہ | نماز ترجمہ](https://www.youtube.com/watch?v=DgJ36yBDgQA)
+
+***
+
 #### [ Namaz Mein Haath Uthana | SSA Shah](https://www.youtube.com/shorts/UCKWkERKgCg)
 
 ***

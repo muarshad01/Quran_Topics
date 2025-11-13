@@ -1,3 +1,4 @@
+* __Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it.__ -- Prof. ARA
 * __Surah 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
 
 ***
@@ -10,10 +11,10 @@
 #### [Your Destiny Is Not Fixed | Allah Changes Fate When You Strive | Professor ARA](https://www.youtube.com/watch?v=F17jD9l1OMo)
 * Muhammad SAW dar-e-aqdas
 * Joo-bhi-tum Allah-SWT-say gumman-karoy-gay to-woh tumhayn luta-deah-gaa
-* Wisal-say sauq-ki-moat hoo-jaati-hai
+* Wisaal-say (Meetup) Sauq-ki-moat hoo-jaati-hai
 * Faraq...qurbat-say-nikala
 * __Surah 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
-* Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it.
+* __Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it.__
 * The greatest-injustice you do to yourself...
 
 ***

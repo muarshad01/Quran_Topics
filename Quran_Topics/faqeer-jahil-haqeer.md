@@ -12,11 +12,11 @@
 ***
 
 
-### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
+#### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
 
 ***
 
-### [Apni-Zaat Ka Irfan](https://www.youtube.com/shorts/lcy6z2eAF5c)
+#### [Apni-Zaat Ka Irfan](https://www.youtube.com/shorts/lcy6z2eAF5c)
 * Shah Hussain said, "Mayn-nahi sabb-Tuhi".
 * __Surah Faatir 35/10 (All Izzat)__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quranwbw.com/35/10)
 * __Surah Yaseen 36/77 (Haqeer)__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
@@ -30,7 +30,7 @@
 
 #### Faqeer (The Word `Naas`)
 * __Surah Faatir 35/15 (Faqeer)__: [۞ يَـٰٓأَيُّهَا ٱلنَّاسُ أَنتُمُ ٱلْفُقَرَآءُ إِلَى ٱللَّهِ ۖ وَٱللَّهُ هُوَ ٱلْغَنِىُّ ٱلْحَمِيدُ](https://quranwbw.com/35/15)
-* __Surah Muhammad 47/38__: [هَـٰٓأَنتُمْ هَـٰٓؤُلَآءِ تُدْعَوْنَ لِتُنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ فَمِنكُم مَّن يَبْخَلُ ۖ وَمَن يَبْخَلْ فَإِنَّمَا يَبْخَلُ عَن نَّفْسِهِۦ ۚ وَٱللَّهُ ٱلْغَنِىُّ وَأَنتُمُ ٱلْفُقَرَآءُ ۚ وَإِن تَتَوَلَّوْا۟ يَسْتَبْدِلْ قَوْمًا غَيْرَكُمْ ثُمَّ لَا يَكُونُوٓا۟ أَمْثَـٰلَكُم](https://quranwbw.com/47/38)
+* __Surah Muhammad 47/38__: [هَـٰٓأَنتُمْ هَـٰٓؤُلَآءِ تُدْعَوْنَ لِتُنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ فَمِنكُم مَّن يَبْخَلُ ۖ وَمَن يَبْخَلْ فَإِنَّمَا يَبْخَلُ عَن نَّفْسِهِۦ ۚ وَٱللَّهُ ٱلْغَنِىُّ وَأَنتُمُ ٱلْفُقَرَآءُ ۚ وَإِن تَتَوَلَّوْا۟ يَسْتَبْدِلْ قَوْمًا غَيْرَكُمْ ثُمَّ لَا يَكُونُوٓا۟ أَمْثَـٰلَكُم](https://quran.com/47/38)
 
 #### Haqeer
 * __Surah YaSeen 36/77__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
@@ -43,10 +43,16 @@
 ***
 
 #### [Murshid-aur-Mureed Ka Rishta | SSA Shah](https://www.youtube.com/watch?v=TvVxplhL4M0)
-* Baatni aankh
+* Baatni-aankh (Basarat)
 * Height of horse is 8 or 10 Haath
-* Murshid knows your spiritual condition
+* Murshid knows your spiritual-condition
 * What Ilm and in what quantity...should I give...
 * Sikhana aik-art-hai...
-* Seekhna bhi aik-art-hai (Fun hai woh pura!)...
+* __Seekhna bhi aik-art-hai (Fun hai woh pura!)...__
+
+***
+
+#### [Character That Makes a Leader | اچھے لیڈر کا کردار](https://www.youtube.com/watch?v=3KqK83y0DRU)
+* Faqeer umer-bhar apnay-naqais doar-karnay-mayn laga-rehay-gaa
+
 ***

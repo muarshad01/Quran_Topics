@@ -9,9 +9,7 @@
 
 ***
 
-***
-
-#### [Impact of Tasbeeh on brain | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=xe1N2rUs4TY)
+#### [Impact of Tasbeeh on brain | Prof ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 
 ***
 
@@ -22,7 +20,7 @@
 
 ***
 
-#### [The Real Purpose of Tasbeeh | SSAShah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
+#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 * Tasbeeh -> Concentration Span -> Ghor-o-Fikr -> Nuqta-hai-raaz ko hal karna seekh laitay hayn -> Qudrah of Allah SWT -> We meet Rabb.
   
 ***

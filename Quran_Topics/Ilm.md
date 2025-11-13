@@ -8,6 +8,10 @@
 
 ***
 
+#### [Manners of Sufi Path | فقیر کے در پر کیسے جانا چاہیے؟](https://www.youtube.com/watch?v=PYOG-wGkR-E)
+
+***
+
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
 
 ***

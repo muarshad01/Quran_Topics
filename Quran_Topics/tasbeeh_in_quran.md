@@ -79,8 +79,8 @@
 | Sabbaha (سَبَّحَ)     ||
 | Yusabbihu (يُسَبِّحُ)  | Doing and will keep doing |
 | Tusabbihu (تُسَبِّحُ)  | Past Tense|
-| Fa-sabbih (فَسَبِّحْ)  ||
-| Subhana (سُبْحَانَ)   | Surah Al-Isra|
+| Fa-sabbih (فَسَبِّحْ)  | So Glorigy |
+| Subhana (سُبْحَانَ)   | Exalted (Glory be to the One) Surah Al-Isra|
 
 ***
 

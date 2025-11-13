@@ -75,53 +75,55 @@
 
 | Word | Meaning| 
 |---|---|
-| Sabbih (سَبِّحْ)     | Surah Al-Alaa|
-| Sabbaha (سَبَّحَ)    ||
-| Yusabbihu (يُسَبِّحُ) | Doing and will keep doing |
-| Tusabbihu (تُسَبِّحُ) | Past Tense|
-| Fasabbih (فَسَبِّحْ)  ||
-| Subhana (سُبْحَانَ)  | Surah Al-Isra|
+| Sabbih (سَبِّحْ)      | Do - Surah Al-Alaa|
+| Sabbaha (سَبَّحَ)     ||
+| Yusabbihu (يُسَبِّحُ)  | Doing and will keep doing |
+| Tusabbihu (تُسَبِّحُ)  | Past Tense|
+| Fa-sabbih (فَسَبِّحْ)  ||
+| Subhana (سُبْحَانَ)   | Surah Al-Isra|
 
 ***
 
 #### 7 Surahs that begin with Tasbeeh: (Sabbaha, Subhana, Yusabbihu):
-* __Al-Isra 17/1 (Subhana (سُبْحَانَ))__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
+* __Al-Isra 17/1 (Subhana (سُبْحَانَ))__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
 
-* __Al-Hadid 57/1 (Sabbaha (سَبَّحَ) - Past tense)__: [Whatever is in the heavens and the earth glorifies Allah, for He is the Almighty, All-Wise.](https://quranwbw.com/57/1) 
-* __Al-Hashr 59/1 (Sabbaha (سَبَّحَ) - Past tense)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He is the Almighty, All-Wise.](https://quranwbw.com/59/1)  
-* __As-Saff 61/1 (Sabbaha (سَبَّحَ) - Past tense)__: [Whatever is in the heavens and whatever is on the earth glorifies Allah. For He ˹alone˺ is the Almighty, All-Wise.](https://quranwbw.com/61/1) 
+* __Al-Hadid 57/1 (Sabbaha (سَبَّحَ) - Past tense)__: [سَبَّحَ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/57/1) 
+* __Al-Hashr 59/1 (Sabbaha (سَبَّحَ) - Past tense)__: [سَبَّحَ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۖ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/59/1)  
+* __As-Saff 61/1 (Sabbaha (سَبَّحَ) - Past tense)__: [سَبَّحَ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۖ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/61/1) 
 
-* __Al-Jumuah 62/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise.](https://quranwbw.com/62/1)
-* __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah. The kingdom is His, and all praise is for Him. For He is Most Capable of everything.](https://quranwbw.com/64/1)
+* __Al-Jumuah 62/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ](https://quran.com/62/1)
+* __At-Taghabun 64/1 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۖ لَهُ ٱلْمُلْكُ وَلَهُ ٱلْحَمْدُ ۖ وَهُوَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌ](https://quran.com/64/1)
 
-* __Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [Glorify the Name of your Lord, the Most High,](https://quranwbw.com/87/1)
+* __Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [سَبِّحِ ٱسْمَ رَبِّكَ ٱلْأَعْلَى](https://quran.com/87/1)
 
 ***
+
 * __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [تُسَبِّحُ لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quran.com/17/44)
 
-* __Surah An Noor 24/41 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the birds as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
+* __Surah An Noor 24/41 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
 
-* __Surah Al-Waqiah 56/96 (Fasabbih (فَسَبِّحْ))__: [So glorify the Name of your Lord, the Greatest.](https://quran.com/56/96)
+* __Surah Al-Waqiah 56/96 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/56/96)
 
-* * __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quranwbw.com/110/3)
+* __Surah Al-Haaqqa 69/52 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/69/52)
 
-* __Surah Al-Haaqqa [The Reality] 69/52 (Fasabbih (فَسَبِّحْ))__: [So glorify the Name of your Lord, the Greatest.](https://quranwbw.com/69/52)
+* __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110/3)
+
 
 ***
 
-* __Surah Ar-Rad 13/13 (The Thunder: glorifies His praises)__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
+* __Surah Ar-Rad 13/13 (The Thunder: glorifies His praises)__: [وَيُسَبِّحُ ٱلرَّعْدُ بِحَمْدِهِۦ وَٱلْمَلَـٰٓئِكَةُ مِنْ خِيفَتِهِۦ وَيُرْسِلُ ٱلصَّوَٰعِقَ فَيُصِيبُ بِهَا مَن يَشَآءُ وَهُمْ يُجَـٰدِلُونَ فِى ٱللَّهِ وَهُوَ شَدِيدُ ٱلْمِحَالِ](https://quran.com/13/13)
   
-* __Surah As Saffat 37/166 (Angels: Constantly Glorigy Allah SWT)__: [And we are indeed the ones ˹constantly˺ glorifying ˹His praise˺.”](https://quranwbw.com/37#166)
-    * Habib Kya Tum nayn nahi dekha...?
-    * Nighe-e-Muhammad PBUH has seen the Tasbeeh of every particle of this Universe...
+* __Surah As-Saffat 37/166 (Angels: Constantly Glorigy Allah SWT)__: [وَإِنَّا لَنَحْنُ ٱلْمُسَبِّحُونَ](https://quran.com/37/166)
+  * Habib Kya Tum-nayn-nahi-dekhaa...?
+  * Nighe-e-Muhammad PBUH has seen the Tasbeeh of every-particle-of-this-Universe...
 
 ***
 
-* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
+* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quran.com/40/55)
 
 ***
 
-* __Surah 27/59-66__: [](https://quran.com/27/59-66)
+* __Surah 27/59-66__: [قُلِ ٱلْحَمْدُ لِلَّهِ وَسَلَـٰمٌ عَلَىٰ عِبَادِهِ ٱلَّذِينَ ٱصْطَفَىٰٓ ۗ ءَآللَّهُ خَيْرٌ أَمَّا يُشْرِكُونَ](https://quran.com/27/59-66)
 
 *** 
 

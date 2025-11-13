@@ -128,3 +128,13 @@
 *** 
 
 #### [3rd Kalma | Hicham Ilahi Zaheer ](https://www.youtube.com/shorts/bOsL9ecMlBg)
+* Darood-e-Ibrahi & Tasbeeh
+1. Subhan Allah (سُبْحَانَ الله)
+2. Wal-hamd-u-lillah (وَالْحَمْدُ لِلَّٰهِ)
+3. Wa la-ilaha-illallah (وَلَا إِلَٰهَ إِلَّا ٱللَّٰهُ)
+4. Allahu Akbar(ٱللَّٰهُ أَكْبَرُ)
+5. la-hawla wala-quwwata illa-billah (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ)
+6. "Astaghfirullah Rabbi(أَسْتَغْفِرُ اللهَ رَبِّي")
+7. Wa atubu ilaih"(وَأَتُوبُ إِلَيْهِ)
+
+***

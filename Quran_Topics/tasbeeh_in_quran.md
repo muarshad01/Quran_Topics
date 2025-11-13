@@ -31,7 +31,7 @@
 #### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
 1. Tasbeeh
 2. Concentration Span increases
-3. We do Ghor-o-Fikr
+3. We do Ghoar-o-Fikr
 4. Nuqta-hai-raaz ko hal-karna seekh-laitay-hayn
 5. Qurub-of-Allah SWT
 6. We meet Rabb.

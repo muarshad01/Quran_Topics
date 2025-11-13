@@ -3,7 +3,7 @@
 * Woh Musalman aqalmand nahi hai, joo-Satan-Ko doge-nahi deh-sakta
 * __Hadith: Afzal Zikr La-ilaha-illAllah hai aur afzal-dua Alhamd-u-lillah hai.__ ✦ Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
 * __Darood-Sharif__: 1/3, 1/2, Only Darood..with do kafait!!!
-* Anxiety & Depression: __Ya-Salaamu & Ya-Momin__
+* Anxiety & Depression: __Ya-Salaamu, Ya-Momin__
 * __Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu__
 * [Surah Al-Hashar Last 3-Ayats for Allah SWT Qurab](https://quran.com/59/22-24) -- Sheikh-Abdul-Qadir Jilani
 

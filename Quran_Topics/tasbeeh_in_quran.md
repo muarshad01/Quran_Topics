@@ -9,19 +9,29 @@
 
 ***
 
-#### [Impact of Tasbeeh on brain | Prof ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
-
-***
-
 #### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Professor ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
-* The best thing I give to my Bandoon is Salaam.
+* The best thing I've given to my Bandoan (Slaves) is Salaam (__Ya Salaamu__).
 * Zehan-ki har-disturbance ko doar-karta-hai
 * Zehni Sakoon
 
 ***
 
+#### [Impact of Tasbeeh on Brain | Prof ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
+* It travels through time, blood, genetic-length of a human-being
+* From tongue it moves to your mind...from mind to heart...from heart to every drop-of-a-blood
+* Even if you're sleeping your Tasbeeh remains contiue
+* __Hadith__: If a person sleep while doing Tasbeeh then Malika (Angels) complete his Tasbeeh. He gets complete reward according to his intention.
+* It changes your character and behavior
+
+***
+
 #### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
-* Tasbeeh -> Concentration Span -> Ghor-o-Fikr -> Nuqta-hai-raaz ko hal karna seekh laitay hayn -> Qudrah of Allah SWT -> We meet Rabb.
+1. Tasbeeh
+2. Concentration Span increases
+3. We do Ghor-o-Fikr
+4. Nuqta-hai-raaz ko hal-karna seekh-laitay-hayn
+5. Qurub-of-Allah SWT
+6. We meet Rabb.
   
 ***
 

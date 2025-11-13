@@ -3,8 +3,8 @@
 ***
 
 #### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
-* Make Rabb your friend
-* Offer two Rakat nafals, additional, after Isha, and afterwards tell all your worriesto Allah SWT.
+* Make Rabb your FRIEND
+* Offer two-Rakat-nafals, additional, after Isha, and afterwards tell-all-your-worries to Allah SWT.
 ***
 
 #### [Your Destiny Is Not Fixed | Allah Changes Fate When You Strive | Professor ARA](https://www.youtube.com/watch?v=F17jD9l1OMo)

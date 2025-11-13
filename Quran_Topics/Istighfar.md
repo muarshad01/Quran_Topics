@@ -44,7 +44,7 @@
 
 #### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/syed-ul-istifigar.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/syed-ul-istifigar.png" width="400" height="400" />
 
 ***
 

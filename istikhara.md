@@ -2,7 +2,7 @@
 
 ***
 
-#### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=BMpAgA2YbZY)
+#### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=K6BZ5fiVYNM)
 * He used to avoid public
 * Understanding Quran and DEEPLY THINKING
 * Ghoar-o-Fikr

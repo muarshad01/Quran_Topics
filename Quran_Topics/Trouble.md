@@ -79,14 +79,14 @@
   
 ***
 
-### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
+#### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
 * After tough time...you get a lot-of-Arooj.
 * All our duas-are-accumulated.
 * You get rewards together.
 
 ***
 
-### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
+#### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
 * Lean patch: Remember good times...
 * After lean patch...you get a lot-of-Arooj.
 * You do a lot-of-duas...ALL our duas-are-accumulated.

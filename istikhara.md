@@ -1,3 +1,4 @@
-#### [Khawaja Nizamuddin Auliya | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=BMpAgA2YbZY)
+#### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=BMpAgA2YbZY)
+* He used to avoid public
 
 ***

@@ -63,6 +63,10 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
+#### [ILM ki intahaa ka maqam | علم کی انتہا | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
+
+***
+
 #### [Sahib-e-Ilm Ki Pehchan Kya Hai? | صاحب علم کی پہچان کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
 
 ***
@@ -118,14 +122,6 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
-
-* __Surah 6/59__: [](https://quranwbw.com/6/59-60)
-* __Surah 62/2__: [](https://quranwbw.com/62/2)
-* __Surah 87/6__: [](https://quranwbw.com/87/6)
-
-***
-
 ### [The True Path to ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
 * Ilm ki Neharain = 81,000
 * 
@@ -134,13 +130,13 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 * Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
 
-***
+### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
 
-## [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
-## [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
-## [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
-## [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
-* https://www.youtube.com/shorts/0ynQ7Tqj_yU
+* __Surah 6/59__: [](https://quranwbw.com/6/59-60)
+* __Surah 62/2__: [](https://quranwbw.com/62/2)
+* __Surah 87/6__: [](https://quranwbw.com/87/6)
+
+***
 
 ***
 
@@ -185,7 +181,7 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 ***
 
 ### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
-* Five Question
+* Five Question:
 1. Your complete Life
 2. Especially your young age
 3. Where did you earn
@@ -194,7 +190,9 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-#### [Knowledge of Unseen, Gayb ka ilm | Professor ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
+## Prof ARA
+
+#### [Knowledge of Unseen, Gayb ka ilm | Prof ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
 
 ***
 
@@ -202,15 +200,27 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-#### [ALI (A S) ka ILM by Allama Talib HUSSAIN Johri 😱😱🔥](https://www.youtube.com/watch?v=TdKKgfM6NSE)
-
-***
-
-#### [ILM ki intahaa ka maqam | علم کی انتہا | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
-
-***
 
 #### [Ilm Mukammal Kb Hota Hay? | Dr Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
+
+***
+
+## Allama Talib Johri
+
+## [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
+
+***
+
+## [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
+
+***
+
+## [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
+
+***
+
+## [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
+* https://www.youtube.com/shorts/0ynQ7Tqj_yU
 
 ***
 
@@ -218,4 +228,10 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-#### [Tareekh Insan Jahalat Se Sucess Tak Ka Safar...!! | Allama Talib Hussain Johri](https://www.youtube.com/watch?v=f564z_64OBk)
+#### [Tareekh Insan Jahalat Se Sucess Tak Ka Safar...!! | Allama Talib Johri](https://www.youtube.com/watch?v=f564z_64OBk)
+
+***
+
+#### [ALI (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
+
+***

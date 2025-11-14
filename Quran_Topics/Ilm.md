@@ -8,30 +8,29 @@
 
 ***
 
-#### [Manners of Sufi Path | فقیر کے در پر کیسے جانا چاہیے؟](https://www.youtube.com/watch?v=PYOG-wGkR-E)
-
-***
-
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
 
 ***
 
-Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
+* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
+
+***
+
+#### [Manners of Sufi Path | فقیر کے در پر کیسے جانا چاہیے؟ | SSA Shah](https://www.youtube.com/watch?v=PYOG-wGkR-E)
 
 ***
 
 #### [Rab Tak Pohanchnay Ke Raastay | SSA Shah](https://www.youtube.com/watch?v=DoUvHcm28a8)
 * There are THREE ways to reach Allah SWT:
-1. Aqal, which is incomplete.
-2. Ilm
-3. Ishq
-* __Muqam-e-hairat__: Aqal daang rah-jai.
+1. AQAL, which is incomplete.
+2. ILM
+3. ISHQ
+* __Muqam-e-hairat__ mayn aqal dangh rah-jati.
 * __Alam-e-hairat__ mayn Insaan-ki-zaban banad hoo-jaati-hai.
 * __Ilm has also incomplete__: At some point it finishes, only __ISHQ__ has the capacity to help us get to meet Allah SWT
 * ISHQ say pehlay Mohabbat hai
 * Mohabbat mayn silah manga-nahi-jaata...
-* ISHQ mayn to Insaaan Rabb to Purakta-Jaata-hai, sirf iss umeed par,
-* Mera Rabb, kabhi-toh jawab-dee-gaa.
+* ISHQ mayn to Insaaan Rabb to Purakta-Jaata-hai, sirf iss umeed par, Mera Rabb, kabhi-toh jawab-dee-gaa.
 
 ***
 
@@ -130,14 +129,6 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 * Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
 
-### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
-
-* __Surah 6/59__: [](https://quranwbw.com/6/59-60)
-* __Surah 62/2__: [](https://quranwbw.com/62/2)
-* __Surah 87/6__: [](https://quranwbw.com/87/6)
-
-***
-
 ***
 
 ### Philosopher
@@ -180,15 +171,16 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
-* Five Question:
-1. Your complete Life
-2. Especially your young age
-3. Where did you earn
-4. Where did you spend
-5. How much did you acted up the Ilm you acquired
+## Irfan-ul-Haq
+
+#### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
+
+* __Surah 6/59__: [](https://quranwbw.com/6/59-60)
+* __Surah 62/2__: [](https://quranwbw.com/62/2)
+* __Surah 87/6__: [](https://quranwbw.com/87/6)
 
 ***
+
 
 ## Prof ARA
 
@@ -200,26 +192,21 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-
-#### [Ilm Mukammal Kb Hota Hay? | Dr Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
-
-***
-
 ## Allama Talib Johri
 
-## [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
+#### [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
 
 ***
 
-## [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
+#### [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
 
 ***
 
-## [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
+#### [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
 
 ***
 
-## [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
+#### [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
 * https://www.youtube.com/shorts/0ynQ7Tqj_yU
 
 ***
@@ -233,5 +220,23 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 ***
 
 #### [ALI (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
+
+***
+
+## Tahir-ul-Qadri
+
+#### [Ilm Mukammal Kb Hota Hay? | Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
+
+***
+
+## Israr Ahmed
+
+### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
+* Five Question:
+1. Your complete Life
+2. Especially your young age
+3. Where did you earn
+4. Where did you spend
+5. How much did you acted up the Ilm you acquired
 
 ***

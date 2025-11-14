@@ -1,22 +1,42 @@
-## Total Aloom for Insaan
-* 81,000
-
-***
-
-### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
-* If you want to acquire Ilm then first become OBEDIENT-with-everyone.
-
-***
-
+* __Surah Az-Zumar 39/9__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ](https://quran.com/39/9)
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
 
 ***
 
-* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
+### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
+* Ilm ki Neharain = 81,000
 
 ***
 
-#### [Manners of Sufi Path | فقیر کے در پر کیسے جانا چاہیے؟ | SSA Shah](https://www.youtube.com/watch?v=PYOG-wGkR-E)
+#### Aloom-e-Batni (Rohani Aloom) 
+* Total Nehers of Alooms are 118 (114 + 4).
+* Allah SWT has kept 4 with himself. Ilm-e-ghyab is part of them:
+1. Alm-e-ghybb Alqaa
+2. Alm-e-ghyab Ilhami
+3. Alm-e-ghyab Imtani
+4. Alm-e-ghyab Ataii
+
+* Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
+
+***
+
+### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
+* If you want to acquire Ilm then first become OBEDIENT-with-everyone. -- Ali RA
+* Ilm sun-nah say hasil-hota-hai aur bol-nay say zaya-ho-jata-hai.
+* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
+* Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
+* __Ilm-e-Ludni__: Tamaam-aloom ka ahataa-karta-hai
+* Shahibaan-e-Ilm-o-Baatin`,`Mardaan-e-Haq`
+  * Mehnat, Mushaqat, Koshish, Jadd-o-Jehad, Riazat, Mujahida, Mushahida is for Musilman.
+* Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
+
+#### Hadith
+* Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
+* Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith
+   
+***
+
+#### [Manners of Sufi Path | SSA Shah](https://www.youtube.com/watch?v=PYOG-wGkR-E)
 
 ***
 
@@ -38,80 +58,30 @@
 
 ***
 
-* [ | SSA Shah](https://www.facebook.com/photo.php?fbid=732537749630508&set=pb.100086228673334.-2207520000&type=3)
-* [ | SSA Shah](https://www.facebook.com/photo.php?fbid=780217181529231&set=pb.100086228673334.-2207520000&type=3)
-
-***
-
-#### [Why Allah Grants Knowledge to the Chosen? | علم کن کو نصیب ہوتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=w4UvN9ifGbk)
+#### [Why Allah Grants Knowledge to the Chosen? | SSA Shah](https://www.youtube.com/watch?v=w4UvN9ifGbk)
 * SOOCH bhi-mehdood, AQAL bhi-mehdood, ILM bhi-mehdood, Jiss ki Mohabbat-k-hadd bhi-mehdood
 * Allah SWT ILM ko bohot-aziz rakhta-hai; Usay ILM bohot pasand-hai
-* Jiss-say woh-razi hoo-gai...usay ilm-ataa-karay-gaa
+* __Jiss-say woh-razi hoo-gai...usay ilm-ataa-karay-gaa__
 * Ilm say WISDOM paida hoti-hai...Essence-of-Wisdom is Allah SWT Himself
-* __Khud-shanassi say Haqq-Shanassi__
+* __Khud-shanassai say Haqq-Shanassi__
 
 ***
 
-### [The World Is a Snake – Shah Shams Tabrizi's Wisdom | ’دنیا ایک سانپ ہے'](https://www.youtube.com/watch?v=ohPcpxp0OHY)
+#### [The World Is a Snake – Shah Shams Tabrizi's Wisdom | SSA Shah](https://www.youtube.com/watch?v=ohPcpxp0OHY)
 * "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
 * Rohani Ustad
 * Rohani Ustad gives you Ilm, which takes you close to Allah SWT.
 * Ilm jab milta hai...
 * Ilm jo-app-ko Rabb-Tallah kay qareeb lay-jai
-* Uss ilm ka hasool kitaboon say too mumkin nahi-hota
+* Uss ilm-ka-hasool kitaboon-say tuh mumkin nahi-hota
 
 ***
 
-#### [ILM ki intahaa ka maqam | علم کی انتہا | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
+#### [Ilm-ki-Intahaa ka-Maqam | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
 
 ***
 
-#### [Sahib-e-Ilm Ki Pehchan Kya Hai? | صاحب علم کی پہچان کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
-
-***
-
-#### [Naseeb aur Ataa mayn Faraq](https://www.youtube.com/shorts/MTrJr-N5_Pg)
-
-***
-
-#### [Ilm-e-Laduni (علم لدنّی۔)](https://www.youtube.com/watch?v=3E_W2NPqdys)
-* Ghor-o-Fiqr, Mushahida, Tajarbaat is important....
-* Ilm-e-Laduni is a seperate thing
-* Ilm-e-Laa-Dooni (Ilm in which no other is included)
-* Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
-* __Surah Kahf (Khizar AS) 18__: Deshaped the boat, Killed the boy, Build a wall ...
-
-***
-
-#### Aloom-e-Batni (Rohani Aloom) 
-* Total Nehers of Alooms are 118 (114 + 4).
-* Allah SWT has kept 4 with himself. Ilm-e-ghyab is part of them:
-1. Alm-e-ghybb Alqaa
-2. Alm-e-ghyab Ilhami
-3. Alm-e-ghyab Imtani
-4. Alm-e-ghyab Ataii
-  
-***
-
-* Ilm sun-nah say hasil-hota-hai aur bol-nay say zaya-ho-jata-hai.
-
-***
-
-* __Surah Az-Zumar 39/9__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ](https://quran.com/39/9)
-
-
-***
-
-## `Ilm-e-Ludni`
-* Tamaam-aloom ka ahataa-karta-hai
-* Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
-
-#### Hadith
-* Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
-* Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith
-   
-#### `Shahibaan-e-Ilm-o-Baatin`,`Mardaan-e-Haq`
-* Mehnat, Mushaqat, Koshish, Jadd-o-Jehad, Riazat, Mujahida, Mushahida is for Musilman.
+#### [Sahib-e-Ilm ki Pehchan Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
 
 ***
 
@@ -121,28 +91,20 @@
 
 ***
 
-### [The True Path to ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
-* Ilm ki Neharain = 81,000
-* 
-
-***
-
-* Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
-
-***
-
 ### Philosopher
 * Aristotle
 * Aflatoon (plato) Philosopher
-* Ibn Sina Philosopher and physician
-* Al-FarabiPhilosopher
+* Ibn Sina Philosopher and Physician
+* Al-Farabi Philosopher
 
-## Dimension of Ilm:
+## Dimensions of Ilm
 
 #### Materialistic World, One Approach, 
 * __Surah AN-Najm 53/10__: [This is the extent of their knowledge. Surely your Lord knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/53/30)
+
 #### non-Materialistic World, 2nd Approac,
 * ...
+
 #### Islam World:
 * __Surah Nahl 16/10-13__: [He is the One Who sends down rain from the sky, from which you drink and by which plants grow for your cattle to graze. With it He produces for you ˹various˺ crops, olives, palm trees, grapevines, and every type of fruit. Surely in this is a sign for those who reflect. And He has subjected for your benefit the day and the night, the sun and the moon. And the stars have been subjected by His command. Surely in this are signs for those who understand. And ˹He subjected˺ for you whatever He has created on earth of varying colours.1 Surely in this is a sign for those who are mindful.](https://quranwbw.com/16/10-11)
 
@@ -173,7 +135,7 @@
 
 ## Irfan-ul-Haq
 
-#### [Kitaab Ka Ilm | Hikmat Ka Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
+#### [Kitaab-Ka-Ilm | Hikmat-ka-Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
 
 * __Surah 6/59__: [](https://quranwbw.com/6/59-60)
 * __Surah 62/2__: [](https://quranwbw.com/62/2)
@@ -181,10 +143,24 @@
 
 ***
 
+#### [Naseeb-aur Ataa mayn Faraq | Irfan-ul-Haq](https://www.youtube.com/shorts/MTrJr-N5_Pg)
+
+***
+
+#### [Ilm-e-Laduni (علم لدنّی۔) | Irfan-ul-Haq](https://www.youtube.com/watch?v=3E_W2NPqdys)
+* Ghor-o-Fiqr, Mushahida, Tajarbaat is important....
+* Ilm-e-Laduni is a seperate thing
+* Ilm-e-Laa-Dooni (Ilm in which no other is included)
+* Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
+* __Surah Kahf (Khizar AS) 18__: Deshaped the boat, Killed the boy, Build a wall ...
+
+***
+
 
 ## Prof ARA
 
-#### [Knowledge of Unseen, Gayb ka ilm | Prof ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
+#### [Knowledge-of-Unseen, Gayb-ka-Ilm | Prof ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
+* 7/188
 
 ***
 
@@ -215,7 +191,7 @@
 
 ***
 
-#### [Tareekh Insan Jahalat Se Sucess Tak Ka Safar...!! | Allama Talib Johri](https://www.youtube.com/watch?v=f564z_64OBk)
+#### [Tareekh-Insan Jahalat-se Success-Tak Ka-Safar...!! | Allama Talib Johri](https://www.youtube.com/watch?v=f564z_64OBk)
 
 ***
 
@@ -233,10 +209,10 @@
 
 ### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
 * Five Question:
-1. Your complete Life
-2. Especially your young age
-3. Where did you earn
-4. Where did you spend
-5. How much did you acted up the Ilm you acquired
+1. Your COMPLETE Life
+2. Especially your YOUNG age
+3. Where did you EARN
+4. Where did you SPEND
+5. How much did you acted-upon-the-Ilm you acquired
 
 ***

@@ -149,3 +149,9 @@
 ***
 
 #### [Azmaeish and Musibat mein kiya parhna chaye ||آزمائش اور مصیبت || Prof ARA](https://www.youtube.com/watch?v=5cSVLuPoiEY)
+
+***
+
+#### [3 Signs Your Good Time Is Near | Wasif Ali Wasif](https://www.youtube.com/watch?v=RZGZ6D8QX_A)
+
+***

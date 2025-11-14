@@ -206,14 +206,16 @@ Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol
 
 ***
 
-#### [ILM ki intahaa ka maqam | علم کی انتہا | Syed Sarfraz Shah Sb](https://www.youtube.com/watch?v=rtKAu9-q9YY)
+#### [ILM ki intahaa ka maqam | علم کی انتہا | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
 
 ***
 
-#### [Ilm Mukammal Kb Hota Hay? | Shaykh-Islam Dr Muhammad Tahir ul Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
+#### [Ilm Mukammal Kb Hota Hay? | Dr Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
 
 ***
 
 #### [Maqaam-e-Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
 
 ***
+
+#### [Tareekh Insan Jahalat Se Sucess Tak Ka Safar...!! | Allama Talib Hussain Johri](https://www.youtube.com/watch?v=f564z_64OBk)

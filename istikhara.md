@@ -10,7 +10,7 @@
 1. Nazira Sawab
 2. Samajhna aur Parhna
 3. Ghoar-o-Fikr 
-4. Shanasas-e-Fitrat (Morning and Evering...they PONDER upong Allah SWT creatino with His References)
+4. __Shanasas-e-Fitrat (Morning and Evering...they PONDER upong Allah SWT creatino with His References)__
 * __Surah 3/7__: [وَٱلرَّٰسِخُونَ فِى ٱلْعِلْمِ يَقُولُونَ ءَامَنَّا بِهِۦ كُلٌّۭ مِّنْ عِندِ رَبِّنَا ۗ وَمَا يَذَّكَّرُ إِلَّآ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/3/7)
   * As for those __well-grounded in knowledge__, they say, “We believe in this ˹Quran˺—it is all from our Lord.” But none will be mindful ˹of this˺ except people of reason.
 

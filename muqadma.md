@@ -6,6 +6,11 @@
 
 ***
 
+#### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/allah-humma-ahsin-aiqibatna.png" width="300" height="300" />
+
+***
+
 #### [Dar Ko Kaise Door Karein? | Dr Isran](https://www.youtube.com/shorts/Mta-hRZQch8)
 
 ***

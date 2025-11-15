@@ -8,6 +8,8 @@
 * __Permissive limit__: You can make small mistakes
 * __Surah Al-Baqarah2/229__ :[بِهِۦ ۗ تِلْكَ حُدُودُ ٱللَّهِ فَلَا تَعْتَدُوهَا ۚ وَمَن يَتَعَدَّ حُدُودَ ٱللَّهِ فَأُو۟لَـٰٓئِكَ هُمُ ٱلظَّـٰلِمُونَ](https://quran.com/2/229)
 * __Surah Al-Anbya 21/87__: [فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
+  * Insaan, Kamzoor, I've weakness, I seek forgive from you
+  * You're perfect you don't make mistakes, I make mistakes
 
 ***
 

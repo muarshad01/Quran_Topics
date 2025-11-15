@@ -3,6 +3,10 @@
 
 ***
 
+#### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)
+
+***
+
 #### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
 * Make Rabb your FRIEND
 * Offer two-Rakat-nafals, additional, after Isha, and afterwards tell-all-your-worries to Allah SWT.

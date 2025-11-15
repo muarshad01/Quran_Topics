@@ -113,7 +113,7 @@
 4. Ali ibn Husayn (https://www.youtube.com/shorts/NuXwYOUApPc)
 ---
 5. Muhammad al-Baqir (https://www.youtube.com/shorts/Q0CGKBWWXHI)
-6. Jafar al-Sadiq
+6. Jafar al-Sadiq (https://www.youtube.com/shorts/zYJCFrAXpYY)
 7. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4)
 8. Ali al-Rida
 9. Muhammad al-Jawad

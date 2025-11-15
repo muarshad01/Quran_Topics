@@ -56,3 +56,7 @@
 * Faqeer umer-bhar apnay-naqais doar-karnay-mayn laga-rehay-gaa
 
 ***
+
+#### [Wali Allah Ki Pehchan Kya Hoti Hai | Prof ARA](https://www.youtube.com/watch?v=CkZbdNb3Nqo&t=17s)
+
+***

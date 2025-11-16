@@ -1,8 +1,7 @@
 #### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
 * Who qadre-ajeeb-hai...
-* Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ataa-karda-hai
-* Jo kuch merey-pass-hai...uss-par mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon
-* Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron ka-hai
+* __Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ataa-karda-hai__
+* Jo-kuch merey-pass-hai...uss-par mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai
 * __Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai.__
 
 ***

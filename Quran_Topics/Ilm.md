@@ -43,7 +43,7 @@
 
 ***
 
-#### [Rab Tak Pohanchnay Ke Raastay | SSA Shah](https://www.youtube.com/watch?v=DoUvHcm28a8)
+#### [Rabb Tak Pohanchnay Ke Raastay | SSA Shah](https://www.youtube.com/watch?v=DoUvHcm28a8)
 * There are THREE ways to reach Allah SWT:
 1. AQAL, which is incomplete.
 2. ILM

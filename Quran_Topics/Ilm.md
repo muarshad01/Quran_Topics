@@ -187,6 +187,18 @@
 
 ***
 
+## Israr Ahmed
+
+#### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
+* Five Question:
+1. Your COMPLETE Life
+2. Especially your YOUNG age
+3. Where did you EARN
+4. Where did you SPEND
+5. How much did you ACTED-UPON-the-ILM that you acquired
+
+***
+
 ## Allama Talib Johri
 
 #### [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
@@ -221,17 +233,5 @@
 ## Tahir-ul-Qadri
 
 #### [Ilm Mukammal Kb Hota Hay? | Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
-
-***
-
-## Israr Ahmed
-
-#### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
-* Five Question:
-1. Your COMPLETE Life
-2. Especially your YOUNG age
-3. Where did you EARN
-4. Where did you SPEND
-5. How much did you acted-upon-the-Ilm you acquired
 
 ***

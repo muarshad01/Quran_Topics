@@ -1,4 +1,4 @@
-### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
+#### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
 * Who qadre-ajeeb-hai...
 * Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ataa-karda-hai
 * Jo kuch merey-pass-hai...uss-par mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon
@@ -11,11 +11,11 @@
 
 ***
 
-### [How a Faqeer Defines Ungratefulness? | SSA Shah](https://www.youtube.com/watch?v=vRwTQb4O7Z4)
+#### [How a Faqeer Defines Ungratefulness? | SSA Shah](https://www.youtube.com/watch?v=vRwTQb4O7Z4)
 
 ***
 
-### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
+#### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
 * __Surah 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
 * Ah Allah mayn terey-shukar ka-haqq ada-hi-nahi kar-sakta
 * __Tongue__: Jis-zaban-say Al-hamad-u-lillah kehta-hoon, wo-zaban-bhi Tu-nay ata-ki-hai
@@ -29,13 +29,13 @@
 
 ***
 
-### Shukr [Thankfulness, gratitude, or acknowledgment]
+#### Shukr [Thankfulness, gratitude, or acknowledgment]
 * Shukr -> Jannat
 * Sabr -> Allah SWT
 
 ***
 
-### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
+#### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
 * __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quranwbw.com/76/3)
 * __Surah Al-Insan 76/1-3__: [Is there not a period of time when each human is nothing yet worth mentioning?](https://quranwbw.com/76/1-3)
 
@@ -93,13 +93,12 @@
 
 ***
 
-### [Duniya Allah Ka Inaam Hai | Aasal Mein Dyniya Hi Deen Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=REKkql6UtuE)
+#### [Duniya Allah Ka Inaam Hai | Aasal Mein Dyniya Hi Deen Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=REKkql6UtuE)
 * Na Tarek-e-Dunya na Gharaq-e-Dunya
 * Solomon AS
 * Abdul Rehman Bin Auf
   
 ***
-
 
 * __Surah Al-Baqarah 2/152/__: [remember Me; I will remember you. And thank Me, and never be ungrateful.](https://quranwbw.com/2/152) 
 * __Surah Al-Baqarah 2/172/__: [O believers! Eat from the good things We have provided for you. And give thanks to Allah if you ˹truly˺ worship Him ˹alone˺.](https://quranwbw.com/2/172)

@@ -3,7 +3,7 @@
 
 ***
 
-### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
+#### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
 * Ilm ki Neharain = 81,000
 
 ***
@@ -20,7 +20,7 @@
 
 ***
 
-### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
+#### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
 * If you want to acquire Ilm then first become OBEDIENT-with-everyone. -- Ali RA
 * Ilm sun-nah say hasil-hota-hai aur bol-nay say zaya-ho-jata-hai.
 * Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
@@ -95,13 +95,13 @@
 
 ***
 
-### [Discover the Path to Spiritual Sight | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
+#### [Discover the Path to Spiritual Sight | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
 * Rooh-ki-parwaz, insaan kay ilam-kay-saath directly-proportionate hai.
 * Ilm-kay-muqaam kay-hisab-say, uski Rooh ko saer-karney-ki ijazat-milti-hai
 
 ***
 
-### Philosopher
+#### Philosopher
 * Aristotle
 * Aflatoon (plato) Philosopher
 * Ibn Sina Philosopher and Physician

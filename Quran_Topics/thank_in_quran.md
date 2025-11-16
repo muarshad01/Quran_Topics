@@ -128,7 +128,7 @@
 ***
 
 * __Surah Al-Nahl 16/18__: [If you tried to count Allah’s blessings, you would never be able to number them. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/16/18)
-* __Surah Al-Nahl 16/78__: [And Allah brought you out of the wombs of your mothers while you knew nothing, and gave you hearing, sight, and intellect so perhaps you would be thankful.](https://quranwbw.com/16/78)
+* __Surah An-Nahl 16/78__: [وَٱللَّهُ أَخْرَجَكُم مِّنۢ بُطُونِ أُمَّهَـٰتِكُمْ لَا تَعْلَمُونَ شَيْـًۭٔا وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۙ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/an-nahl/78)
 
 ***
 

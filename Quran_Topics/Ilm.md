@@ -37,6 +37,9 @@
 ***
 
 #### [Manners of Sufi Path | SSA Shah](https://www.youtube.com/watch?v=PYOG-wGkR-E)
+* We just need to give him a hint...all other details Allah SWT shows him
+* He is Shah-e-Nazr/Shah-e-Ilm, even a hint is enough for him
+* Faqeer ka dil-jeetoo
 
 ***
 

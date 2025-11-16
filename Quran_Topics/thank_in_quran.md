@@ -1,6 +1,6 @@
 #### Shukr [Thankfulness, gratitude, or acknowledgment]
-* Shukr -> Jannat
-* Sabr -> Allah SWT
+* Shukkar -> Jannat
+* Sabar -> Allah SWT
 
 ***
 

@@ -223,7 +223,12 @@
 ***
 
 #### [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
-* 25 mins
+* 25:00 mins
+* __Surah An-Nahl 16/78__: [وَٱللَّهُ أَخْرَجَكُم مِّنۢ بُطُونِ أُمَّهَـٰتِكُمْ لَا تَعْلَمُونَ شَيْـًۭٔا وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۙ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/an-nahl/78)
+* 1 - 5-Senses
+* 2 - Observation (Experience)
+* 3 - Aqal
+* 10:00 min
 
 ***
 

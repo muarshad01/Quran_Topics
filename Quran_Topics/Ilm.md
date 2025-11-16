@@ -147,20 +147,23 @@
 
 #### [Kitaab-Ka-Ilm | Hikmat-ka-Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
 
-* __Surah 6/59__: [](https://quranwbw.com/6/59-60)
-* __Surah 62/2__: [](https://quranwbw.com/62/2)
-* __Surah 87/6__: [](https://quranwbw.com/87/6)
+* __Surah Al-Anam 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ...وَهُوَ ٱلَّذِى يَتَوَفَّىٰكُم بِٱلَّيْلِ وَيَعْلَمُ مَا جَرَحْتُم بِٱلنَّهَارِ ثُمَّ يَبْعَثُكُمْ فِيهِ لِيُقْضَىٰٓ أَجَلٌۭ مُّسَمًّۭى ۖ ثُمَّ إِلَيْهِ مَرْجِعُكُمْ ثُمَّ يُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ](https://quranwbw.com/6/59-60)
+* __Surah Al-Jumuah 62/2__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quranwbw.com/62/2)
+* __Surah 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quranwbw.com/87/6)
 
 ***
 
 #### [Naseeb-aur Ataa mayn Faraq | Irfan-ul-Haq](https://www.youtube.com/shorts/MTrJr-N5_Pg)
+* Naseeb bhi Ataa hai
+* Saying is self-made...is saying KUFR.
+* ATAA-uss-par-hooti-hay, joo IJAZ-kay-rastay-koo ikhtiyaar-karta-hai
 
 ***
 
 #### [Ilm-e-Laduni (علم لدنّی۔) | Irfan-ul-Haq](https://www.youtube.com/watch?v=3E_W2NPqdys)
 * Ghor-o-Fiqr, Mushahida, Tajarbaat is important....
 * Ilm-e-Laduni is a seperate thing
-* Ilm-e-Laa-Dooni (Ilm in which no other is included)
+* __Ilm-e-Laa-Dooni (Ilm in which no other is included)__
 * Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
 * __Surah Kahf (Khizar AS) 18__: Deshaped the boat, Killed the boy, Build a wall ...
 

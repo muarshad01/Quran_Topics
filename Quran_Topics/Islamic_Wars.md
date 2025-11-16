@@ -23,6 +23,7 @@
 
 ### Jang-e Hunayn [630 CE (8 AH)]
 * "Jang-e Hunayn," or the Battle of Hunayn, was a significant military engagement in Islamic history. It took place in 8 AH (around 630 CE) in the Hunayn valley, near Taif, after the conquest of Mecca. The battle was fought between the Muslim army led by the Prophet Muhammad and the Hawazin and Thaqif tribes. Despite an initial setback, the Muslims achieved a decisive victory. 
+* [The Complete Story of Jang e Hunain| by Mufti Zarwali Khan Sab](https://www.youtube.com/watch?v=4RnBB2lj3No)
 
 ### Ghazwa-e-Tabook [630 CE (9 AH)]
 * Ghazwa-e-Tabuk, also known as the Battle of Tabuk, was a military expedition led by the Prophet Muhammad in 630 CE (9 AH) towards Tabuk, near the Syrian border. It was the last major military campaign undertaken by the Prophet during his lifetime. The expedition was prompted by reports of a potential Byzantine invasion of northern Arabia, and though the Byzantine army did not materialize, the expedition demonstrated the growing strength and resolve of the Muslim community and helped extend its influence in the region

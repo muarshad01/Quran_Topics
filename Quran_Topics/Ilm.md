@@ -209,7 +209,7 @@
 
 ***
 
-#### [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
+#### [ALI (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
 
 ***
 
@@ -222,11 +222,11 @@
 
 ***
 
-#### [Tareekh-Insan Jahalat-se Success-Tak Ka-Safar...!! | Allama Talib Johri](https://www.youtube.com/watch?v=f564z_64OBk)
+#### [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
 
 ***
 
-#### [ALI (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
+#### [Tareekh-Insan Jahalat-se Success-Tak Ka-Safar...!! | Allama Talib Johri](https://www.youtube.com/watch?v=f564z_64OBk)
 
 ***
 

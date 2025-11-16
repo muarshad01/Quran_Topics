@@ -1,12 +1,14 @@
+#### Shukr [Thankfulness, gratitude, or acknowledgment]
+* Shukr -> Jannat
+* Sabr -> Allah SWT
+
+***
+
 #### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
 * Who qadre-ajeeb-hai...
 * __Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ataa-karda-hai__
 * Jo-kuch merey-pass-hai...uss-par mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai
 * __Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai.__
-
-***
-
-#### [Ears | SSA Shah](https://www.facebook.com/photo.php?fbid=719108227640127&set=pb.100086228673334.-2207520000&type=3)
 
 ***
 
@@ -28,15 +30,9 @@
 
 ***
 
-#### Shukr [Thankfulness, gratitude, or acknowledgment]
-* Shukr -> Jannat
-* Sabr -> Allah SWT
-
-***
-
 #### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
-* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quranwbw.com/76/3)
-* __Surah Al-Insan 76/1-3__: [Is there not a period of time when each human is nothing yet worth mentioning?](https://quranwbw.com/76/1-3)
+* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quran.com/76/3)
+* __Surah Al-Insan 76/1-3__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا ١...إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍۢ نَّبْتَلِيهِ فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا ٢...إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا ٣](https://quran.com/76/1-3)
 
 ***
 
@@ -55,7 +51,7 @@
 
 ***
 
-#### [Shukr ka Mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
+#### [Shukr-ka-Mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
 * __Surah Al-Maaida (Anbia: Issa & Maryma AS (They both ate food))__: [kaanaa yaa-kulaanit ta'aam ](https://quranwbw.com/5/75)
 * __Surah Ibrahim 14/34__: [Indeed humankind is truly unfair, ˹totally˺ ungrateful.](https://quranwbw.com/14/34)
 * __Surah An-Nahl 16/78__: [And Allah brought you out of the wombs of your mothers while you knew nothing, and gave you hearing, sight, and intellect so perhaps you would be thankful.](https://quran.com/16/78)
@@ -78,90 +74,83 @@
 
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)
 * Shukar aik jazba hai (Jazba-e-Tashakar)
-* Fitrat-ki-sehat-ki alamat hai
-* __Surah Al-Anam__: https://quran.com/6/74-90
-* __Surah Luqman__: https://quranwbw.com/31/12
+* Fitrat-ki-sehat-ki alamat-hai
+* __Surah Al-Anam 6/74-90__: [](https://quran.com/6/74-90)
+* __Surah Luqman 31/12__: [وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ أَنِ ٱشْكُرْ لِلَّهِ ۚ وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ ۖ وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌۭ](https://quran.com/31/12)
 
 ***
 
-#### [Prophet Daud (David) AS, Thankfulness | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=njOVrXuYMXY)
-* __Surah Saba 34/13__: https://quran.com/34/13
-  * My tongue..., My forehead...,
-  * Mayn terey shukar ka haqq kaisay ada karon...Ah daud...abb tu nay shukar ka haqq ada kar diya hai.
-  * Ijz, Inkisari, aur Zauf ka iqrar
-
-***
 
 #### [Duniya Allah Ka Inaam Hai | Aasal Mein Dyniya Hi Deen Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=REKkql6UtuE)
-* Na Tarek-e-Dunya na Gharaq-e-Dunya
+* __Na Tarek-e-Dunya na Gharaq-e-Dunya__
 * Solomon AS
 * Abdul Rehman Bin Auf
   
 ***
 
-* __Surah Al-Baqarah 2/152/__: [remember Me; I will remember you. And thank Me, and never be ungrateful.](https://quranwbw.com/2/152) 
-* __Surah Al-Baqarah 2/172/__: [O believers! Eat from the good things We have provided for you. And give thanks to Allah if you ˹truly˺ worship Him ˹alone˺.](https://quranwbw.com/2/172)
+* __Surah Al-Baqarah 2/152/__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ وَٱشْكُرُوا۟ لِى وَلَا تَكْفُرُونِ](https://quran.com/2/152) 
+* __Surah Al-Baqarah 2/172/__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ كُلُوا۟ مِن طَيِّبَـٰتِ مَا رَزَقْنَـٰكُمْ وَٱشْكُرُوا۟ لِلَّهِ إِن كُنتُمْ إِيَّاهُ تَعْبُدُونَ](https://quran.com/2/172)
 
 ***
   
-* __Surah An-Nisa 4/147__: [Why should Allah punish you if you are grateful and faithful? Allah is ever Appreciative, All-Knowing.](https://quranwbw.com/4/147)
+* __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
 
 ***
 
-* __Surah Al-A'raf 7/10__: [We have indeed established you on earth and provided you with a means of livelihood. ˹Yet˺ you seldom give any thanks.](https://quranwbw.com/7/10)
+* __Surah Al-A'raf 7/10__: [وَلَقَدْ مَكَّنَّـٰكُمْ فِى ٱلْأَرْضِ وَجَعَلْنَا لَكُمْ فِيهَا مَعَـٰيِشَ ۗ قَلِيلًۭا مَّا تَشْكُرُونَ](https://quran.com/7/10)
 
 ***
 
-* __Surah Yunus 10/60__: [What do those who fabricate lies against Allah expect on Judgment Day? Surely Allah is ever Bountiful to humanity,1 but most of them are ungrateful.](https://quranwbw.com/10/60)
+* __Surah Yunus 10/60__: [وَمَا ظَنُّ ٱلَّذِينَ يَفْتَرُونَ عَلَى ٱللَّهِ ٱلْكَذِبَ يَوْمَ ٱلْقِيَـٰمَةِ ۗ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَهُمْ لَا يَشْكُرُونَ](https://quran.com/10/60)
 
 ***
 
-* __Surah Yusuf 12/38__: [I follow the faith of my fathers: Abraham, Isaac, and Jacob. It is not ˹right˺ for us to associate anything with Allah ˹in worship˺. This is part of Allah’s grace upon us and humanity, but most people are not grateful.](https://quranwbw.com/12/38)
+* __Surah Yusuf 12/38__: [وَٱتَّبَعْتُ مِلَّةَ ءَابَآءِىٓ إِبْرَٰهِيمَ وَإِسْحَـٰقَ وَيَعْقُوبَ ۚ مَا كَانَ لَنَآ أَن نُّشْرِكَ بِٱللَّهِ مِن شَىْءٍۢ ۚ ذَٰلِكَ مِن فَضْلِ ٱللَّهِ عَلَيْنَا وَعَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quran.com/12/38)
 
 ***
 
-* __Surah Ibrahim 14/7 (If You're Greatful...)__: [And ˹remember˺ when your Lord proclaimed, ‘If you are grateful, I will certainly give you more. But if you are ungrateful, surely My punishment is severe.’”](https://quranwbw.com/14/7)
-* __Surah Ibrahim 14/34__: [And He has granted you all that you asked Him for. If you tried to count Allah’s blessings, you would never be able to number them. Indeed humankind is truly unfair, ˹totally˺ ungrateful.1 ](https://quranwbw.com/14/34)
+* __Surah Ibrahim 14/7 (If You're Greatful...)__: [وَإِذْ تَأَذَّنَ رَبُّكُمْ لَئِن شَكَرْتُمْ لَأَزِيدَنَّكُمْ ۖ وَلَئِن كَفَرْتُمْ إِنَّ عَذَابِى لَشَدِيدٌۭ](https://quran.com/14/7)
+* __Surah Ibrahim 14/34__: [وَءَاتَىٰكُم مِّن كُلِّ مَا سَأَلْتُمُوهُ ۚ وَإِن تَعُدُّوا۟ نِعْمَتَ ٱللَّهِ لَا تُحْصُوهَآ ۗ إِنَّ ٱلْإِنسَـٰنَ لَظَلُومٌۭ كَفَّارٌۭ](https://quran.com/14/34)
 
 ***
 
-* __Surah Al-Nahl 16/18__: [If you tried to count Allah’s blessings, you would never be able to number them. Surely Allah is All-Forgiving, Most Merciful.](https://quranwbw.com/16/18)
-* __Surah An-Nahl 16/78__: [وَٱللَّهُ أَخْرَجَكُم مِّنۢ بُطُونِ أُمَّهَـٰتِكُمْ لَا تَعْلَمُونَ شَيْـًۭٔا وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۙ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/an-nahl/78)
+* __Surah Al-Nahl 16/18__: [وَإِن تَعُدُّوا۟ نِعْمَةَ ٱللَّهِ لَا تُحْصُوهَآ ۗ إِنَّ ٱللَّهَ لَغَفُورٌۭ رَّحِيمٌۭ](https://quran.com/16/18)
+* __Surah An-Nahl 16/78__: [وَٱللَّهُ أَخْرَجَكُم مِّنۢ بُطُونِ أُمَّهَـٰتِكُمْ لَا تَعْلَمُونَ شَيْـًۭٔا وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۙ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/16/78)
 
 ***
 
-* __Surah Al-Muminoon 23/78__: [He is the One Who created for you hearing, sight, and intellect. ˹Yet˺ you hardly give any thanks.](https://quranwbw.com/23/78)
+* __Surah Al-Muminoon 23/78__: [وَهُوَ ٱلَّذِىٓ أَنشَأَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًۭا مَّا تَشْكُرُونَ](https://quran.com/23/78)
 
 ***
 
-* __Surah An-Naml [Ant] 27/19 (King Solomon...Thankfulness)__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
+* __Surah An-Naml 27/19 (King Solomon...Thankfulness)__: [فَتَبَسَّمَ ضَاحِكًۭا مِّن قَوْلِهَا وَقَالَ رَبِّ أَوْزِعْنِىٓ أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 
 ***
 
-* __Surah Luqman 31/12__: [Indeed, We blessed Luqmân with wisdom, ˹saying˺, “Be grateful to Allah, for whoever is grateful, it is only for their own good. And whoever is ungrateful, then surely Allah is Self-Sufficient, Praiseworthy.”](https://quranwbw.com/31/12)
+* __Surah Luqman 31/12__: [وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ أَنِ ٱشْكُرْ لِلَّهِ ۚ وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ ۖ وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌۭ](https://quran.com/31/12)
 
 ***
 
-* __Surah As-Sajda 32/9__: [then He fashioned them and had a spirit of His Own ˹creation˺ breathed into them. And He gave you hearing, sight, and intellect. ˹Yet˺ you hardly give any thanks.](https://quranwbw.com/32/9)
+* __Surah As-Sajda 32/9__: [ثُمَّ سَوَّىٰهُ وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًۭا مَّا تَشْكُرُونَ](https://quran.com/32/9)
 
 ***
 
-* __Surah Saba 34/13__: [They made for him whatever he desired of sanctuaries, statues,1 basins as large as reservoirs, and cooking pots fixed ˹into the ground˺. ˹We ordered:˺ “Work gratefully, O  family of David!” ˹Only˺ a few of My servants are ˹truly˺ grateful.](https://quranwbw.com/34/13)
+* __Surah Saba 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
 
 ***
 
-* __Surah Az-Zumar 39/7__: [If you disbelieve, then ˹know that˺ Allah is truly not in need of you, nor does He approve of disbelief from His servants. But if you become grateful ˹through faith˺, He will appreciate that from you. No soul burdened with sin will bear the burden of another. Then to your Lord is your return, and He will inform you of what you used to do. He certainly knows best what is ˹hidden˺ in the heart.](https://quranwbw.com/39/7)
+* __Surah Az-Zumar 39/7__: [إِن تَكْفُرُوا۟ فَإِنَّ ٱللَّهَ غَنِىٌّ عَنكُمْ ۖ وَلَا يَرْضَىٰ لِعِبَادِهِ ٱلْكُفْرَ ۖ وَإِن تَشْكُرُوا۟ يَرْضَهُ لَكُمْ ۗ وَلَا تَزِرُ وَازِرَةٌۭ وِزْرَ أُخْرَىٰ ۗ ثُمَّ إِلَىٰ رَبِّكُم مَّرْجِعُكُمْ فَيُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ ۚ إِنَّهُۥ عَلِيمٌۢ بِذَاتِ ٱلصُّدُورِ](https://quran.com/39/7)
 
 ***
 
-* __Surah Al-Ghafir 40/61__: [It is Allah Who has made the night for you to rest in and the day bright. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/40/61)
+* __Surah Al-Ghafir 40/61__: [ٱللَّهُ ٱلَّذِى جَعَلَ لَكُمُ ٱلَّيْلَ لِتَسْكُنُوا۟ فِيهِ وَٱلنَّهَارَ مُبْصِرًا ۚ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quran.com/40/61)
 
 ***
 
-* __Surah Al-Waaqia 56/70__: [If We willed, We could make it salty. Will you not then give thanks?](https://quranwbw.com/56/70)
+* __Surah Al-Waaqia 56/70__: [لَوْ نَشَآءُ جَعَلْنَـٰهُ أُجَاجًۭا فَلَوْلَا تَشْكُرُونَ](https://quran.com/56/70)
 
 ***
 
-* __Surah Al-Mulk 67/23__: [Say, ˹O Prophet,˺ “He is the One Who brought you into being and gave you hearing, sight, and intellect. ˹Yet˺ you hardly give any thanks.”](https://quranwbw.com/67/23)
+* __Surah Al-Mulk 67/23__: [قُلْ هُوَ ٱلَّذِىٓ أَنشَأَكُمْ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۖ قَلِيلًۭا مَّا تَشْكُرُونَ](https://quran.com/67/23)
 
 *** 

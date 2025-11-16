@@ -172,7 +172,7 @@
 ## Prof ARA
 
 #### [Knowledge-of-Unseen, Gayb-ka-Ilm | Prof ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
-* 7/188
+* __Surah 7/188__: [قُل لَّآ أَمْلِكُ لِنَفْسِى نَفْعًۭا وَلَا ضَرًّا إِلَّا مَا شَآءَ ٱللَّهُ ۚ وَلَوْ كُنتُ أَعْلَمُ ٱلْغَيْبَ لَٱسْتَكْثَرْتُ مِنَ ٱلْخَيْرِ وَمَا مَسَّنِىَ ٱلسُّوٓءُ ۚ إِنْ أَنَا۠ إِلَّا نَذِيرٌۭ وَبَشِيرٌۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/7/188)
 * Prophet Muhammad SAW know the name of His last Ummati too.
 * 10-Horse -riders, who will go to talk to Dajjal, I know them...
 

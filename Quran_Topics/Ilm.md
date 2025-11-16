@@ -181,10 +181,9 @@
 #### [Asif-ibn-Barkhiya ka Fehm-e-Quran aur Ilm-Ludni | Prof ARA](https://www.youtube.com/watch?v=9vDQYg-B664)
 * __Hizb al-Behr__:
 1. [Ya Aliyu (يا علي), Ya Azeemu (يا عظيم), Ya Haleemu (يا حليم), Ya Aleemu (يا عليم)]
-2. "Bismillahil ladhi la-yadurru ma'asmihi shai'un fil-ardi wa la fis-sama'i, wa Huwas-Sami'ul-'Alim"
-3. Wa La-Hawla Wa La-Quwwata Illa-Billahil Aliyyil Azeem
-4. Wa Salall-hu Taala Ala-Khayri-Khalqihi-Muhammadin Wa-Ala-Aalihi Washabihi Ajma'een
-
+2. "Bismillahil ladhi la-yadurru ma'asmihi shai'un fil-ardi wa la fis-sama'i, wa Huwas-Sami'ul-'Alim" ( بِسْمِ اللّٰهِ الَّذِي لَا يَضُرُّ مَعَ اسْمِهِ شَيْءٌ فِي الأَرْضِ وَلَا فِي السَّمَاءِ وَهُوَ السَّمِيعُ الْعَلِيمُ)
+3. Wa La-Hawla Wa La-Quwwata Illa-Billahil Aliyyil Azeem (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ ٱلْعَلِيِّ ٱلْعَظِيمِ)
+4. Wa Salall-hu Taala Ala-Khayri-Khalqihi-Muhammadin Wa-Ala-Aalihi Washabihi Ajma'een (وَصَلَّى ٱللَّٰهُ تَعَالَىٰ عَلَىٰ خَيْرِ خَلْقِهِ مُحَمَّدٍ وَعَلَىٰ آلِهِ وَصَحْبِهِ أَجْمَعِينَ")
 
 ***
 

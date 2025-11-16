@@ -201,32 +201,38 @@
 
 ## Allama Talib Johri
 
-#### [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
-
-***
-
 #### [Ilm | Allama Talib Johri‬](https://www.youtube.com/watch?v=RlI7hhcuh5w)
+* 11 min
 
 ***
 
 #### [Ali (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
+* 11 mins
 
 ***
 
 #### [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
+* 27 mins
 * https://www.youtube.com/shorts/0ynQ7Tqj_yU
 
 ***
 
 #### [Maqaam-e-Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
+* 46 mins
 
 ***
 
 #### [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
+* 25 mins
 
 ***
 
 #### [Tareekh-Insan Jahalat-se Success-Tak Ka-Safar...!! | Allama Talib Johri](https://www.youtube.com/watch?v=f564z_64OBk)
+*  26 mins
+
+***
+
+#### [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
 
 ***
 

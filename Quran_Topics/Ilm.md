@@ -209,7 +209,7 @@
 
 ***
 
-#### [ALI (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
+#### [Ali (AS) ka ILM | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
 
 ***
 

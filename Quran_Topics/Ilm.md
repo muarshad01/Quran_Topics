@@ -4,7 +4,12 @@
 ***
 
 #### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
-* Ilm ki Neharain = 81,000
+* Ilm-ki-Neharain = 81,000
+
+***
+
+#### [Why True Knowledge needs a Guide | SSA Shah](https://www.youtube.com/shorts/0ynQ7Tqj_yU)
+* Insaan Ilm-ki-ziaditi say bhatak-jaata-hai
 
 ***
 
@@ -213,7 +218,6 @@
 
 #### [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
 * 27 mins
-* https://www.youtube.com/shorts/0ynQ7Tqj_yU
 
 ***
 

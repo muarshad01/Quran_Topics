@@ -307,3 +307,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 #### [Muhib Ya Mahboob | Mehboob-e-Ilahi | Nizamuddin Auliya Ka Waqia | By Shahbaz Qadri](https://www.youtube.com/watch?v=BVu7u0OwA3o)
 
 ***
+
+#### [Who is the Teacher of Prof ARA](https://www.youtube.com/watch?v=dcP8dMOBvr4)
+* Silsila-e-Junadia
+
+***

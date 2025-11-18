@@ -200,8 +200,8 @@
 #### [Maqaam-e-Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
 * 46 mins
 * __Surah Al-Alaq 96/1-5 (First Wahi)__: [](https://quran.com/96/1-5)
- * Jamay-huway-khoon-say alim-bana-diya
- * Weak and Jahil
+  * Jamay-huway-khoon-say alim-bana-diya
+  * Weak and Jahil
 * __Surah Al-Alaq 96/6-8__: [](https://quran.com/96/6-8)
 
 #### Philosopher

@@ -5,3 +5,5 @@
 * [Sahaba Stories - Companions Of The Prophet | Abbad Ibn Bishr (RA)](https://www.youtube.com/watch?v=t093O9FEobs)
 
 ***
+
+* __Surah An-Naml 27/75__: [وَمَا مِنْ غَآئِبَةٍۢ فِى ٱلسَّمَآءِ وَٱلْأَرْضِ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍ](https://quran.com/27/75)

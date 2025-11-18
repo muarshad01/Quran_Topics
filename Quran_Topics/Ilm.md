@@ -110,48 +110,6 @@
 
 ***
 
-#### Philosopher
-* Aristotle
-* Aflatoon (plato) Philosopher
-* Ibn Sina Philosopher and Physician
-* Al-Farabi Philosopher
-
-## Dimensions of Ilm
-
-#### Materialistic World, One Approach, 
-* __Surah AN-Najm 53/10__: [This is the extent of their knowledge. Surely your Lord knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/53/30)
-
-#### non-Materialistic World, 2nd Approac,
-* ...
-
-#### Islam World:
-* __Surah Nahl 16/10-13__: [He is the One Who sends down rain from the sky, from which you drink and by which plants grow for your cattle to graze. With it He produces for you ˹various˺ crops, olives, palm trees, grapevines, and every type of fruit. Surely in this is a sign for those who reflect. And He has subjected for your benefit the day and the night, the sun and the moon. And the stars have been subjected by His command. Surely in this are signs for those who understand. And ˹He subjected˺ for you whatever He has created on earth of varying colours.1 Surely in this is a sign for those who are mindful.](https://quranwbw.com/16/10-11)
-
-* __Surah Luqman 31/20__: [Have you not seen that Allah has subjected for you whatever is in the heavens and whatever is on the earth, and has lavished His favours upon you, both seen and unseen? ˹Still˺ there are some who dispute about Allah without knowledge, or guidance, or an enlightening scripture.
-](https://quranwbw.com/31/20)
-
-***
-
-* Idol Worshippers (Gods and Goddesses)
-* Super Powers (Masters and Servants)
-
-*** 
-
-* __Surah 2/245 (Talut...Ilm & Jism)__:[](https://quran.com/2/247)
-* __Surah 2/251__: [](https://quranwbw.com/2/251)
-
-* __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.]()
-
-* __Surah Al-Kahf 18/65/__: [There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.](quran.com/18/65)
-
-* __Surah 27/15__: [Indeed, We granted knowledge to David and Solomon. And they said ˹in acknowledgment˺, “All praise is for Allah Who has privileged us over many of His faithful servants.”](https://quran.com/27/15)
-
-* __Surah Al-Anbiyaa 21/79__: [](https://quranwbw.com/21/79)
-
-* __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
-
-***
-
 ## Irfan-ul-Haq
 
 #### [Kitaab-Ka-Ilm | Hikmat-ka-Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
@@ -241,6 +199,52 @@
 
 #### [Maqaam-e-Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
 * 46 mins
+* __Surah Al-Alaq 96/1-5 (First Wahi)__: [](https://quran.com/96/1-5)
+ * Jamay-huway-khoon-say alim-bana-diya
+ * Weak and Jahil
+* __Surah Al-Alaq 96/6-8__: [](https://quran.com/96/6-8)
+
+#### Philosopher
+* Aristotle:
+* Aflatoon (Plato): Philosopher
+* Ibn Sina: Philosopher and Physician
+* Al-Farabi: Philosopher
+
+## Dimensions of Ilm
+
+#### Materialistic World, One Approach, 
+* __Surah AN-Najm 53/10__: [This is the extent of their knowledge. Surely your Lord knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/53/30)
+
+#### non-Materialistic World, 2nd Approac,
+* ...
+
+#### Islam World:
+* __Surah Nahl 16/10-13__: [He is the One Who sends down rain from the sky, from which you drink and by which plants grow for your cattle to graze. With it He produces for you ˹various˺ crops, olives, palm trees, grapevines, and every type of fruit. Surely in this is a sign for those who reflect. And He has subjected for your benefit the day and the night, the sun and the moon. And the stars have been subjected by His command. Surely in this are signs for those who understand. And ˹He subjected˺ for you whatever He has created on earth of varying colours.1 Surely in this is a sign for those who are mindful.](https://quranwbw.com/16/10-11)
+
+* __Surah Luqman 31/20__: [Have you not seen that Allah has subjected for you whatever is in the heavens and whatever is on the earth, and has lavished His favours upon you, both seen and unseen? ˹Still˺ there are some who dispute about Allah without knowledge, or guidance, or an enlightening scripture.
+](https://quranwbw.com/31/20)
+
+***
+
+* Idol Worshippers (Gods and Goddesses)
+* Super Powers (Masters and Servants)
+
+*** 
+
+* __Surah 2/245 (Talut...Ilm & Jism)__:[](https://quran.com/2/247)
+* __Surah 2/251__: [](https://quranwbw.com/2/251)
+
+* __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.]()
+
+* __Surah Al-Kahf 18/65/__: [There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.](quran.com/18/65)
+
+* __Surah 27/15__: [Indeed, We granted knowledge to David and Solomon. And they said ˹in acknowledgment˺, “All praise is for Allah Who has privileged us over many of His faithful servants.”](https://quran.com/27/15)
+
+* __Surah Al-Anbiyaa 21/79__: [](https://quranwbw.com/21/79)
+
+* __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
+
+***
 
 ***
 

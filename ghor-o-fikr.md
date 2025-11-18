@@ -6,3 +6,7 @@
 * __Surah Yasin 36/36__: [سُبْحَـٰنَ ٱلَّذِى خَلَقَ ٱلْأَزْوَٰجَ كُلَّهَا مِمَّا تُنۢبِتُ ٱلْأَرْضُ وَمِنْ أَنفُسِهِمْ وَمِمَّا لَا يَعْلَمُونَ](https://quran.com/36/36)
 
 ***
+
+#### [Quran kesi kitaab hy | Allama Talib Johri](https://www.youtube.com/watch?v=3BtSYQe38rc)
+
+***

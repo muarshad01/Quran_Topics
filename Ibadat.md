@@ -1,3 +1,6 @@
+#### [ABDIYAT عبديت | Allama Talib Jouhari](https://www.youtube.com/watch?v=pgq015fSNk8)
+
+***
 
 * __Surah Maryam 19/93 (Every Atom is Abaad)__: [إِن كُلُّ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ إِلَّآ ءَاتِى ٱلرَّحْمَـٰنِ عَبْدًۭا ٩٣](https://quran.com/19/93)
 * __Surah An-Nur 24/41 (Every Atom Knows its Salath and Tasbeeh)__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ ٤١](https://quran.com/24/41)
@@ -14,7 +17,7 @@
 
 ***
 
-## [Asal Ibadat Kya Hai? | اصل عبادت کیا ہے؟](https://www.youtube.com/watch?v=ZkpktaeCWIc)
+#### [Asal Ibadat Kya Hai? | اصل عبادت کیا ہے؟](https://www.youtube.com/watch?v=ZkpktaeCWIc)
 * Following Do and Don't is the real Ibadat.
 * Namaz, Roza, Zakat, Hajj...these 4-things are not Ibadaat are not the only Ibadaat.
 * There are other Orders (Alhmat) of ALlah SWT. We usually ignore them.

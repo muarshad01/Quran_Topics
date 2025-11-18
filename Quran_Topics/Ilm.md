@@ -173,9 +173,9 @@
 1. Haqiqat ka munkishaf hoo-janaa
 2. kisi-sah-ki tasweer-kaa aqal-kay-andar aa-janaa
 * There are THREE dimension of Ilm:
-1. Matter
-2. Deen (Church)
-3. Signs of creation: Islam - Between Matter and Deen View
+1. First Approach: Materialistic World (Refuted by: https://quran.com/53/30)
+2. Second Approach: non-Materialistic World, Deen (Church)
+3. Signs of Creation: Islam - Between 1st & 2nd Approach
 * __Surah Ali-Imran 3/7 (Ulul Albab: وَٱلرَّٰسِخُونَ فِى ٱلْعِلْمِۦ)__: [هُوَ ٱلَّذِىٓ أَنزَلَ عَلَيْكَ ٱلْكِتَـٰبَ مِنْهُ ءَايَـٰتٌۭ مُّحْكَمَـٰتٌ هُنَّ أُمُّ ٱلْكِتَـٰبِ وَأُخَرُ مُتَشَـٰبِهَـٰتٌۭ ۖ فَأَمَّا ٱلَّذِينَ فِى قُلُوبِهِمْ زَيْغٌۭ فَيَتَّبِعُونَ مَا تَشَـٰبَهَ مِنْهُ ٱبْتِغَآءَ ٱلْفِتْنَةِ وَٱبْتِغَآءَ تَأْوِيلِهِۦ ۗ وَمَا يَعْلَمُ تَأْوِيلَهُۥٓ إِلَّا ٱللَّهُ ۗ وَٱلرَّٰسِخُونَ فِى ٱلْعِلْمِ يَقُولُونَ ءَامَنَّا بِهِۦ كُلٌّۭ مِّنْ عِندِ رَبِّنَا ۗ وَمَا يَذَّكَّرُ إِلَّآ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/3/7)
   * __war-raasi-khoona fil ilmi__: Woh-loag, Joo Ilm-mayn-hayn
 * __Surah Ali-Imran 3/18 (Ulul Ilm)__: [شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/3/18)
@@ -218,43 +218,7 @@
 * Ibn Sina: Philosopher and Physician
 * Al-Farabi: Philosopher
 
-## Dimensions of Ilm
-
-#### Materialistic World, One Approach, 
-* __Surah AN-Najm 53/10__: [This is the extent of their knowledge. Surely your Lord knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/53/30)
-
-#### non-Materialistic World, 2nd Approac,
-* ...
-
-#### Islam World:
-* __Surah Nahl 16/10-13__: [He is the One Who sends down rain from the sky, from which you drink and by which plants grow for your cattle to graze. With it He produces for you ˹various˺ crops, olives, palm trees, grapevines, and every type of fruit. Surely in this is a sign for those who reflect. And He has subjected for your benefit the day and the night, the sun and the moon. And the stars have been subjected by His command. Surely in this are signs for those who understand. And ˹He subjected˺ for you whatever He has created on earth of varying colours.1 Surely in this is a sign for those who are mindful.](https://quran.com/16/10-11)
-
-* __Surah Luqman 31/20__: [Have you not seen that Allah has subjected for you whatever is in the heavens and whatever is on the earth, and has lavished His favours upon you, both seen and unseen? ˹Still˺ there are some who dispute about Allah without knowledge, or guidance, or an enlightening scripture.
-](https://quran.com/31/20)
-
-***
-
-* Idol Worshippers (Gods and Goddesses)
-* Super Powers (Masters and Servants)
-
 *** 
-
-* __Surah 2/245 (Talut...Ilm & Jism)__:[](https://quran.com/2/247)
-* __Surah 2/251__: [](https://quranwbw.com/2/251)
-
-* __Surah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quran.com/39/9)
-
-* __Surah Al-Kahf 18/65/__: [There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.](quran.com/18/65)
-
-* __Surah 27/15__: [Indeed, We granted knowledge to David and Solomon. And they said ˹in acknowledgment˺, “All praise is for Allah Who has privileged us over many of His faithful servants.”](https://quran.com/27/15)
-
-* __Surah Al-Anbiyaa 21/79__: [](https://quranwbw.com/21/79)
-
-* __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
-
-***
-
-***
 
 #### [Quran ka Tasawwur-e-Ilm | Allama Talib Jauhari](https://www.youtube.com/watch?v=GzXKf28EShE)
 * 25:00 mins
@@ -293,3 +257,7 @@
 #### [Ilm Mukammal Kb Hota Hay? | Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)
 
 ***
+
+* __Surah 27/15__: [وَلَقَدْ ءَاتَيْنَا دَاوُۥدَ وَسُلَيْمَـٰنَ عِلْمًۭا ۖ وَقَالَا ٱلْحَمْدُ لِلَّهِ ٱلَّذِى فَضَّلَنَا عَلَىٰ كَثِيرٍۢ مِّنْ عِبَادِهِ ٱلْمُؤْمِنِينَ](https://quran.com/27/15)
+
+* __Surah Al-Anbiyaa 21/79__: [فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ وَكُلًّا ءَاتَيْنَا حُكْمًۭا وَعِلْمًۭا ۚ وَسَخَّرْنَا مَعَ دَاوُۥدَ ٱلْجِبَالَ يُسَبِّحْنَ وَٱلطَّيْرَ ۚ وَكُنَّا فَـٰعِلِينَ](https://quran.com/21/79)

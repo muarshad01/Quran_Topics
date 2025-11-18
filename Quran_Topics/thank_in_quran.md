@@ -4,6 +4,12 @@
 
 ***
 
+#### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
+* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quran.com/76/3)
+* __Surah Al-Insan 76/1-3__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا ١...إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍۢ نَّبْتَلِيهِ فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا ٢...إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا ٣](https://quran.com/76/1-3)
+
+***
+
 #### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
 * Who qadre-ajeeb-hai...
 * __Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ATAA-karda-hai__
@@ -27,12 +33,6 @@
 * Dawood-ka apna kuch-bhi-nahi kay jis-baat-par mayn-shukar-ada-karon
 * O Dawd, yeah Tera-itaraaf hai-joo, yehi-shukar-hai, jis-par tu-nay haqq-ada kar-diya.
 * __Shukar-kay-alfaz bhi Tu-nay hi-shikai.__
-
-***
-
-#### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
-* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quran.com/76/3)
-* __Surah Al-Insan 76/1-3__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا ١...إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍۢ نَّبْتَلِيهِ فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا ٢...إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا ٣](https://quran.com/76/1-3)
 
 ***
 

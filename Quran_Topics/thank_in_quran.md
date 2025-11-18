@@ -53,14 +53,13 @@
 
 #### [Shukr-ka-Mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
 * __Surah Al-Maaida (Anbia: Issa & Maryma AS (They both ate food))__: [مَّا ٱلْمَسِيحُ ٱبْنُ مَرْيَمَ إِلَّا رَسُولٌۭ قَدْ خَلَتْ مِن قَبْلِهِ ٱلرُّسُلُ وَأُمُّهُۥ صِدِّيقَةٌۭ ۖ كَانَا يَأْكُلَانِ ٱلطَّعَامَ ۗ ٱنظُرْ كَيْفَ نُبَيِّنُ لَهُمُ ٱلْـَٔايَـٰتِ ثُمَّ ٱنظُرْ أَنَّىٰ يُؤْفَكُونَ](https://quran.com/5/75)
-* __Surah Ibrahim 14/34__: [Indeed humankind is truly unfair, ˹totally˺ ungrateful.](https://quranwbw.com/14/34)
-* __Surah An-Nahl 16/78__: [And Allah brought you out of the wombs of your mothers while you knew nothing, and gave you hearing, sight, and intellect so perhaps you would be thankful.](https://quran.com/16/78)
-* Your purpose of creation is: Offer Shukria
-* __Surah An-Nahl 16/120-121__: [(120) Indeed, Abraham was a model of excellence: devoted to Allah, ˹perfectly˺ upright—not a polytheist— (121) ˹utterly˺ grateful for Allah’s favours. ˹So˺ He chose him and guided him to the Straight Path.](https://quran.com/16/120-121)
-* __Surah Al-Isra 17/3 (Noah)__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3)
-* __Surah Saba 34/13__: [Only˺ a few of My servants are ˹truly˺ grateful.](https://quranwbw.com/34/13)
-* `Tumhara-aur-Allah(SWT) Ka Rishta Faqat Shukar-Ka-Rishta Hai`
-* __Surah Al-Waqiah 56/68__: [(68) Have you considered the water you drink? (69) Is it you who bring it down from the clouds, or is it We Who do so? (70) If We willed, We could make it salty. Will you not then give thanks?](https://quran.com/56/68)
+* __Surah Ibrahim 14/34__: [وَءَاتَىٰكُم مِّن كُلِّ مَا سَأَلْتُمُوهُ ۚ وَإِن تَعُدُّوا۟ نِعْمَتَ ٱللَّهِ لَا تُحْصُوهَآ ۗ إِنَّ ٱلْإِنسَـٰنَ لَظَلُومٌۭ كَفَّارٌۭ](https://quran.com/14/34)
+* __Surah An-Nahl 16/78__: [وَٱللَّهُ أَخْرَجَكُم مِّنۢ بُطُونِ أُمَّهَـٰتِكُمْ لَا تَعْلَمُونَ شَيْـًۭٔا وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۙ لَعَلَّكُمْ تَشْكُرُونَ ٧٨](https://quran.com/16/78)
+  * Your purpose-of-creation is: Offer Shukria
+* __Surah An-Nahl 16/120-121 (Ibrahim AS)__: [(120) إِنَّ إِبْرَٰهِيمَ كَانَ أُمَّةًۭ قَانِتًۭا لِّلَّهِ حَنِيفًۭا وَلَمْ يَكُ مِنَ ٱلْمُشْرِكِينَ (121) شَاكِرًۭا لِّأَنْعُمِهِ ۚ ٱجْتَبَىٰهُ وَهَدَىٰهُ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ ](https://quran.com/16/120-121)
+* __Surah Al-Isra 17/3 (Noah AS)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3)
+* __Surah Saba 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
+* __Surah Al-Waqiah 56/68-70__: [(68) أَفَرَءَيْتُمُ ٱلْمَآءَ ٱلَّذِى تَشْرَبُونَ  (69) ءَأَنتُمْ أَنزَلْتُمُوهُ مِنَ ٱلْمُزْنِ أَمْ نَحْنُ ٱلْمُنزِلُونَلَوْ نَشَآءُ جَعَلْنَـٰهُ أُجَاجًۭا فَلَوْلَا تَشْكُرُونَ (70) ](https://quran.com/56/68)
 * __Surah Al-Insaan 76/12__: [and reward them for their perseverance with a Garden ˹in Paradise˺ and ˹garments of˺ silk.](https://quranwbw.com/76/12)
 * __Surah Al-Insaan 76/22__: [Your striving has been appreciated.”](https://quranwbw.com/76/22)
 * __Surah Al-Insaan 76/7-9__: [(7)(8)(9)](https://quranwbw.com/76/7-9)

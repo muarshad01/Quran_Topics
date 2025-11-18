@@ -6,8 +6,8 @@
 
 #### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
 * Who qadre-ajeeb-hai...
-* __Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ataa-karda-hai__
-* Jo-kuch merey-pass-hai...uss-par mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai
+* __Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ATAA-karda-hai__
+* Jo-kuch merey-pass-hai...uss-par-mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai
 * __Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai.__
 
 ***
@@ -17,15 +17,15 @@
 ***
 
 #### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
-* __Surah 34/13__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
-* Ah Allah mayn terey-shukar ka-haqq ada-hi-nahi kar-sakta
-* __Tongue__: Jis-zaban-say Al-hamad-u-lillah kehta-hoon, wo-zaban-bhi Tu-nay ata-ki-hai
+* __Surah Saba 34/13 (ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ)__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
+* __Ah Allah mayn terey-shukar ka-haqq ada-hi-nahi kar-sakta__
+* __Tongue__: Jis-zaban-say, Al-hamad-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) kehta-hoon, wo-zaban-bhi Tu-nay ata-ki-hai
 * __Forehead__: Jis-mathay-ko zameen-pay tekhta-hoon, woh matha-bhi Tu-nay-hi ata-kiya-hai
-* Jis-zameen par tekta-hoon, who-zameen bhi Tu-nay paida ki-hai
+  * Jis-zameen par tekta-hoon, who-zameen bhi Tu-nay paida ki-hai
 * __Eyes__: Jin-ankhoon say ansoo-bahata-hoon, woh-ansoo-bhi Tu-nay ata-keyay-hayn
   * Aankhayn bhi Teri-hayn
 * Dawood-ka apna kuch-bhi-nahi kay jis-baat-par mayn-shukar-ada-karon
-* O Dawd, yeah Tera-itaraaf hai-joo, yehi-shukar-hai, jis par tu-nay haqq-ada kar-diya.
+* O Dawd, yeah Tera-itaraaf hai-joo, yehi-shukar-hai, jis-par tu-nay haqq-ada kar-diya.
 * __Shukar-kay-alfaz bhi Tu-nay hi-shikai.__
 
 ***
@@ -73,7 +73,7 @@
 ***
 
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)
-* Shukar aik jazba hai (Jazba-e-Tashakar)
+* __Shukar aik jazba hai (Jazba-e-Tashakar)__
 * Fitrat-ki-sehat-ki alamat-hai
 * __Surah Al-Anam 6/74-90__: [](https://quran.com/6/74-90)
 * __Surah Luqman 31/12__: [وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ أَنِ ٱشْكُرْ لِلَّهِ ۚ وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ ۖ وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌۭ](https://quran.com/31/12)

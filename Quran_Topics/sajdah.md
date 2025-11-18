@@ -40,7 +40,7 @@
 
 * __Surah Al-Inshiqaq (84:21)__: [](https://quranwbw.com/84/21)
 
-* __Surah Alaq 96/19 (Qurab)__: [Again, no! Never obey him ˹O Prophet˺! Rather, ˹continue to˺ prostrate and draw near ˹to Allah˺.](https://quran.com/96/19)
+* __Surah Alaq 96/19 (Sajdah & Qurab)__: [Again, no! Never obey him ˹O Prophet˺! Rather, ˹continue to˺ prostrate and draw near ˹to Allah˺.](https://quran.com/96/19) -- Ayat Sajdah!!!
 
 *** 
 

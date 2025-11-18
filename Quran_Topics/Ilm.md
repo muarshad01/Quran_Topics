@@ -248,10 +248,6 @@
 
 ***
 
-#### [Ilm | Allama Talib Johri](https://www.youtube.com/shorts/WCtSZUH_X_U)
-
-***
-
 ## Tahir-ul-Qadri
 
 #### [Ilm Mukammal Kb Hota Hay? | Tahir-ul-Qadri](https://www.youtube.com/watch?v=vuZqDqV9Y9I)

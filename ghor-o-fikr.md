@@ -8,5 +8,6 @@
 ***
 
 #### [Quran kesi kitaab hy | Allama Talib Johri](https://www.youtube.com/watch?v=3BtSYQe38rc)
+* __Surah Al-Waqiah 56/77-79__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ](https://quran.com/56/77-79)
 
 ***

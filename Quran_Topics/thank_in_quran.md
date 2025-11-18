@@ -52,7 +52,7 @@
 ***
 
 #### [Shukr-ka-Mafhoom | Allama Talib Johri](https://www.youtube.com/watch?v=WLqIBc78TrM)
-* __Surah Al-Maaida (Anbia: Issa & Maryma AS (They both ate food))__: [kaanaa yaa-kulaanit ta'aam ](https://quranwbw.com/5/75)
+* __Surah Al-Maaida (Anbia: Issa & Maryma AS (They both ate food))__: [مَّا ٱلْمَسِيحُ ٱبْنُ مَرْيَمَ إِلَّا رَسُولٌۭ قَدْ خَلَتْ مِن قَبْلِهِ ٱلرُّسُلُ وَأُمُّهُۥ صِدِّيقَةٌۭ ۖ كَانَا يَأْكُلَانِ ٱلطَّعَامَ ۗ ٱنظُرْ كَيْفَ نُبَيِّنُ لَهُمُ ٱلْـَٔايَـٰتِ ثُمَّ ٱنظُرْ أَنَّىٰ يُؤْفَكُونَ](https://quran.com/5/75)
 * __Surah Ibrahim 14/34__: [Indeed humankind is truly unfair, ˹totally˺ ungrateful.](https://quranwbw.com/14/34)
 * __Surah An-Nahl 16/78__: [And Allah brought you out of the wombs of your mothers while you knew nothing, and gave you hearing, sight, and intellect so perhaps you would be thankful.](https://quran.com/16/78)
 * Your purpose of creation is: Offer Shukria

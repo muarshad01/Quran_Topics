@@ -1,9 +1,7 @@
-* Ilm aik wasila-hai, Ilm Marfat-e-Ilahi ka zarai-hai, Rabb say qareeb-say-qareeb tar hona-hai
-
-***
-
 * __Surah Az-Zumar 39/9__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ](https://quran.com/39/9)
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
+* Rabb say qareeb-say-qareeb tar hona-hai
+* Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai
 
 ***
 
@@ -30,7 +28,7 @@
 ***
 
 #### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
-* If you want to acquire Ilm then first become OBEDIENT-with-everyone. -- Ali RA
+* If you want to acquire-Ilm then first become OBEDIENT-with-everyone. -- Ali RA
 * Ilm sun-nah say hasil-hota-hai aur bol-nay say zaya-ho-jata-hai.
 * Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
 * Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
@@ -116,7 +114,7 @@
 
 * __Surah Al-Anam 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ...وَهُوَ ٱلَّذِى يَتَوَفَّىٰكُم بِٱلَّيْلِ وَيَعْلَمُ مَا جَرَحْتُم بِٱلنَّهَارِ ثُمَّ يَبْعَثُكُمْ فِيهِ لِيُقْضَىٰٓ أَجَلٌۭ مُّسَمًّۭى ۖ ثُمَّ إِلَيْهِ مَرْجِعُكُمْ ثُمَّ يُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ](https://quranwbw.com/6/59-60)
 * __Surah Al-Jumuah 62/2__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quranwbw.com/62/2)
-* __Surah 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quranwbw.com/87/6)
+* __Surah 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quran.com/87/6)
 
 ***
 
@@ -168,8 +166,7 @@
 
 ## Allama Talib Johri
 
-#### [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM)
-* 27 mins
+#### [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM) -- 27 mins
 1. Haqiqat ka munkishaf hoo-janaa
 2. kisi-sah-ki tasweer-kaa aqal-kay-andar aa-janaa
 * There are THREE dimension of Ilm:

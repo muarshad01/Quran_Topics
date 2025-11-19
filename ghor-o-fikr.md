@@ -1,8 +1,8 @@
-#### [Quran Mojeza Hai | Allama Talib Jauhari](https://www.youtube.com/watch?v=15cG_e-o-kM)
+#### [Quran Mojeza Hai | Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=15cG_e-o-kM)
 
 ***
 
-#### [Quran Mojeza Hai || Part II || Fehm ul Quran || Allama Talib Jauhari](https://www.youtube.com/watch?v=vuHAh4_fi14)
+#### [Quran Mojeza Hai | Part II | Allama Talib Jauhari](https://www.youtube.com/watch?v=vuHAh4_fi14)
 
 ***
 

@@ -36,3 +36,12 @@
 
 #### [Quran aur Waris-e-Quran Mojza hen | Allama Talib Johri](https://www.youtube.com/watch?v=z23Mq0dNjaA)
 
+***
+
+#### [Ehtram-e-Nisbat aur Qurbat-e-Elahi | Allama Talib Johri](https://www.youtube.com/watch?v=AaYH1Pfn0iQ)
+
+***
+
+#### [ Emaan aur Amal-e-Saleh | Allama Talib Johri](https://www.youtube.com/watch?v=P3u1LQb_wh8)
+
+***

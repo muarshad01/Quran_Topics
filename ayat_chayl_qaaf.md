@@ -1,4 +1,6 @@
 #### [Chehl kaaf ka wazeefa by Shaykh peer Abdul Qadir Jilani | Prof ARA](https://www.youtube.com/watch?v=S7Cp3uW4Vn8)
+* https://www.dawateislami.net/gallery/22019
+* https://in.pinterest.com/pin/dua-e-chahal-kaaf-powerful-dua--81979655709536315/
 
 ***
 

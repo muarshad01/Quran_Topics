@@ -1,3 +1,7 @@
+#### [Quran Mojeza Hai | Allama Talib Jauhari](https://www.youtube.com/watch?v=15cG_e-o-kM)
+
+***
+
 #### [Quran me Ghor-o-Fikr karo | Allama Talib Johri](https://www.youtube.com/watch?v=2hz8cr6fPYs&list=PLS-2XexRgDrFKO8t3zwbD_q51aL6QngU5&index=23)
 * __Surah 4/82 (Quran's complaint)__: [أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ ۚ وَلَوْ كَانَ مِنْ عِندِ غَيْرِ ٱللَّهِ لَوَجَدُوا۟ فِيهِ ٱخْتِلَـٰفًۭا كَثِيرًۭا](https://quran.com/4/82)
 * __Surah 47/24 (Quran's complaint)__: [أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ أَمْ عَلَىٰ قُلُوبٍ أَقْفَالُهَآ](https://www.youtube.com/watch?v=2hz8cr6fPYs&list=PLS-2XexRgDrFKO8t3zwbD_q51aL6QngU5&index=23)
@@ -52,9 +56,5 @@
 ***
 
 #### [ Emaan aur Amal-e-Saleh | Allama Talib Johri](https://www.youtube.com/watch?v=P3u1LQb_wh8)
-
-***
-
-#### [Quran Mojeza Hai | Allama Talib Jauhari](https://www.youtube.com/watch?v=15cG_e-o-kM)
 
 ***

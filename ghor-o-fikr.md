@@ -45,3 +45,7 @@
 #### [ Emaan aur Amal-e-Saleh | Allama Talib Johri](https://www.youtube.com/watch?v=P3u1LQb_wh8)
 
 ***
+
+#### [Quran Mojeza Hai | Allama Talib Jauhari](https://www.youtube.com/watch?v=15cG_e-o-kM)
+
+***

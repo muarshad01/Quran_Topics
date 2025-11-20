@@ -1,5 +1,5 @@
 * Darwaisha tarz-e-zindagi
-* __Darwaish khabi-kisi-par tanqeed (CRITICISM) nahi-karta__
+* __Darwaish khabi-kisi-par tanqeed (CRITICISM) nahi-karta__ (https://www.youtube.com/watch?v=R_P9BAf0UZ0)
 * Jo darwaish nahi-hai woh darwaish-ko nahi-pechahan-taa - Wasif Ali Wasif
 
 ***

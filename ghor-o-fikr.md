@@ -81,7 +81,7 @@
 
 ***
 
-#### [Quran aur Waris-e-Quran Mojza hen | Allama Talib Johri](https://www.youtube.com/watch?v=z23Mq0dNjaA)
+#### [Quran aur Waris-e-Quran Mojza Hayn | Allama Talib Johri](https://www.youtube.com/watch?v=z23Mq0dNjaA)
 
 ***
 

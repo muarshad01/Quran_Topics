@@ -98,3 +98,21 @@
 ### [Noor kia hy | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
 
 ***
+
+## [Noor-kia-hay | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
+* Hazrat Ali RA was 27 years younger than Prophet Muhammad (PBUH)
+* Christian Bishob `Noor-e-nabuwat`
+* __Abad: Rooh + Jism__
+* [(4)Chapter: The Virtues Of 'Ali Bin Abi Talib (RA)](https://sunnah.com/muslim:2408a)
+    * I am about to receive a messenger (the angel of death) from my Lord and I, in response to Allah's call, (would bid good-bye to you), but I am leaving among you two weighty things: the one being the Book of Allah in which there is right guidance and light, so hold fast to the Book of Allah and adhere to it. He exhorted (us) (to hold fast) to the Book of Allah and then said: The second are the members of my household I remind you (of your duties) to the members of my family. He (Husain) said to Zaid: Who are the members of his household? Aren't his wives the members of his family? Thereupon he said: His wives are the members of his family (but here) the members of his family are those for whom acceptance of Zakat is forbidden. And he said: Who are they? Thereupon he said: 'Ali and the offspring of 'Ali, 'Aqil and the offspring of 'Aqil and the offspring of Ja'far and the offspring of 'Abbas. Husain said: These are those for whom the acceptance of Zakat is forbidden. Zaid said: Yes.
+* __Surah At-Tahreem 6/8 (Ma'ahu)__: [on the Day Allah will not disgrace the Prophet or the believers with him](https://quran.com/66/8)
+* __Surah Al-Maaida 5/15 (Light and Clear Book)__: [O People of the Book! Now Our Messenger has come to you, revealing much of what you have hidden of the Scriptures and disregarding much. There certainly has come to you from Allah a light and a clear Book](https://quranwbw.com/5/15)
+* __Surah Al Israa 17/1__: [Glory be to the One Who took His servant ˹Muḥammad˺ by night from the Sacred Mosque to the Farthest Mosque whose surroundings We have blessed, so that We may show him some of Our signs.1 Indeed, He2 alone is the All-Hearing, All-Seeing.](https://quranwbw.com/17/1)
+* __Surah An-Noor 24/35 & 40__: []()
+* __Surah Al-Furqaan 25/35__: [We certainly gave Moses the Book and appointed his brother Aaron as his helper.
+](https://quranwbw.com/25/35)
+* __Surah At-Tahrim 66/8__: [Their light will shine ahead of them and on their right....](https://quranwbw.com/66/8)
+*  __Surah Al-Fajr 89/27-30__: [˹Allah will say to the righteous,˺ “O tranquil soul! Return to your Lord, well pleased ˹with Him˺ and well pleasing ˹to Him˺. So join My servants, Wadkhulee jannatee](https://quranwbw.com/89/27-30)
+* __Surah Al-Alaq 96/9-10__: [Have you seen the man who prevents. a servant ˹of Ours˺ from praying?](https://quran.com/96/9-10)
+ 
+***

@@ -6,6 +6,10 @@
 
 ***
 
+#### [The Quran is new and never wears out | Allama Talib Jauhari](https://www.youtube.com/watch?v=YXASI59wwtQ)
+
+***
+
 #### [Quran me Ghor-o-Fikr karo | Allama Talib Johri](https://www.youtube.com/watch?v=2hz8cr6fPYs&list=PLS-2XexRgDrFKO8t3zwbD_q51aL6QngU5&index=23)
 * __Surah 4/82 (Quran's complaint)__: [أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ ۚ وَلَوْ كَانَ مِنْ عِندِ غَيْرِ ٱللَّهِ لَوَجَدُوا۟ فِيهِ ٱخْتِلَـٰفًۭا كَثِيرًۭا](https://quran.com/4/82)
 * __Surah 47/24 (Quran's complaint)__: [أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ أَمْ عَلَىٰ قُلُوبٍ أَقْفَالُهَآ](https://www.youtube.com/watch?v=2hz8cr6fPYs&list=PLS-2XexRgDrFKO8t3zwbD_q51aL6QngU5&index=23)

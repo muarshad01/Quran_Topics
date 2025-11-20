@@ -98,7 +98,3 @@
 #### [ Emaan aur Amal-e-Saleh | Allama Talib Johri](https://www.youtube.com/watch?v=P3u1LQb_wh8)
 
 ***
-
-#### [Bismillah ki tafseer | Allama Talib Jauhari](https://www.youtube.com/watch?v=-8ZNeViFZZ4)
-
-***

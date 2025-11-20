@@ -454,3 +454,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ### [Moqam e Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
 
 ***
+
+## [Takhleeq-e-Kainat aur Noor-e-Muhammadi ﷺ | Allama Talib Johri](https://www.youtube.com/watch?v=kXaGChI0aQs)
+
+***

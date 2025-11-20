@@ -50,9 +50,9 @@
 > * __Surah Hud 11/1 (كِتَـٰبٌ أُحْكِمَتْ ءَايَـٰتُهُۥ)__: [الٓر ۚ كِتَـٰبٌ أُحْكِمَتْ ءَايَـٰتُهُۥ ثُمَّ فُصِّلَتْ مِن لَّدُنْ حَكِيمٍ خَبِيرٍ](https://quran.com/11/1)
 > * __Surah Az-Zumar 39/23 (كِتَـٰبًۭا مُّتَشَـٰبِهًۭا)__: [ٱللَّهُ نَزَّلَ أَحْسَنَ ٱلْحَدِيثِ كِتَـٰبًۭا مُّتَشَـٰبِهًۭا](https://quran.com/39/23)
 > * Imaam Jafar al-Sadiq tells about Three types of people:
-> - 1. Kitaab ka-Munkir: All is Mutashaba
-> - 2. Kitaab ka-Momin: Some Mohkum and Some Mutashaba 
-> - 3. Kitaab ka-Waris: All is Mohkum
+> - Kitaab ka-Munkir: All is Mutashaba
+> - Kitaab ka-Momin: Some Mohkum and Some Mutashaba 
+> - Kitaab ka-Waris: All is Mohkum
 
 ***
 

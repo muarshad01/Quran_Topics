@@ -59,3 +59,12 @@
 ### [Iblees ka Sajda Hazrat Adam (a.s) Se Inkar Aur Khuda Ka Jalal...!! | Allama Talib jhori](https://www.youtube.com/watch?v=Isc8lYfD4UA)
 
 ***
+
+## [039 | Ghair Allah Ko Sajda](https://www.youtube.com/watch?v=oRod4wme_BE)
+* __Surah Al-Baqarah 2/33-26__: [And ˹remember˺ when We said to the angels, “Prostrate before Adam,”1 so they all did—but not Iblîs,2 who refused and acted arrogantly,3 becoming unfaithful.](https://quranwbw.com/2/33-36)
+* __Surah Araaf 7/11-13__: [Surely We created you,1 then shaped you, then said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs,2 who refused to prostrate with the others.](https://quranwbw.com/7/11-13)
+* __Surah Al-Anaam 6/163__: [He has no partner. So I am commanded, and so I am the first to submit.”](https://quranwbw.com/6/163)
+* __Surah Al Israa 17/62__: [Adding, “Do you see this one you honoured above me? If you delay my end until the Day of Judgment, I will certainly take hold of his descendants, except for a few.”](https://quranwbw.com/17/62)
+* __kaa-naa (Thaa) verses saa-raa (Hoah-gaya)__
+
+***

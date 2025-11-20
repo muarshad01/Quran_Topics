@@ -4,6 +4,12 @@
 * Arab: Boolnay wala
 * Ajam: Goongah
 
+> * __Surah Al-Baqara 2/231 (هُزُوًۭا)__: [وَلَا تَتَّخِذُوٓا۟ ءَايَـٰتِ ٱللَّهِ هُزُوًۭا ۚ](https://quran.com/2/231)
+> * __Surah Al-Kahf 18/56 (هُزُوًۭا)__: [وَٱتَّخَذُوٓا۟ ءَايَـٰتِى وَمَآ أُنذِرُوا۟ هُزُوًۭا ](https://quran.com/18/56)
+> * __Surah Nuh 71/22 (كُبَّارًۭا)__: [وَمَكَرُوا۟ مَكْرًۭا كُبَّارًۭا](https://quran.com/71/22)
+> * __Surah Sad 38/5 (لَشَىْءٌ عُجَابٌۭ)__: [إِنَّ هَـٰذَا لَشَىْءٌ عُجَابٌۭ](https://quran.com/38/5)
+> Aa Tatakhizuni Huzuwa (Ridicule). Wa Inni Sheikun Kubbar (Older man). Wa Inn Haza Minka Lashayin Ujab (This is very strange from you).
+
 ***
 
 #### [Quran Mojeza Hai | Part II | Allama Talib Jauhari](https://www.youtube.com/watch?v=vuHAh4_fi14)

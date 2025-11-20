@@ -30,7 +30,7 @@
 
 ***
 
-#### [Quran me Ghor-o-Fikr karo | Allama Talib Johri](https://www.youtube.com/watch?v=2hz8cr6fPYs&list=PLS-2XexRgDrFKO8t3zwbD_q51aL6QngU5&index=23)
+#### [Quran may Ghor-o-Fikr Karo | Allama Talib Johri](https://www.youtube.com/watch?v=2hz8cr6fPYs&list=PLS-2XexRgDrFKO8t3zwbD_q51aL6QngU5&index=23)
 * __Surah Nisa 4/82 (أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ)__: [أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ ۚ وَلَوْ كَانَ مِنْ عِندِ غَيْرِ ٱللَّهِ لَوَجَدُوا۟ فِيهِ ٱخْتِلَـٰفًۭا كَثِيرًۭا](https://quran.com/4/82)
 * __Surah Muhammad 47/24 (أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ)__: [أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ أَمْ عَلَىٰ قُلُوبٍ أَقْفَالُهَآ](https://quran.com/47/24)
 * __Surah Yusuf 12/105 (Quran's complaint)__: [وَكَأَيِّن مِّنْ ءَايَةٍۢ فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ يَمُرُّونَ عَلَيْهَا وَهُمْ عَنْهَا مُعْرِضُونَ](https://quran.com/12/105)
@@ -55,7 +55,7 @@
 * __Surah 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quran.com/3/144)
 ***
 
-#### [Quran kesi kitaab hy | Allama Talib Johri](https://www.youtube.com/watch?v=3BtSYQe38rc) -- 20 min
+#### [Quran kesi kitaab hay | Allama Talib Johri](https://www.youtube.com/watch?v=3BtSYQe38rc) -- 20 min
 * __Surah Al-Waqiah 56/77-79 (لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ)__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ](https://quran.com/56/77-79)
   * We've kept it in a hidden book (Quran versus Kitab)
   * Alfaaz (Words) versus Maani (Meaning)

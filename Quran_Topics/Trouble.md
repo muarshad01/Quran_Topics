@@ -4,7 +4,7 @@
 ***
 
 #### [Your Destiny is not fixed |Allah change faith when you strive | Prof ARA](https://www.youtube.com/watch?v=Ypnli4WqgQ4)
-
+* Joo bhi tum, Allah SWT say guman-karoo-gay, woh-tumhayn lutay-deh-gaa
 ***
 
 #### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)

@@ -3,6 +3,10 @@
 
 ***
 
+#### [Your Destiny is not fixed |Allah change faith when you strive | Prof ARA](https://www.youtube.com/watch?v=Ypnli4WqgQ4)
+
+***
+
 #### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/allah-humma-ahsin-aiqibatna.png" width="300" height="300" />
 

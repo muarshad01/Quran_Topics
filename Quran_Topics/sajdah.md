@@ -47,3 +47,11 @@
 #### [Ghair Allah Ko Sajda Shirk Hai Phir Adam(A.S)Ko Sajda Kyun Karwaya? Zabardast Aitraaz | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=_OdMnvi-XWw)
 
 *** 
+
+### [Sajda | Allama Talib Johri](https://www.youtube.com/watch?v=uKUe-14FRyI)
+* __Surah Al-Qalam 68/10__: [And do not obey the despicable, vain oath-taker,](https://quranwbw.com/68/10)
+* __Surah Al-Qalam 68/11__: [slanderer, gossip-monger,](https://quranwbw.com/68/11)
+* __Surah Al-Qalam 68/12__: [withholder of good, transgressor, evildoer,](https://quranwbw.com/68/12)
+* __Surah Al-Qalam 68/13__: [brute, and—on top of all that—an illegitimate child.](https://quranwbw.com/68/13)
+
+***

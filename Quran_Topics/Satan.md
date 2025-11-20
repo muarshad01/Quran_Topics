@@ -319,3 +319,9 @@
 ***
 
 #### [😱Shaitan Nafarman Kyun⁉️ | سب کچھ دیکھ کر بھی شیطان نے انکار کیوں کیا؟ | Javed Ahmed Ghamidi](https://www.youtube.com/watch?v=5MaVzD678cc)
+
+***
+
+### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=TS5pmz8Sc3s)
+
+***

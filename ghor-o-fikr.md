@@ -3,8 +3,8 @@
 * __Surah Al-Baqarah 2/23-24__: [](https://quran.com/2/23-24)
 
 > * Arab versus Ajam:
->  * Arab: Boolnay wala
->  * Ajam: Goongah
+> - Arab: Boolnay wala
+> - Ajam: Goongah
 
 > * __Surah Al-Baqara 2/231 (هُزُوًۭا)__: [وَلَا تَتَّخِذُوٓا۟ ءَايَـٰتِ ٱللَّهِ هُزُوًۭا ۚ](https://quran.com/2/231)
 > * __Surah Al-Kahf 18/56 (هُزُوًۭا)__: [وَٱتَّخَذُوٓا۟ ءَايَـٰتِى وَمَآ أُنذِرُوا۟ هُزُوًۭا ](https://quran.com/18/56)

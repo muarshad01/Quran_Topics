@@ -85,3 +85,7 @@
     * In Arabic, the word "لَشَتَّىٰ" (lashattaa) from the Quran 93:4, means diverse, divergent, or scattered, referring to different types of efforts, deeds, and aims
 
 ***
+
+### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
+
+***

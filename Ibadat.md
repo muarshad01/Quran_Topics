@@ -34,3 +34,9 @@
 ***
 
 * __Surah 25/63-66 (Abaad-Dur-Rehman...say...Salaam-to-Jahil)__ : [](https://quran.com/25/63-66)
+
+***
+
+#### [ Allah-ki-Ibadat karny-ka-Hukum | Allama Talib Johri](https://www.youtube.com/watch?v=WRYUlWOie2E)
+
+***

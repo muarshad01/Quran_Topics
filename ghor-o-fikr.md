@@ -22,11 +22,10 @@
 > * __Surah 11/13 (Challenge of Quran: Similar TEN-Surah)__: [أَمْ يَقُولُونَ افْتَرَاهُ ۖ قُلْ فَأْتُوا۟ بِعَشْرِ سُوَرٍۢ مِّثْلِهِۦ مُفْتَرَيَـٰتٍۢ وَٱدْعُوا۟ مَنِ ٱسْتَطَعْتُم مِّن دُونِ ٱللَّهِ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/11/13)
 > * __Surah Al-Baqarah 2/23-24 (Challenge of Quran: Similar ONE-Surah))__: [وَإِن كُنتُمْ فِى رَيْبٍۢ مِّمَّا نَزَّلْنَا عَلَىٰ عَبْدِنَا فَأْتُوا۟ بِسُورَةٍۢ مِّن مِّثْلِهِۦ وَٱدْعُوا۟ شُهَدَآءَكُم مِّن دُونِ ٱللَّهِ إِن كُنتُمْ صَـٰدِقِينَ...فَإِن لَّمْ تَفْعَلُوا۟ وَلَن تَفْعَلُوا۟ فَٱتَّقُوا۟ ٱلنَّارَ ٱلَّتِى وَقُودُهَا ٱلنَّاسُ وَٱلْحِجَارَةُ ۖ أُعِدَّتْ لِلْكَـٰفِرِينَ](https://quran.com/2/23-24)
 * 10:00 pm
-* __Surah Nahl 16/103__: [وَلَقَدْ نَعْلَمُ أَنَّهُمْ يَقُولُونَ إِنَّمَا يُعَلِّمُهُۥ بَشَرٌۭ ۗ لِّسَانُ ٱلَّذِى يُلْحِدُونَ إِلَيْهِ أَعْجَمِىٌّۭ وَهَـٰذَا لِسَانٌ عَرَبِىٌّۭ مُّبِينٌ](https://quran.com/16/103)
-
-***
-
-#### [The Quran is NEW and never-wears-out | Allama Talib Jauhari](https://www.youtube.com/watch?v=YXASI59wwtQ)
+* __Hadith of the Thaqalayn__: The Musnad Ahmad ibn Hanbal contains versions of the Hadith of the Thaqalayn, a famous narration attributed to the Prophet Muhammad stating he is leaving behind two weighty things: the Quran and his progeny (Ahl al-Bayt). These two are described as being inseparable and the source of guidance for his community. The hadith is found in both Sunni and Shia sources, including Musnad Ahmad, and emphasizes the importance of following both the Quran and the Prophet's family together. 
+* __Surah An-Nahl 16/103__: [وَلَقَدْ نَعْلَمُ أَنَّهُمْ يَقُولُونَ إِنَّمَا يُعَلِّمُهُۥ بَشَرٌۭ ۗ لِّسَانُ ٱلَّذِى يُلْحِدُونَ إِلَيْهِ أَعْجَمِىٌّۭ وَهَـٰذَا لِسَانٌ عَرَبِىٌّۭ مُّبِينٌ](https://quran.com/16/103)
+* __Surah Yusuf 12/2__: [إِنَّآ أَنزَلْنَـٰهُ قُرْءَٰنًا عَرَبِيًّۭا لَّعَلَّكُمْ تَعْقِلُونَ](https://quran.com/12/2)
+* Adeed + Alam Deen + Economics + Politics + Philosophy + History + Ilm-e-Ghayab
 * __Surah 4/82 (أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ)__: [وَلَوْ كَانَ مِنْ عِندِ غَيْرِ ٱللَّهِ لَوَجَدُوا۟ فِيهِ ٱخْتِلَـٰفًۭا كَثِيرًۭا](https://quran.com/4/82)
 
 ***

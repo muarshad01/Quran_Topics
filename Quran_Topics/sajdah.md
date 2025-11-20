@@ -55,3 +55,7 @@
 * __Surah Al-Qalam 68/13__: [brute, and—on top of all that—an illegitimate child.](https://quranwbw.com/68/13)
 
 ***
+
+### [Iblees ka Sajda Hazrat Adam (a.s) Se Inkar Aur Khuda Ka Jalal...!! | Allama Talib jhori](https://www.youtube.com/watch?v=Isc8lYfD4UA)
+
+***

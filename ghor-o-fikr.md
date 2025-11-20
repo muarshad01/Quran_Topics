@@ -26,7 +26,8 @@
 
 ***
 
-#### [The Quran is new and never wears out | Allama Talib Jauhari](https://www.youtube.com/watch?v=YXASI59wwtQ)
+#### [The Quran is NEW and never-wears-out | Allama Talib Jauhari](https://www.youtube.com/watch?v=YXASI59wwtQ)
+* __Surah 4/82 (أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ)__: [وَلَوْ كَانَ مِنْ عِندِ غَيْرِ ٱللَّهِ لَوَجَدُوا۟ فِيهِ ٱخْتِلَـٰفًۭا كَثِيرًۭا](https://quran.com/4/82)
 
 ***
 

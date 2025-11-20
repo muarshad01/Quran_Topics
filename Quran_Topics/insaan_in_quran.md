@@ -89,3 +89,7 @@
 ### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
 
 ***
+
+### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
+
+***

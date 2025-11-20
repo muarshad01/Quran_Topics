@@ -92,3 +92,9 @@
 ***
 
 #### [What Is The Meaning of | Allahu nurus Samawati wal ard'| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
+
+***
+
+### [Noor kia hy | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
+
+***

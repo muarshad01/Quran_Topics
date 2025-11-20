@@ -1,6 +1,8 @@
 #### [Quran Mojeza Hai | Part I | Allama Talib Jauhari](https://www.youtube.com/watch?v=15cG_e-o-kM)
 * __Surah Al-Isra 17/88 (Challenge of Quran)__: [قُل لَّئِنِ ٱجْتَمَعَتِ ٱلْإِنسُ وَٱلْجِنُّ عَلَىٰٓ أَن يَأْتُوا۟ بِمِثْلِ هَـٰذَا ٱلْقُرْءَانِ لَا يَأْتُونَ بِمِثْلِهِۦ وَلَوْ كَانَ بَعْضُهُمْ لِبَعْضٍۢ ظَهِيرًۭا](https://quran.com/17/88)
 * __Surah Al-Baqarah 2/23-24__: [](https://quran.com/2/23-24)
+* Arab: Boolnay wala
+* Ajam: Goongah
 
 ***
 

@@ -5,6 +5,10 @@
 
 #### [Your Destiny is not fixed |Allah change faith when you strive | Prof ARA](https://www.youtube.com/watch?v=Ypnli4WqgQ4)
 * Joo bhi tum, Allah SWT say guman-karoo-gay, woh-tumhayn lutay-deh-gaa
+* Firaq versus Wisal
+* __Surah Ya-Sin 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
+* Allah SWT looks at Loh-e-Mehfuz 70,000 time daily. 
+
 ***
 
 #### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)

@@ -89,12 +89,5 @@
 >   * Aa Tatakhizuni Huzuwa (Ridicule).
 >   * Wa Inni Sheikun Kubbar (Older man).
 >   * Wa Inn Haza Minka Lashayin Ujab (This is very strange from you).
-***
-
-#### [Ehtram-e-Nisbat aur Qurbat-e-Elahi | Allama Talib Johri](https://www.youtube.com/watch?v=AaYH1Pfn0iQ)
-
-***
-
-#### [ Emaan aur Amal-e-Saleh | Allama Talib Johri](https://www.youtube.com/watch?v=P3u1LQb_wh8)
 
 ***

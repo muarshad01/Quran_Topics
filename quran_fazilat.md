@@ -62,6 +62,12 @@
 * __Surah Al-Insan 76/29__: [إِنَّ هَـٰذِهِۦ تَذْكِرَةٌۭ ۖ فَمَن شَآءَ ٱتَّخَذَ إِلَىٰ رَبِّهِۦ سَبِيلًۭا](https://quran.com/76/29)
 
 ***
+
+#### Challenge of Quran
+* __Surah Al-Isra 17/88 (Challenge of Quran)__: [قُل لَّئِنِ ٱجْتَمَعَتِ ٱلْإِنسُ وَٱلْجِنُّ عَلَىٰٓ أَن يَأْتُوا۟ بِمِثْلِ هَـٰذَا ٱلْقُرْءَانِ لَا يَأْتُونَ بِمِثْلِهِۦ وَلَوْ كَانَ بَعْضُهُمْ لِبَعْضٍۢ ظَهِيرًۭا](https://quran.com/17/88)
+
+***
+
 #### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)
 * Recite so loud that you can hear it yourself.
 * During recitation-of-Quran see Zirat-e-Kabba 

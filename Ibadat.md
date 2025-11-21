@@ -1,5 +1,7 @@
 
-#### [ Allah-ki-Ibadat karny-ka-Hukum | Allama Talib Johri](https://www.youtube.com/watch?v=WRYUlWOie2E)
+#### [ Allah-ki-Ibadat Karny-ka-Hukum | Allama Talib Johri](https://www.youtube.com/watch?v=WRYUlWOie2E)
+* __Surah 2/21__: [يَـٰٓأَيُّهَا ٱلنَّاسُ ٱعْبُدُوا۟ رَبَّكُمُ ٱلَّذِى خَلَقَكُمْ وَٱلَّذِينَ مِن قَبْلِكُمْ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/21)
+* __Surah 2/22__: [ٱلَّذِى جَعَلَ لَكُمُ ٱلْأَرْضَ فِرَٰشًۭا وَٱلسَّمَآءَ بِنَآءًۭ وَأَنزَلَ مِنَ ٱلسَّمَآءِ مَآءًۭ فَأَخْرَجَ بِهِۦ مِنَ ٱلثَّمَرَٰتِ رِزْقًۭا لَّكُمْ ۖ فَلَا تَجْعَلُوا۟ لِلَّهِ أَندَادًۭا وَأَنتُمْ تَعْلَمُونَ](https://quran.com/2/22)
 
 ***
 

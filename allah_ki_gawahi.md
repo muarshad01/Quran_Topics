@@ -1,2 +1,6 @@
-### [Allah ny gawahi kesy di | اللہ نے گواہی کیسے دی | Allama Talib Johri](https://www.youtube.com/watch?v=bsOf8MWFY-c)
-* __Surah__: [شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/3/18)
+#### [Allah Nay Gawahi-kesy-Di | Allama Talib Johri](https://www.youtube.com/watch?v=bsOf8MWFY-c)
+* __Surah Aal Imran 3/18__: [شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/3/18)
+     * "La ilaha illallah huwa"
+* __Surah Al-Muminun 23/115__: [أَفَحَسِبْتُمْ أَنَّمَا خَلَقْنَـٰكُمْ عَبَثًۭا وَأَنَّكُمْ إِلَيْنَا لَا تُرْجَعُونَ](https://quran.com/23/115)
+
+***

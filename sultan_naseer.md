@@ -14,11 +14,10 @@
 * He'll only teach Quran now...
 * I'll present you the way you want me to present you...but your promise is...
 * ...
-* Tuh-bhi aik anayat-kar, iss-kay-baad mujh-par-koi ghalib nah-ayae. Grant me Sultan-e-Naseer! Top Argument! Power!
+* __Tuh-bhi aik anayat-kar, iss-kay-baad mujh-par-koi ghalib nah-ayae. Grant me Sultan-e-Naseer! Top Argument! Power!__
 * __Surah 55/33__: [يَـٰمَعْشَرَ ٱلْجِنِّ وَٱلْإِنسِ إِنِ ٱسْتَطَعْتُمْ أَن تَنفُذُوا۟ مِنْ أَقْطَارِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ فَٱنفُذُوا۟ ۚ لَا تَنفُذُونَ إِلَّا بِسُلْطَـٰنٍۢ](https://quran.com/55/33)
 
 ***
-
 #### [Quran Se Nikal Saktay Ho Iss Ayat Ko Shan-e-Rasool SAW| Allama Talib Johri](https://www.youtube.com/watch?v=TPz-m9UG6WM)
 
 ***

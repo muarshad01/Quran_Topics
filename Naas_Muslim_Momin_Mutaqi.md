@@ -1,7 +1,10 @@
-* __Surah 2/2__: [ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quranwbw.com/2/2)
-
+* __Surah Al-Baqarah 2/185 (هُدًۭى لِّلنَّاسِ)__: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ هُدًۭى لِّلنَّاسِ](https://quran.com/2/185)
+* __Surah An-Nahl 16/64 (وَهُدًۭى وَرَحْمَةًۭ لِّقَوْمٍۢ يُؤْمِنُونَ)__: [وَمَآ أَنزَلْنَا عَلَيْكَ ٱلْكِتَـٰبَ إِلَّا لِتُبَيِّنَ لَهُمُ ٱلَّذِى ٱخْتَلَفُوا۟ فِيهِ ۙ وَهُدًۭى وَرَحْمَةًۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/16/64)
+* __Surah Al-Baqarah 2/2 (هُدًۭى لِّلْمُتَّقِينَ)__: [ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/2)
+* https://quran.com/27/2
+* https://quran.com/27/77
 ***
 
-#### [021 | Allama Talib Johri | Aik Aik Zarra Muslman](https://www.youtube.com/watch?v=HxlhB9C8rL4)
+#### [Allama Talib Johri | Aik Aik Zarra Muslman](https://www.youtube.com/watch?v=HxlhB9C8rL4)
 
 ***

@@ -6,5 +6,5 @@
 ***
 
 #### [Allama Talib Johri | Aik Aik Zarra Muslman](https://www.youtube.com/watch?v=HxlhB9C8rL4)
-
+* __Surah 5/35__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱتَّقُوا۟ ٱللَّهَ وَٱبْتَغُوٓا۟ إِلَيْهِ ٱلْوَسِيلَةَ وَجَـٰهِدُوا۟ فِى سَبِيلِهِۦ لَعَلَّكُمْ تُفْلِحُونَ](https://quran.com/5/35)
 ***

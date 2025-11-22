@@ -1,4 +1,4 @@
-#### [REEL: Faqeer Apni Zaat Ko Kaise Khatam Karta Hai? ](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
+#### [REEL: Faqeer Apni Zaat Ko Kaise Khatam Karta Hai? | SSA Shah](https://www.youtube.com/shorts/Ix6nT9CnvmQ)
 * __Surah 35/10__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quran.com/35/10)
 
 ***
@@ -26,6 +26,6 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 
 ***
 
-#### [How People Earn Respect | دنیا میں عزت پانے کا فارمولا](https://www.youtube.com/watch?v=CgVxeWgwYOY)
-
+#### [How People Earn Respect | دنیا میں عزت پانے کا فارمولا | SSA Shah](https://www.youtube.com/watch?v=CgVxeWgwYOY)
+* Doosray-koo izzat wohi deh-sakta-hai, jo-khud izzat-wala-hai
 ***

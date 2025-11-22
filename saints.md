@@ -2,16 +2,17 @@
 
 ***
 
-### [The Secret Work of Auliya Allah | SSA Shah](https://www.youtube.com/watch?v=q4mFuGygFps)
-* Auliaa akram are sahib-e-ilm. Ilm kay natijay me unhayn aqal-o-farast ataa ki jaati hai.
-* Woh apni aqal-o-farast say kam laitay hayn.
+#### [The Secret Work of Auliya Allah | SSA Shah](https://www.youtube.com/watch?v=q4mFuGygFps)
+* Auliaa akram are sahib-e-ilm.
+* Ilm-kay-natijay-me unhayn aqal-o-farast ataa ki-jaati-hai.
+* Woh apni aqal-o-farast say kam-laitay-hayn.
 
 ***
 
 #### [Khwaja Mu'in al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
 * __Khwaja Usman Harooni__ was the spiritual mentor of Khwaja Moinuddin Chishti, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
 1. Tark-e-Dunya
-2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). Not even Jannat is the desire but only Allah SWT!!
+2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but only Allah SWT!!__
 3. Takk-e-manam (Neend)
 4. Tark-e-hawai-e-Nafas
 
@@ -21,6 +22,7 @@
 4. ...
 
 * __Ishab-e-Suffa__ in Quran: THey only desire, Allah SWT face
+
 ***
 
 ## Ranks
@@ -46,13 +48,13 @@
 
 ***
 
-## Wali Allah Types
+#### Wali Allah Types
 * Salik (Has good hoosh-p-hawash)
 * Majzoob (Has lost hoost-o-hawash; Dooi kay muqaam say Yakgai ka muqaam)
 
 ***
 
-## [Walayat (19 Levels) - Faqeer Rung: Session 15 - Manzilain Ilm Baatini Ki](https://www.youtube.com/watch?v=Y0OyNP3Z9XY)
+#### [Walayat (19 Levels) - Faqeer Rung: Session 15 - Manzilain Ilm Baatini Ki](https://www.youtube.com/watch?v=Y0OyNP3Z9XY)
 * 01: Don't know themselves - 40,000
    * Ahl-e-Allah, Ahl-e-Irshad, Rijaal Allah
 * 02: Ahl-e-Haqq or Ahl-e-Imraan - 272
@@ -135,7 +137,7 @@
 
 ***
 
-### [Where Did the Warsi Silsila Begin?](https://www.youtube.com/watch?v=PJtoqRSXrVI)
+#### [Where Did the Warsi Silsila Begin?](https://www.youtube.com/watch?v=PJtoqRSXrVI)
 
 ***
 
@@ -144,7 +146,7 @@
 
 ***
 
-### [Roza-e-Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq](https://www.youtube.com/)
+#### [Roza-e-Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq](https://www.youtube.com/)
 
 ***
 
@@ -165,7 +167,7 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
-### [Story Of Sabir Piya Kaliyar in Urdu/Hindi I Dastaan Makhdoom Sabir Kalyari I Hazrat Ali Ahmed Sabir](https://www.youtube.com/watch?v=aM_CoyQiMFk)
+#### [Story Of Sabir Piya Kaliyar in Urdu/Hindi I Dastaan Makhdoom Sabir Kalyari I Hazrat Ali Ahmed Sabir](https://www.youtube.com/watch?v=aM_CoyQiMFk)
 
 ***
 
@@ -175,19 +177,19 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
   
 ***
 
-### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
+#### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 
 ***
 
-### [Auliaa karaam Ke Maqam Ko Mukhfi Rakhna](https://www.youtube.com/shorts/KE8Vflz_cpQ)
+#### [Auliaa karaam Ke Maqam Ko Mukhfi Rakhna](https://www.youtube.com/shorts/KE8Vflz_cpQ)
 
 ***
 
-### [Bayazid Bastami](https://www.instagram.com/reel/DNLSYUaO112/habits-of-hazrat-syed-yaqoob-ali-shah-ra-%D8%AD%D8%B6%D8%B1%D8%AA-%D8%B3%DB%8C%D8%AF-%DB%8C%D8%B9%D9%82%D9%88%D8%A8-%D8%B9%D9%84%DB%8C-%D8%B4%D8%A7%DB%81-%D8%B5%D8%A7%D8%AD%D8%A8-%DA%A9%DB%92%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA-%D9%88%D8%A7%D8%B7/)
+#### [Bayazid Bastami](https://www.instagram.com/reel/DNLSYUaO112/habits-of-hazrat-syed-yaqoob-ali-shah-ra-%D8%AD%D8%B6%D8%B1%D8%AA-%D8%B3%DB%8C%D8%AF-%DB%8C%D8%B9%D9%82%D9%88%D8%A8-%D8%B9%D9%84%DB%8C-%D8%B4%D8%A7%DB%81-%D8%B5%D8%A7%D8%AD%D8%A8-%DA%A9%DB%92%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA-%D9%88%D8%A7%D8%B7/)
 
 ***
 
-### [Har Sadi Main ISLAM Ka Aik MUJADDID? | SSA Shah](https://www.youtube.com/watch?v=37PUWKv_Nrc)
+#### [Har Sadi Main ISLAM Ka Aik MUJADDID? | SSA Shah](https://www.youtube.com/watch?v=37PUWKv_Nrc)
 * Allama Iqbal was Wali Allah
 * Ilhami Poetry
 
@@ -212,7 +214,7 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 *** 
 
-### [How Sufi deals with Psychological problems | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=fVYeVISIDcQ)
+#### [How Sufi deals with Psychological problems | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=fVYeVISIDcQ)
 * Ghaus-e-Zamana
 * Qutub-ul-Aqtab
 
@@ -223,14 +225,14 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 *** 
 
-### [Hazrat Nizamuddin auliya - Mahbub-e-Ilahi](https://www.youtube.com/shorts/_b6TTruskHo)
+#### [Hazrat Nizamuddin auliya - Mahbub-e-Ilahi](https://www.youtube.com/shorts/_b6TTruskHo)
 * Fariduddin Ganjshakar
 * Qutbuddin Bakhtiyar Kaki
 * Moinuddin Chishti
 
 *** 
 
-### [Hazrat Baba Farid Ganj shakar ka khandani tauraf](https://www.youtube.com/watch?v=UhtPUqvTTxQ)
+#### [Hazrat Baba Farid Ganj shakar ka khandani tauraf](https://www.youtube.com/watch?v=UhtPUqvTTxQ)
 * Name: Masood
 * Laqb: Ganjshakar
 * Laqb: Zuhd-ul-Anbia
@@ -239,27 +241,27 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
-### [Mazar Mubarak Hazrat Fatima...Imam Hassan...Imam Zain Ul Abadein....Imam Baqir](https://www.youtube.com/shorts/VP17EaFegs0)
+#### [Mazar Mubarak Hazrat Fatima...Imam Hassan...Imam Zain Ul Abadein....Imam Baqir](https://www.youtube.com/shorts/VP17EaFegs0)
 
 * https://www.youtube.com/shorts/GdvWMbYDRT8
 
 ***
 
-### [Khilafat of Syed Sarfraz A. Shah Sahab | سید سرفراز احمد شاہ صاحب کی خلافت](https://www.youtube.com/watch?v=IeUni1dniLM)
+#### [Khilafat of Syed Sarfraz A. Shah Sahab | سید سرفراز احمد شاہ صاحب کی خلافت](https://www.youtube.com/watch?v=IeUni1dniLM)
 
 ***
 
-### Abdul Latif Bari Imam (1617–1705)
+#### Abdul Latif Bari Imam (1617–1705)
 * Recite __Shahshah-e-Behr-o-Bar Ya Latif__ for spiritual connection.
 * Descendent of __Imam Musa al-Kadhim__
 
 ***
 
-### [Khilafat of Syed Sarfraz A. Shah Sahab | سید سرفراز احمد شاہ صاحب کی خلافت](https://www.youtube.com/watch?v=IeUni1dniLM)
+#### [Khilafat of Syed Sarfraz A. Shah Sahab | سید سرفراز احمد شاہ صاحب کی خلافت](https://www.youtube.com/watch?v=IeUni1dniLM)
 
 ***
 
-### `Syed Sarfaraz Ahmad Shah`
+#### `Syed Sarfaraz Ahmad Shah`
 * Baba Rehmat Warshi Shb
     * Syed Yaqoob Ali Shah
         * Syed Sarfaz A. Shah: Chishtia, Sabriya, Warsia (`Chishtia Sabria`, but was trained under `Warsia`)
@@ -267,7 +269,7 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
-## "Shah Shams Tabrez"
+#### "Shah Shams Tabrez"
 * "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
 
 *** 
@@ -312,5 +314,6 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 #### [Who is the Teacher of Prof ARA](https://www.youtube.com/watch?v=dcP8dMOBvr4)
 * Silsila-e-Junadia
-
+* Top intellectuals
+* __Surah Ale-Imran 3/191__: [ٱلَّذِينَ يَذْكُرُونَ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِهِمْ وَيَتَفَكَّرُونَ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ رَبَّنَا مَا خَلَقْتَ هَـٰذَا بَـٰطِلًۭا سُبْحَـٰنَكَ فَقِنَا عَذَابَ ٱلنَّارِ](https://quran.com/3/191)
 ***

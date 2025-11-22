@@ -116,3 +116,5 @@
 * __Surah Al-Alaq 96/9-10__: [Have you seen the man who prevents. a servant ˹of Ours˺ from praying?](https://quran.com/96/9-10)
  
 ***
+
+https://quran.com/7/157

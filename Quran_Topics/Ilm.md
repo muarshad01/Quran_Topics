@@ -2,6 +2,7 @@
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
 * Rabb say qareeb-say-qareeb tar hona-hai
 * Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai
+* __Surah Al-Furqan 25/63-66 (Walk Humbly ...Salaam to JAHIL)__ : [وَعِبَادُ ٱلرَّحْمَـٰنِ ٱلَّذِينَ يَمْشُونَ عَلَى ٱلْأَرْضِ هَوْنًۭا وَإِذَا خَاطَبَهُمُ ٱلْجَـٰهِلُونَ قَالُوا۟ سَلَـٰمًۭا](https://quran.com/25/63-66)
 
 ***
 

@@ -1,5 +1,4 @@
-
-#### [ Allah-ki-Ibadat Karny-ka-Hukum | Allama Talib Johri](https://www.youtube.com/watch?v=WRYUlWOie2E)
+#### [Allah-ki-Ibadat Karny-ka-Hukum | Allama Talib Johri](https://www.youtube.com/watch?v=WRYUlWOie2E)
 * __Surah 2/21__: [يَـٰٓأَيُّهَا ٱلنَّاسُ ٱعْبُدُوا۟ رَبَّكُمُ ٱلَّذِى خَلَقَكُمْ وَٱلَّذِينَ مِن قَبْلِكُمْ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/21)
 * __Surah 2/22__: [ٱلَّذِى جَعَلَ لَكُمُ ٱلْأَرْضَ فِرَٰشًۭا وَٱلسَّمَآءَ بِنَآءًۭ وَأَنزَلَ مِنَ ٱلسَّمَآءِ مَآءًۭ فَأَخْرَجَ بِهِۦ مِنَ ٱلثَّمَرَٰتِ رِزْقًۭا لَّكُمْ ۖ فَلَا تَجْعَلُوا۟ لِلَّهِ أَندَادًۭا وَأَنتُمْ تَعْلَمُونَ](https://quran.com/2/22)
 
@@ -31,6 +30,11 @@
 ```
 Mataa-e-Bebaha Hai Dard-o-Souz-e-Arzoo-Mandi
 Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
+```
+
+```
+* Arabic: اَللَّهُمَّ كَفَانِي عِزّاً أَنْ تَكُونَ لِي رَبّاً وَكَفَانِي فَخْراً أَنْ أَكُونَ لَكَ عَبْداً
+* Translation: "O Allah, it is sufficient for me as an honor that You are my Lord, and it is sufficient for me as a glory that I am Your servant (slave)." 
 ```
 
 ***

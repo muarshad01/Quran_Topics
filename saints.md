@@ -106,20 +106,22 @@
 * 15: `Nigran-e-Alaa`: Only one
 * 16: `Imam`: Only 4 (Tareeqat kay silsilon kay wali aur nigrann)
 * 17: `12 Imans`: Hazrat Hassan RA and Hazrat Hussain RA (Ahle-e-Bait 12 Aima Ikram); Qoom kay sardar hain
+
+* [❤️ 12 imams Names Beautifully inscribed in Masjid Nabi ﷺ | Mufti Fazal Hamdard](https://www.youtube.com/watch?v=lKAIw_es4nE)
 ```
-1. Ali ibn Abi Talib
-2. Hasan ibn Ali
-3. Husayn ibn Ali
-4. Ali ibn Husayn (https://www.youtube.com/shorts/NuXwYOUApPc)
+01. Ali ibn Abi Talib
+02. Hasan ibn Ali
+03. Husayn ibn Ali
+04. [Ali ibn Husayn (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
 ---
-5. Muhammad al-Baqir (https://www.youtube.com/shorts/Q0CGKBWWXHI)
-6. Jafar al-Sadiq (https://www.youtube.com/shorts/zYJCFrAXpYY)
-7. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4)
-8. Ali al-Rida
-9. Muhammad al-Jawad
-10. Ali al-Hadi
+05. Muhammad al-Baqir (https://www.youtube.com/shorts/Q0CGKBWWXHI)
+06. Jafar al-Sadiq (https://www.youtube.com/shorts/zYJCFrAXpYY)
+07. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4)
+08. Ali al-Rida
+09. Muhammad al-Taqi (also known as al-Jawad)
+10. Ali al-Hadi (also known as al-Naqi)
 11. Hasan al-Askari
-12. Muhammad al-Mahdi
+12. Muhammad al-Mahdi (also known as al-Qaim) 
 ```
 * 18 Hazrat Ali RA
    * `Bab al-Ilm` or `Abu Turab` are titles

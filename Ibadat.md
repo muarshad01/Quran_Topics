@@ -28,6 +28,11 @@
 > * __Surah 53/10__: [فَأَوْحَىٰٓ إِلَىٰ عَبْدِهِۦ مَآ أَوْحَىٰ](https://quran.com/53/10)
 > * ashhadu anna Muhammadan abduhu wa rasula
 
+```
+Mataa-e-Bebaha Hai Dard-o-Souz-e-Arzoo-Mandi
+Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
+```
+
 ***
 
 * __Surah Ale-Imran 3/18-19 (إِنَّ ٱلدِّينَ عِندَ ٱللَّهِ ٱلْإِسْلَـٰمُ ۗ)__: [شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ...](https://quran.com/3/18-19)

@@ -1,3 +1,20 @@
+```
+Hadith on Muhammad: Until he loves me more than all people
+By Abu Amina Elias / December 16, 2010 / Agreed Upon ‏متفق عليه, Children الأولاد, Family Ties صلة الرحم, Love المحبة, Manners الادب, Marriage النكاح, Messengers الرسل, Monotheism التوحيد, Muhammad محمد, Parents الوالدان, Prophets الأنبياء, Sincerity الإخلاص, Sunnah السنة
+Anas ibn Malik reported: The Messenger of Allah, peace and blessings be upon him, said, “None of you have faith until I am more beloved to him than his children, his father, and all of the people.”
+
+Source: Ṣaḥīḥ al-Bukhārī 15, Ṣaḥīḥ Muslim 44
+
+Grade: Muttafaqun Alayhi (authenticity agreed upon) according to Al-Bukhari and Muslim
+
+عَنْ أَنَسِ بْنِ مَالِكٍ قَالَ قَالَ رَسُولُ اللَّهِ صَلَّى اللَّهُ عَلَيْهِ وَسَلَّمَ لاَ يُؤْمِنُ أَحَدُكُمْ حَتَّى أَكُونَ أَحَبَّ إِلَيْهِ مِنْ وَلَدِهِ وَوَالِدِهِ وَالنَّاسِ أَجْمَعِينَ
+
+15 صحيح البخاري كتاب الإيمان باب حب الرسول صلى الله عليه وسلم من الإيمان
+
+44 صحيح مسلم كتاب الإيمان باب وجوب محبة رسول الله أكثر من الأهل والولد والوالد والناس أجمعين
+```
+***
+
 #### [Quranic Values in Action: Attributes of becoming a Momin](https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/)
 #### [Attributes of True Believers (Momin)](https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/)
 #### [15 Traits of a Momin According to the Quran](https://islamicmentors.com/15-traits-of-a-momin/)

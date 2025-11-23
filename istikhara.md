@@ -5,8 +5,8 @@
 #### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=K6BZ5fiVYNM)
 * He used to avoid public
 * Ah Nizam, jab-tuh chand-huwa-thaa, tumhara-khyal-kya-thaa, loag-tumhayn-deekhyn-nahi
-* UNDERSTANDING Quran is more important than READING it
-* READ like doing research ...like dong BS/MS/PhD...
+* __UNDERSTANDING Quran is more important than READING it.__
+* __READ like doing RESEARCH ...like dong BS/MS/PhD__
 1. Nazira Sawab
 2. Samajhna aur Parhna
 3. Ghoar-o-Fikr 

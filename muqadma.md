@@ -51,7 +51,7 @@
 ***
 
 #### [Wazifa to save yourself from the enemy | Now you will have to destroy the enemy | Qari Abdul Basi...](https://www.youtube.com/watch?v=P8pHIK2U5q4)
-* Surah Falaq and Surah Naas 21-time Subah-and-Shaam
+* __Surah Falaq and Surah Naas 21-time Subah-and-Shaam__
 * __Surah 3/173 (300-time)__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
 * __Surah 8/30__: [وَإِذْ يَمْكُرُ بِكَ ٱلَّذِينَ كَفَرُوا۟ لِيُثْبِتُوكَ أَوْ يَقْتُلُوكَ أَوْ يُخْرِجُوكَ ۚ وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/8/30)
 * The Arabic phrase is __ اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ__, which translates to: "O Allah, we-make-You our-shield against-them, and take-refuge in-Thee from-their-evils."

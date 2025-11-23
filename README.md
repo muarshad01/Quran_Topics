@@ -9,7 +9,7 @@
 > #### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=K6BZ5fiVYNM)
 > * __UNDERSTANDING Quran is more important than READING it.__
 > * __READ like doing RESEARCH ...like dong BS/MS/PhD__
-* [Rewards of True Worship | بے غرض عبادت کا صلہ](https://www.youtube.com/watch?v=OOU18bsazh0)
+* [Rewards of True Worship | بے غرض عبادت کا صلہ | SSA Shah](https://www.youtube.com/watch?v=OOU18bsazh0)
 * [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 * [Allah Ko Jann-nah](https://www.youtube.com/shorts/TwDJhC5TcPQ)
 * __Surah 3/7__: [وَٱلرَّٰسِخُونَ فِى ٱلْعِلْمِ يَقُولُونَ ءَامَنَّا بِهِۦ كُلٌّۭ مِّنْ عِندِ رَبِّنَا ۗ وَمَا يَذَّكَّرُ إِلَّآ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/3/7)

@@ -6,6 +6,11 @@
 
 ## Quran Fazilat
 * [Notes](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md)
+> #### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=K6BZ5fiVYNM)
+> * He used to avoid public
+> * Ah Nizam, jab-tuh chand-huwa-thaa, tumhara-khyal-kya-thaa, loag-tumhayn-deekhyn-nahi
+* __UNDERSTANDING Quran is more important than READING it.__
+* __READ like doing RESEARCH ...like dong BS/MS/PhD__
 * [Rewards of True Worship | بے غرض عبادت کا صلہ](https://www.youtube.com/watch?v=OOU18bsazh0)
 * [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 * [Allah Ko Jann-nah](https://www.youtube.com/shorts/TwDJhC5TcPQ)

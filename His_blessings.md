@@ -1,4 +1,5 @@
 #### [Allah Nay Quran Main Kon Si Namathon Ka Ziker Kiya Hai? | Allama Talib Johari](https://www.youtube.com/watch?v=PxaQHCUKup4)
+* __Surah Luqman 31/20__: [أَلَمْ تَرَوْا۟ أَنَّ ٱللَّهَ سَخَّرَ لَكُم مَّا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ وَأَسْبَغَ عَلَيْكُمْ نِعَمَهُۥ ظَـٰهِرَةًۭ وَبَاطِنَةًۭ ۗ وَمِنَ ٱلنَّاسِ مَن يُجَـٰدِلُ فِى ٱللَّهِ بِغَيْرِ عِلْمٍۢ وَلَا هُدًۭى وَلَا كِتَـٰبٍۢ مُّنِيرٍۢ](https://quran.com/31/20)
 
 ***
 

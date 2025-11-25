@@ -113,8 +113,9 @@
 ***
 
 #### [Buray Waswasa say Nijat ka Amal| Prof ARA](https://www.youtube.com/watch?v=TEXMfPTuoFg)
-* Waswasay dara naa kara.
-* Yeah kaha karo, Amantu Billahi wa Rasoolhi
+* Waswasa say dara naa karo.
+* Yeah kaha karo, "Amantu Billahi wa Rasulihi" (آمنتُ بالله ورسله)
+
 ***
 
 #### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)

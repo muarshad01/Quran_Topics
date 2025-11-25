@@ -121,6 +121,14 @@
 
 ***
 
+#### [Fear, frustration، depression ka elaaj | Prof ARA](http://youtube.com/watch?v=mcSX0gQbabw)
+* __Surah Ale-Imran 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
+* __Surah Yunus 10/62__: [أَلَآ إِنَّ أَوْلِيَآءَ ٱللَّهِ لَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/10/62)
+* __Surah Ya-Seen 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
+* __Surah Al-Ankabut 29/45__: [ٱتْلُ مَآ أُوحِىَ إِلَيْكَ مِنَ ٱلْكِتَـٰبِ وَأَقِمِ ٱلصَّلَوٰةَ ۖ إِنَّ ٱلصَّلَوٰةَ تَنْهَىٰ عَنِ ٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۗ وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ وَٱللَّهُ يَعْلَمُ مَا تَصْنَعُونَ](https://quran.com/29/45)
+* __Surah 2/200__: [فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ](https://quran.com/2/200)
+***
+
 #### [Psychologically upset-children and absent-minded-people in Heaven | Professor ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
 
 ***

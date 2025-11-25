@@ -203,6 +203,10 @@
 
 ***
 
+#### [Depression se Kaise Nikla Ja Sakta hai? | SSA Shah](https://www.youtube.com/watch?v=xxNStKi-sNM)
+
+***
+
 #### [Ultay Khayalaat Se Chutkara | SSA Shah](https://www.youtube.com/watch?v=o5-S4Ykcu44)
 * TODO
 

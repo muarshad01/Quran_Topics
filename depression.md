@@ -204,7 +204,9 @@
 ***
 
 #### [Depression se Kaise Nikla Ja Sakta hai? | SSA Shah](https://www.youtube.com/watch?v=xxNStKi-sNM)
-
+* Two Surah of Quran are for Depression Treament:
+1. Surah Waduha
+2. Surah Hud
 ***
 
 #### [Ultay Khayalaat Se Chutkara | SSA Shah](https://www.youtube.com/watch?v=o5-S4Ykcu44)

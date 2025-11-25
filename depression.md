@@ -112,6 +112,11 @@
 
 ***
 
+#### [Buray Waswasa say Nijat ka Amal| Prof ARA](https://www.youtube.com/watch?v=TEXMfPTuoFg)
+* Waswasay dara naa kara.
+* Yeah kaha karo, Amantu Billahi wa Rasoolhi
+***
+
 #### [Anxiety Depression and Insomnia Explained | Prof ARA](https://www.youtube.com/watch?v=4spZ8FeQ9rk)
 1. Non-ulcer dyspepsia 
 2. Irritable Bowl Syndrome (IBS)

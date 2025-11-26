@@ -8,13 +8,13 @@
 
 #### [Let No One See Your Inner Self | Teachings of Hazrat Yaqoob Ali Shah (R.A.)](https://www.youtube.com/watch?v=WJMuxErnyEc)
 * I mistakenly picked-up his Tasbeeh and started to play with it...
-* Kya tum-yeah-chahatay-hoo-kay ... loog-tumhayn naik-samajh-kar Salaam-karayn.
+* Kya tum-yeah-chahatay-hoo-kay ... loag-tumhayn naik-samajh-kar Salaam-karayn.
   
 ***
 
 * Khamooshi-ikhtayaar-karoo...Allah SWT say talaq qaim-hoo jaya-goo.
 * Prophet PBUH, Juma Khutba was only 9-10 minutes; All other things were demonstrated practically.
-* STOP giving advices. Do self-analysis.
+* __STOP giving advices. Do self-analysis.__
 
 ***
 
@@ -27,7 +27,7 @@
 ***
 
 #### [Why Intelligent Man Alone | Dr israr ahmad](https://www.youtube.com/watch?v=D1Qn93EtfRw)
-* __Surah Al-Araf 7/179__: [Indeed, We have destined many jinn and humans for Hell. They have hearts they do not understand with, eyes they do not see with, and ears they do not hear with. They are like cattle. In fact, they are even less guided! Such ˹people˺ are ˹entirely˺ heedless.](https://quran.com/7/179)
+* __Surah Al-Araf 7/179__: [وَلَقَدْ ذَرَأْنَا لِجَهَنَّمَ كَثِيرًۭا مِّنَ ٱلْجِنِّ وَٱلْإِنسِ ۖ لَهُمْ قُلُوبٌۭ لَّا يَفْقَهُونَ بِهَا وَلَهُمْ أَعْيُنٌۭ لَّا يُبْصِرُونَ بِهَا وَلَهُمْ ءَاذَانٌۭ لَّا يَسْمَعُونَ بِهَآ ۚ أُو۟لَـٰٓئِكَ كَٱلْأَنْعَـٰمِ بَلْ هُمْ أَضَلُّ ۚ أُو۟لَـٰٓئِكَ هُمُ ٱلْغَـٰفِلُونَ](https://quran.com/7/179)
 
 ***
 
@@ -36,3 +36,7 @@
 ***
 
 #### [The Power of Silence | Wasif Ali Wasif](https://www.youtube.com/watch?v=bdgEz2qZgbk)
+
+***
+
+#### [Khamoshi Ki Taqat | Benefits Of Silence | Wasif Ali Wasif](https://www.youtube.com/watch?v=Yv2tVe3JTs4)

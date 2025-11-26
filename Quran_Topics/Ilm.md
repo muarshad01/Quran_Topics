@@ -11,6 +11,13 @@
 
 ***
 
+#### [Rumi’s Definition of a Real Aalim | اصل عالم کون؟ | SSA Shah](https://www.youtube.com/watch?v=qtfZovv3P8g)
+* TWO types of ahl-e-ilm:
+1. Those who ride the horse of Ilm. Ilm-ki-RUKAB-mayn unn-kay Poan hotay-hayn aur ilm-ki-LAGAM unn-kay haath-mayn hooti-hai. Aur woh Ilm-ki-sawari-ko sahi-simat mayn doohranay-lagtay-hayn. REAL ilm walay.
+2. Ilm Insaan par sawari kar-raha-ho. Aus par Kitab-aur-Maloomat ka boojh lada-howa-ho.
+
+***
+
 #### [Why True Knowledge needs a Guide | SSA Shah](https://www.youtube.com/shorts/0ynQ7Tqj_yU)
 * Insaan Ilm-ki-ziaditi say bhatak-jaata-hai
 

@@ -1,4 +1,8 @@
-### Takabar Types / Idols
+#### [The Easiest Way to Get Rid of Arrogance | تکبر سے بچنے کا آسان طریقہ | SSA Shah](https://www.youtube.com/watch?v=nfClvHad8d8)
+
+***
+
+#### Takabar Types / Idols
 * Ego (self)
 * Aijzi (Humility) - most dangerours
 * Ilm

@@ -65,9 +65,9 @@
 #### [Tasbeeh and Zikar, Wazifa for Knowledge, Ism-e-Azam | Prof ARA](https://www.youtube.com/watch?v=TZ22yy4_VDs)
 > 1. __Creative Order__
 > * __Surah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
-> * Pure Hikmat
 > * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
-> * Creation; Ilm
+> * Creation Takhleeq, Abadi ki Afzaish, Uss ka Phaloo, Ilm; Pure Hikmat
+
 > * __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
 > * __Surah An-Naml 27/30__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
 
@@ -95,9 +95,8 @@
 #### [Ism-e-Azam, Masnoon Tasbeeh | Prof ARA](https://www.youtube.com/watch?v=h8watYwaoP4)
 > 1. __Creative Order__
 > * __Surah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
-> * Pure Hikmat
 > * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
-> * Takhleeq, Abadi ki Afzaish, Uss ka Phaloo, Ilm
+> * Creation Takhleeq, Abadi ki Afzaish, Uss ka Phaloo, Ilm; Pure Hikmat
 
 > * __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
 > * __Surah An-Naml 27/30__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
@@ -107,7 +106,8 @@
 > * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
 > * Intazami (Administrative) - Ijazat woh deta hai; Hifazat ka nizam; Informatory process is complete; Total awareness; Nobody can forgo his decision.
 
-* Both have 8 manasibs; 8 amoor-e-samania; scientic, knowledge
+* Both have 8 manasibs
+* 8 amoor-e-samania; scientic, knowledge
 
 ```
 * "Ya Rahman, Ya Rahim, Ya Kareem" (يا رحمن، يا رحيم، يا كريم)

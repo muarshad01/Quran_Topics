@@ -92,7 +92,8 @@
 
 ```
 1. "Ya Rahman, Ya Rahim, Ya Kareem" (يا رحمن، يا رحيم، يا كريم)
-2. "La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ). 99-Masaib are removed and smallest-one-is-Gham
+2. "La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ).
+99-Masaib are removed and smallest-one-is-Gham
 3. "Ya zal jalali wal ikram" (يا ذا الجلال والإكرام)
 ```
 

@@ -1,3 +1,12 @@
+#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
+* Aik Ikhlas ka Sajdah
+* Aik Ikhlas wala Sajdah, where there is no body in heart except All might Allah SWT.
+* Sheikh Abdul Qadir Jilani: What is Ism-e-Azam
+  * Jab tuh Allah ka naam aisay lay, keh terey dil mayn aur kuch-naa-hoo
+* __Surah Al-Anbya 21/79 (فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ)__: [فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ وَكُلًّا ءَاتَيْنَا حُكْمًۭا وَعِلْمًۭا ۚ وَسَخَّرْنَا مَعَ دَاوُۥدَ ٱلْجِبَالَ يُسَبِّحْنَ وَٱلطَّيْرَ ۚ وَكُنَّا فَـٰعِلِينَ](https://quran.com/21/79)
+
+***
+
 * __Surah Al-Baqarah 2/269 (يُؤْتِى ٱلْحِكْمَةَ مَن يَشَآءُ ۚ)__: [يُؤْتِى ٱلْحِكْمَةَ مَن يَشَآءُ ۚ وَمَن يُؤْتَ ٱلْحِكْمَةَ فَقَدْ أُوتِىَ خَيْرًۭا كَثِيرًۭا ۗ وَمَا يَذَّكَّرُ إِلَّآ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/2/269)
 
 ***
@@ -20,9 +29,5 @@
 ***
 
 * __Surah Al-Infitar 82/8__: [فِىٓ أَىِّ صُورَةٍۢ مَّا شَآءَ رَكَّبَكَ](https://quran.com/82/8)
-
-***
-
-### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
 
 ***

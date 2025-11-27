@@ -53,7 +53,9 @@ x#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https:/
 
 ***
 
-* https://www.youtube.com/shorts/2RFGVjRtNpI
+#### [Ism-e-Azam | Dr Israr Ahmed](https://www.youtube.com/shorts/2RFGVjRtNpI)
+
+*** 
 
 #### [Meaning virtues and benefits of Al-Badee | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=426yon6Cj7c)
 * 96 Number

@@ -112,10 +112,10 @@ x#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https:/
 > * Creation of Heavens and Earth, Population Growth, Population Spread;
 > * Gravity (وَٱلسَّحَابِ ٱلْمُسَخَّ); Ilm; Pure Hikmat
 
-> 2. __Executive Order__
+> 2. __Executive Order (Administrative)__
 > * __Surah Al-Baqarah 2/255 (ٱلْحَىُّ ٱلْقَيُّومُ ۚ)__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْحَىُّ ٱلْقَيُّومُ ۚ](https://quran.com/2/255)
 > * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
-> * __Administrative__
+> * 
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
 > * Control over every ATOM (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
 > * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)

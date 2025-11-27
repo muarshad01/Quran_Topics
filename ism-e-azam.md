@@ -109,8 +109,7 @@ x#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https:/
 > 1. __Creative Order (Ilm; Knowledge)__
 > * __Surah Al-Baqarah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
 > * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
-> * Creation of Heavens and Earth, Population Growth, Population Spread;
-> * Gravity (وَٱلسَّحَابِ ٱلْمُسَخَّ); Ilm; Pure Hikmat
+> * Creation of Heavens and Earth; Population Growth, Population Spread (وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ); Gravity (وَٱلسَّحَابِ ٱلْمُسَخَّ); Ilm; Pure Hikmat
 
 > 2. __Executive Order (Administrative)__
 > * __Surah Al-Baqarah 2/255 (ٱلْحَىُّ ٱلْقَيُّومُ ۚ)__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْحَىُّ ٱلْقَيُّومُ ۚ](https://quran.com/2/255)

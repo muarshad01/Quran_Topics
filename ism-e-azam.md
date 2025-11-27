@@ -79,8 +79,9 @@
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
 > * Spy System: He has all the information (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
 > * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)
+> * His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
+> * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ);
 > * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
-> * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ); His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
 
 
 * __Surah 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
@@ -117,8 +118,9 @@
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
 > * Spy System: He has all the information (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
 > * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)
+> * His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
+> * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ);
 > * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
-> * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ); His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
 
 * Both have 8 manasibs
 * 8 amoor-e-samania; scientic, knowledge

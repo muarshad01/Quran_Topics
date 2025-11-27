@@ -1,4 +1,4 @@
-#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
+x#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
 * Sheikh Abdul Qadir Jilani: What is Ism-e-Azam?
   * __Jab tuh Allah-ka-naam aisay-lay, keh terey-dil-mayn aur kuch-naa-hoo__
 
@@ -7,6 +7,12 @@
 #### [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
    * [Notes](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession05.md)
 * __Rabb-koo DARD-say pukarna hee, Ism-e-Azam hai__
+
+***
+
+#### [Ya-Hayy-o-Ya-Qayyum and Ya-ZalJalal-e-Wal-Ikram Ism-e-Azam | SSA Shah](https://www.youtube.com/watch?v=fgqEQtajygg)
+* __Ya-Hayyu Ya-Qayyum__ (Is not Ism-e-Azam; but very close to it)
+* __Ya-Zuljalal Wal Ikram__
 
 ***
 
@@ -36,13 +42,7 @@
 
 ***
 
-#### [Strong Bond with Allah | اللہ سے سچا تعلق کیسے بنائیں؟](https://www.youtube.com/watch?v=UnHd3G_LJ9Q)
-
-***
-
-#### [Ya-Hayy-o-Ya-Qayyum and Ya-ZalJalal-e-Wal-Ikram Ism-e-Azam | SSA Shah](https://www.youtube.com/watch?v=fgqEQtajygg)
-* __Ya-Hayyu Ya-Qayyum__ (Is not Ism-e-Azam; but very close to it)
-* __Ya-Zuljalal Wal Ikram__
+#### [Strong Bond with Allah | اللہ سے سچا تعلق کیسے بنائیں؟ | SSA Shah](https://www.youtube.com/watch?v=UnHd3G_LJ9Q)
 
 ***
 

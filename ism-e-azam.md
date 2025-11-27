@@ -89,7 +89,11 @@
 * Abadi ki afzaish
 * Uss ka phaloo
 * __Surah An-Naml 27/30__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
-* 99-Masaib are removed and smallest-one-is-Gham
-  * "La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ)
+
+```
+1. "Ya Rahman, Ya Rahim, Ya Kareem" (يا رحمن، يا رحيم، يا كريم)
+2. "La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ). 99-Masaib are removed and smallest-one-is-Gham
+3. "Ya zal jalali wal ikram" (يا ذا الجلال والإكرام)
+```
 
 ***

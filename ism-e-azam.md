@@ -75,7 +75,13 @@
 > 2. __Executive Order__
 > * __Surah Al-Baqarah 2/255 (ٱلْحَىُّ ٱلْقَيُّومُ ۚ)__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْحَىُّ ٱلْقَيُّومُ ۚ](https://quran.com/2/255)
 > * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
-> * Intazami (Administrative) - Ijazat woh deta hai; Hifazat ka nizam; Informatory process is complete; Total awareness; Nobody can forgo his decision.
+> * __Administrative__
+> * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
+> * Spy System: He has all the information (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
+> * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)
+> * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
+> * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ); His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
+
 
 * __Surah 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
 

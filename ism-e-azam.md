@@ -94,18 +94,25 @@
 ***
 
 #### [Ism-e-Azam, Masnoon Tasbeeh | Prof ARA](https://www.youtube.com/watch?v=h8watYwaoP4)
-> * __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-> * __Surah An-Naml 27/30__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+> * __Surah Al-Anam 6/54 (Allah SWT Promise)__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+> * __Surah An-Naml 27/30 (King Solomon)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+> * __Greatest Tasbeeh__: "Ya Rahman, Ya Rahim, Ya Kareem" (يا رحمن، يا رحيم، يا كريم)
 
 > 1. __Creative Order (Ilm; Knowledge)__
 > * __Surah Al-Baqarah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
 > * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
-> * Creation Takhleeq, Abadi ki Afzaish, Uss ka Phaloo, Ilm; Pure Hikmat
+> * Creation of Heavens and Earth, Population Growth, Population Spread;
+> * Gravity (وَٱلسَّحَابِ ٱلْمُسَخَّ); Ilm; Pure Hikmat
 
 > 2. __Executive Order__
 > * __Surah Al-Baqarah 2/255 (ٱلْحَىُّ ٱلْقَيُّومُ ۚ)__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْحَىُّ ٱلْقَيُّومُ ۚ](https://quran.com/2/255)
 > * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
-> * Intazami (Administrative) - Ijazat woh deta hai; Hifazat ka nizam; Informatory process is complete; Total awareness; Nobody can forgo his decision.
+> * __Administrative__
+> * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
+> * Spy System: He has all the information (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
+> * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)
+> * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
+> * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ); His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
 
 * Both have 8 manasibs
 * 8 amoor-e-samania; scientic, knowledge
@@ -113,7 +120,9 @@
 ```
 * "Ya Rahman, Ya Rahim, Ya Kareem" (يا رحمن، يا رحيم، يا كريم)
 * "La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ).
-  * 99-Masaib are removed and smallest-one-is-Gham
-* "Ya zal jalali wal ikram" (يا ذا الجلال والإكرام)
+  * Abu Musa al-Ash'ari
+  * 99-Masaib are removed and smallest-one-is-Gham (Highest TRUST level in Tasawaf)
+* "Ya zal-jalali wal-ikram" (يا ذا الجلال والإكرام)
+  * Maang, Iss Naam Say Allah SWT Deeta Hai - Prophet PBUH
 ```
 ***

@@ -1,3 +1,7 @@
+#### [Importance and Interpretation of dreams in Islam and Science | Prof ARA](https://www.youtube.com/watch?v=lZhTxfh6y-8)
+
+***
+
 #### [Dream Signs You Must Know | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
 
 * Never tell-your-dream after __2:00 pm__ in the afternoon. Otherwise, it is wasted!!

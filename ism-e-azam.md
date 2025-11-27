@@ -64,11 +64,11 @@
 
 #### [Tasbeeh and Zikar, Wazifa for Knowledge, Ism-e-Azam | Prof ARA](https://www.youtube.com/watch?v=TZ22yy4_VDs)
 > * __Surah Al-Anam 6/54 (Allah SWT Promise)__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-> * __Surah An-Naml 27/30__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+> * __Surah An-Naml 27/30 (King Solomon)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
 
-> 1. __Creative Order (Ilm; Knowledge)__
+> 1. __Creative Order (Ilm; Knowledge; Hikmat)__
 > * __Surah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
-> * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
+> * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ(king Solomom) وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
 > * Creation Takhleeq, Abadi ki Afzaish, Uss ka Phaloo, Ilm; Pure Hikmat
 
 
@@ -77,12 +77,11 @@
 > * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
 > * __Administrative__
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
-> * Spy System: He has all the information (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
+> * Control over every ATOM (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
 > * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)
 > * His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
 > * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ);
 > * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
-
 
 * __Surah 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
 
@@ -96,7 +95,7 @@
 7. Charitable
 8. Fasting 
 9. Guard their chastity
-10. Zakreen: Who remember Allah often—for 
+10. Zakreena wa Zakirat 
 
 ***
 
@@ -116,7 +115,7 @@
 > * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
 > * __Administrative__
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
-> * Spy System: He has all the information (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
+> * Control over every ATOM (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
 > * He grants permission; He forgives (مَن ذَا ٱلَّذِى يَشْفَعُ عِندَهُۥٓ إِلَّا بِإِذْنِهِۦ ۚ)
 > * His Informatory process is complete; Nobody can dodge Him; Nobody can overgrow His Intellect. Nobody can forgo his decision. (وَلَا يُحِيطُونَ بِشَىْءٍۢ مِّنْ عِلْمِهِۦٓ)
 > * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ);

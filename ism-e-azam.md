@@ -122,6 +122,8 @@ x#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https:/
 > * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ);
 > * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
 
+* __Surah 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
+
 * Both have 8 manasibs
 * 8 amoor-e-samania; scientic, knowledge
 

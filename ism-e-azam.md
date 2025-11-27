@@ -1,3 +1,9 @@
+#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
+* Sheikh Abdul Qadir Jilani: What is Ism-e-Azam
+  * Jab tuh Allah-ka-naam aisay-lay, keh terey-dil-mayn aur kuch-naa-hoo
+
+***
+
 #### [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
    * [Notes](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession05.md)
 * __Rabb-koo Dard-say pukarna hee, Ism-e-Azam hai__

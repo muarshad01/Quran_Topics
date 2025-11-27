@@ -326,3 +326,6 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Arz-e-Faqeer: Session-30 Jadu-se-Khoufzada Kyun! | SSA Shah](https://www.youtube.com/watch?v=fATEeYcVO8k)
 -->
 
+#### ["Bangali Baba" Ki Asliyat! | Kalay Jadu Ka Asan Tor | Ayatul Kursi Ka Wazifa💯 | Abdullah Bhatti](https://www.youtube.com/watch?v=E42Sy_Nen7c)
+
+***

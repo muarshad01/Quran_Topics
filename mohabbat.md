@@ -2,6 +2,10 @@
 
 ***
 
+#### [Mohabat Kya Hai? Love](https://www.youtube.com/shorts/m0YU-1V5FIc)
+
+***
+
 #### [Allah-ki-mohabbat kaise hasil-kare | SSA Shah](https://www.youtube.com/watch?v=a1uQqD4i-s4)
 * Dunya say kyt-kar bhair-nikal-jaye banda aur aun-deeki-dunya ki seer-karnay-laghay
 * Kishsi-cheez kay-undar itna gharaq-ho-jaye-banda keh dunya-say kat-jaye.

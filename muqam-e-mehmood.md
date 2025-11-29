@@ -14,13 +14,13 @@
 #### [Ishq-e-Rasool aur Maqam-e-Waseela ki dua | Prof ARA](https://www.youtube.com/watch?v=vyyWyl7M9m8)
 * Mahmooad: Jis ki Hamad ki-jai
 * Muhammad: Jis-ki sab-say-ziada Hamad ki-jai.
-* MeriHhamad tum kartay ho (Makhlooq), Muhammad ki hamad mayn karta hoon (Khaliq)
+* Meri-Hamad tum kartay ho (Makhlooq), Muhammad-ki-hamad mayn karta hoon (Khaliq)
 * __Surah 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا](https://quranwbw.com/33/56).
 
 ***
 
 #### Hadith muqam Al-Wasilah
-* [Abdullah b. Amr b. al-As reported Allah's Messenger (ﷺ) as saying: When you hear the Mu'adhdhin, repeat what he says, then invoke a blessing on me, for everyone who invokes a blessing on me will receive ten blessings from Allah; then beg from Allah al-Wasila for me, which is a rank in Paradise fitting for only one of Allah's servants, and I hope that I may be that one. If anyone who asks that I be given the Wasila, he will be assured of my intercession.](https://sunnah.com/muslim:384) -- Sahih Muslim 384
+* [Abdullah b. Amr b. al-As reported Allah's Messenger (ﷺ) as saying: When you hear the Mu'adhdhin, repeat what he says, then invoke a blessing on me, for everyone who invokes a blessing on me will receive ten blessings from Allah; then beg from Allah al-Wasila for me, which is a rank-in-Paradise fitting for only-one of Allah's servants, and I hope that I may be that one. If anyone who asks that I be given the WASILA, he will be assured of my intercession.](https://sunnah.com/muslim:384) -- Sahih Muslim 384
 
 ***
 

@@ -4,7 +4,7 @@
 
 #### [kia ap istikhara Karna chahte Hain](https://www.youtube.com/shorts/lpRDatejk24)
 * 1-time Darood Ibrahim
-* 1-tim Surah Fatiha, repeat the middle ayat 7-time
+* 1-time Surah Fatiha, repeat the middle ayat 7-time
 
 ***
 

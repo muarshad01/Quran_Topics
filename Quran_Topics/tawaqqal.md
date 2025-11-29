@@ -19,8 +19,8 @@
 ***
 
 #### [How to Rely on Allah (SWT) | SSA Shah](https://www.youtube.com/shorts/RoGI9xMJJaI)
-* Allah SWT doesn't like lazy-people.
-* Allah SWT likes those who strive like-Mujahids
+* Allah SWT doesn't like lazy-people (Du'a Allahumma innee 'aoozhu bika minal hammi walhazani, wal'ajzi wal-kasali. ).
+* Allah SWT likes those who strive like-Mujahids (https://quran.com/61/4)
 * We should try-our-best and leave-the-result to Allah SWT.
 
 ***

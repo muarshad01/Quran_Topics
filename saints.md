@@ -81,7 +81,8 @@
    * 224 on duty; 3 on hazori
 * 10: `GHAUS` - 3
    * Only one on duty
-   * `Hazrat Baha-ud-din (Baha-ul-Haq) Zakariya Multani` - Ghaus of his time
+   * [Hazrat Baha-ud-din (Baha-ul-Haq) Zakariya Multani - Ghaus of his time | SSA Shah](Hazat Bahao Din Zikriya - by Syed Sarfraz Shah
+)
    * The other two don't show-up
 * 11: `Naqeeb-e-Ala`: 2
    * Remain in Halat-e-Soyoh

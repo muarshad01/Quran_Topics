@@ -1,11 +1,17 @@
-#### [Ishq-e-Rasool aur Maqam-e-Waseela ki dua | Prof ARA](https://www.youtube.com/watch?v=vyyWyl7M9m8)
+#### [Ishq-e-Rasool aur Maqam-e-Waseela ki Dua | Prof ARA](https://www.youtube.com/watch?v=vyyWyl7M9m8)
+* Auf bin Malik al-Ashtar RA
+* Abu Dharr al-Ghifari RA
+* Muadh ibn-Jabal RA
+* Offer of Allah SWT:
+  * If you want O' Muhammad, 1/2 of your Ummat with enter Paradise without any Interrogation
+  * Or otherwise, you can get Muqam-e-Shifaat
 
 ***
 
 #### [Ishq-e-Rasool aur Maqam-e-Waseela ki dua | Prof ARA](https://www.youtube.com/watch?v=vyyWyl7M9m8)
-* Mahmooad: Jis ki hamad ki jai
-* Muhammad: Jis ki sab say ziada hamak ki jai.
-* Meri hamad tum kartay ho (Makhlooq), Muhammad ki hamad mayn karta hoon (Khaliq)
+* Mahmooad: Jis ki Hamad ki-jai
+* Muhammad: Jis-ki sab-say-ziada Hamad ki-jai.
+* MeriHhamad tum kartay ho (Makhlooq), Muhammad ki hamad mayn karta hoon (Khaliq)
 * __Surah 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا](https://quranwbw.com/33/56).
 
 ***

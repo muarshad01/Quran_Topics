@@ -5,6 +5,7 @@
 * Offer of Allah SWT:
   * If you want O' Muhammad, 1/2 of your Ummat with enter Paradise without any Interrogation
   * Or otherwise, you can get Muqam-e-Shifaat
+  * I've picked-up Shifaat for day-of-Judgement (Muqam-e-Mehmood)
 
 ***
 

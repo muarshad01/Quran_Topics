@@ -11,7 +11,7 @@
 #### [How to strengthen your heart in tough times? | SSA Shah](https://www.youtube.com/watch?v=4_mcKCtfklQ)
 * Raziq Rabb hai
 * Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
-* Nuqsaan-o-Faidq sabb Rabb kay hukum-say-hai
+* Nuqsaan-o-Faida sab Rabb kay hukum-say-hai
 * "Inna Allaha ala-kulli-shayin Qadeer" (إِنَّ اللَّهَ عَلَىٰ كُلِّ شَيْءٍ قَدِيرٌ)
 * XXX
 * Apnay Rabb par andha-YAQEEN Karna-seekh-layn

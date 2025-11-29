@@ -2,6 +2,12 @@
 
 ***
 
+#### [kia ap istikhara Karna chahte Hain](https://www.youtube.com/shorts/lpRDatejk24)
+* 1-time Darood Ibrahim
+* 1-tim Surah Fatiha, repeat the middle ayat 7-time
+
+***
+
 #### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=K6BZ5fiVYNM)
 * He used to avoid public
 * Ah Nizam, jab-tuh chand-huwa-thaa, tumhara-khyal-kya-thaa, loag-tumhayn-deekhyn-nahi

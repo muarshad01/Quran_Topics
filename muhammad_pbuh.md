@@ -451,14 +451,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
-### [Shan-e-Risaalat | Quran aur Hazrat Muhammad (S.A.W.W)](https://www.youtube.com/watch?v=nAT8wg8njhc)
+#### [Shan-e-Risaalat | Quran aur Hazrat Muhammad (S.A.W.W)](https://www.youtube.com/watch?v=nAT8wg8njhc)
 
 ***
 
-### [Moqam e Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
+#### [Moqam e Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
 
 ***
 
-## [Takhleeq-e-Kainat aur Noor-e-Muhammadi ﷺ | Allama Talib Johri](https://www.youtube.com/watch?v=kXaGChI0aQs)
+#### [Takhleeq-e-Kainat aur Noor-e-Muhammadi ﷺ | Allama Talib Johri](https://www.youtube.com/watch?v=kXaGChI0aQs)
 
 ***

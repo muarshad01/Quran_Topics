@@ -7,6 +7,10 @@
 
 ***
 
+* __Surah Ash-Shuara 26/214__: [وَأَنذِرْ عَشِيرَتَكَ ٱلْأَقْرَبِينَ...وَٱخْفِضْ جَنَاحَكَ لِمَنِ ٱتَّبَعَكَ مِنَ ٱلْمُؤْمِنِينَ](https://quran.com/26/214-215)
+
+***
+
 ### [Khabees Urtean Khabees Mardoun Ke liye ...| Sahil Adeem](https://www.youtube.com/watch?v=vZoUaFHrTSw)
 
 ***

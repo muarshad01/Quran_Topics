@@ -15,3 +15,5 @@
 8. __Allah SWT has given us that Amar and we run this world through that__
 
 ***
+
+#### [Ita'at Karo Allah ki, Rasool (SAW) Ki, Sahib-e-Amr ki | Allama Talib Johri‬](https://www.youtube.com/watch?v=aFoAepzXuwU)

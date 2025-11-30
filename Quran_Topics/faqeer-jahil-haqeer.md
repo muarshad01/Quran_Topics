@@ -60,3 +60,7 @@
 #### [Wali Allah Ki Pehchan Kya Hoti Hai | Prof ARA](https://www.youtube.com/watch?v=CkZbdNb3Nqo&t=17s)
 
 ***
+
+#### [Qalandar Kon Hai? | SSA Shah](https://www.youtube.com/watch?v=PTYF-0dmVxk)
+
+#### [Murshid, Peer & Qalandar | SSA Shah](https://www.youtube.com/watch?v=nesZSYl-q7c)

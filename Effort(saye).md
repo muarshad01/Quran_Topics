@@ -2,7 +2,7 @@
 
 ***
 
-* __Surah 18/103-104__: [](https://quran.com/18/103-104)
-* __Surah 88/9__: [](https://quran.com/88/9)
+* __Surah Al-Kahf 18/103-104__: [](https://quran.com/18/103-104)
+* __Surah Al-Ghashiyah 88/9__: [لِّسَعْيِهَا رَاضِيَةٌۭ](https://quran.com/88/9)
 
 ***

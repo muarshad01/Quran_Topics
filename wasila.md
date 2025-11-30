@@ -3,6 +3,10 @@
 
 ***
 
+* __Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai__
+
+***
+
 #### [Does Allah Need a Wasila? Understanding Tawassul in Islam | Prof ARA](https://www.youtube.com/watch?v=PUsBn0NbvDA)
 
 ***

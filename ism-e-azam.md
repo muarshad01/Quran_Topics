@@ -1,30 +1,6 @@
-#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
-* Sheikh Abdul Qadir Jilani: What is Ism-e-Azam?
-  * __Jab tuh Allah-ka-naam aisay-lay, keh terey-dil-mayn aur kuch-naa-hoo__
-
-***
-
 #### [Faqeer Nagri: Session 05 - Faqr-ke-Aadaab aur Ism-e-Azam](https://www.youtube.com/watch?v=kd_umbwohlw&t=37s)
    * [Notes](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession05.md)
 * __Rabb-koo DARD-say pukarna hee, Ism-e-Azam hai__
-
-***
-
-#### [Ya-Hayy-o-Ya-Qayyum and Ya-ZalJalal-e-Wal-Ikram Ism-e-Azam | SSA Shah](https://www.youtube.com/watch?v=fgqEQtajygg)
-* __Ya-Hayyu Ya-Qayyum__ (Is not Ism-e-Azam; but very close to it)
-* __Ya-Zuljalal Wal Ikram__
-
-***
-
-#### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
-* __Ism-e-Azam uss ko ataa-hota-hai, Joo Apnay-aur-Dushmanoon kay-liye mehrbaan-hoo-jai__
-* Saif-e-Zaban
-* Kun-FaYa-Kun
-* Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years.
-* Ya Latifu Amil - Telepathy
-* Tazkia-e-Nafs
-* Insaaniyat-ki-Khidmat
-* __Ya Raqeeb__: 5000 daily for 41-daily: 27:14
 
 ***
 
@@ -39,6 +15,24 @@
 1. Number-of-Rasools - 313 
 2.  Talut's (Saul's) Army people - 313 People
 3. Battle-of-Badr - 313 Sahaba 
+
+***
+
+#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
+* Sheikh Abdul Qadir Jilani: What is Ism-e-Azam?
+  * __Jab tuh Allah-ka-naam aisay-lay, keh terey-dil-mayn aur kuch-naa-hoo__
+
+***
+
+#### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
+* __Ism-e-Azam uss ko ataa-hota-hai, Joo Apnay-aur-Dushmanoon kay-liye mehrbaan-hoo-jai__
+* Saif-e-Zaban
+* Kun-FaYa-Kun
+* Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years.
+* __Ya Latifu__ Amil - Telepathy
+* Tazkia-e-Nafs
+* Insaaniyat-ki-Khidmat
+* __Ya Raqeeb__: 5000 daily for 41-daily: 27:14
 
 ***
 

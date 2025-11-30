@@ -112,9 +112,9 @@
 ***
 
 #### [Sahib-e-Ilm ki Pehchan Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
-* When we meet a sahid-e-ilm, there are Two LITMUS tests:
-1. Na-maloom-sa Itminaan-hota-hai,
-2. Hamaray-kandoon-say bohaj-uttar-gaya
+* When we meet a sahib-e-ilm, there are Two LITMUS tests:
+1. Na-maloom-sa atminaan-hota-hai,
+2. Hamaray-kandhon-say bohaj-uttar-gaya
 3. Kashish-hoo-gee, hamarah-baar-baar janay-ko dil-chahay-gaa
 4. He will not do a Nasiyat to us, but surprisingly, we turn-towards-Naiki
 
@@ -122,7 +122,7 @@
 
 #### [Discover the Path to Spiritual Sight | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
 * Rooh-ki-parwaz, insaan kay ilam-kay-saath directly-proportionate hai.
-* Ilm-kay-muqaam kay-hisab-say, uski Rooh ko saer-karney-ki ijazat-milti-hai
+* Ilm-kay-muqaam kay-hisab-say, uski-Rooh-ko saer-karney-ki ijazat-milti-hai
 
 ***
 

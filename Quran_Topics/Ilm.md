@@ -1,7 +1,7 @@
 * __Surah Az-Zumar 39/9__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ](https://quran.com/39/9)
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
 * Rabb say qareeb-say-qareeb tar hona-hai
-* Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai
+* __Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai__
 * __Surah Al-Furqan 25/63-66 (Walk Humbly ...Salaam to JAHIL)__ : [وَعِبَادُ ٱلرَّحْمَـٰنِ ٱلَّذِينَ يَمْشُونَ عَلَى ٱلْأَرْضِ هَوْنًۭا وَإِذَا خَاطَبَهُمُ ٱلْجَـٰهِلُونَ قَالُوا۟ سَلَـٰمًۭا](https://quran.com/25/63-66)
 * __Surah 35/28 ( إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
 * __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__

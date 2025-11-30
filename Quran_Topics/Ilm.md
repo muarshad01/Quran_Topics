@@ -4,6 +4,13 @@
 * Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai
 * __Surah Al-Furqan 25/63-66 (Walk Humbly ...Salaam to JAHIL)__ : [وَعِبَادُ ٱلرَّحْمَـٰنِ ٱلَّذِينَ يَمْشُونَ عَلَى ٱلْأَرْضِ هَوْنًۭا وَإِذَا خَاطَبَهُمُ ٱلْجَـٰهِلُونَ قَالُوا۟ سَلَـٰمًۭا](https://quran.com/25/63-66)
 * __Surah 35/28 ( إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
+* __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
+
+## [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Professor ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
+* __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
+* __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
+
+***
 
 ***
 

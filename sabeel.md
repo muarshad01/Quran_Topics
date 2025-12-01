@@ -1,3 +1,7 @@
+* __Surah Al-Insan 76/18__: [عَيْنًۭا فِيهَا تُسَمَّىٰ سَلْسَبِيلًۭا](https://quran.com/76/18)
+
+***
+
 #### [Quran Ki 7 Aython main Lafz Sabeel (Rasta) Aya Hai | Allama Talib Johari](https://www.youtube.com/watch?v=xJvrP4gAtlw)
 * __Surah Al-Anaam 6/153__: [وَأَنَّ هَـٰذَا صِرَٰطِى مُسْتَقِيمًۭا](https://quran.com/6/153)
 * __Surah Yusuf 12/108__: [قُلْ هَـٰذِهِۦ سَبِيلِىٓ أَدْعُوٓا۟ إِلَى ٱللَّهِ ۚ عَلَىٰ بَصِيرَةٍ أَنَا۠ وَمَنِ ٱتَّبَعَنِى ۖ وَسُبْحَـٰنَ ٱللَّهِ وَمَآ أَنَا۠ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/12/108)

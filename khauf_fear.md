@@ -49,3 +49,7 @@
 #### [How to Overcome Fear | SSA Shah](https://www.youtube.com/watch?v=MnR08z9nxLE)
 
 ***
+
+#### [Fear, frustration, anxiety, depression and stress say Nijat | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=-kfaHT0CH4s)
+
+***

@@ -9,3 +9,7 @@
 * Prophet Musa AS was married to Shuaib AS daughter in Madyan.
 
 ***
+
+* __Surah Al-Araf 7/143__: [رَبُّهُۥ قَالَ رَبِّ أَرِنِىٓ أَنظُرْ إِلَيْكَ ۚ قَالَ لَن تَرَىٰنِى](https://quran.com/7/143)
+
+*** 

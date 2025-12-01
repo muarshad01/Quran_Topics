@@ -1,3 +1,7 @@
+* __Surah Al-Munafiqun 63/9 (Warning: Wealth & Children)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تُلْهِكُمْ أَمْوَٰلُكُمْ وَلَآ أَوْلَـٰدُكُمْ عَن ذِكْرِ ٱللَّهِ ۚ وَمَن يَفْعَلْ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ ٩](https://quran.com/63/9)
+
+***
+
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png" width="500" height="500" />
 
 ***

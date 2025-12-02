@@ -160,10 +160,10 @@
 ***
 
 ### [Imam Hussain Kay Bhai Ki Shaan](https://www.youtube.com/shorts/t9i5G3AoOwY)
-* Hassan mujh Ali RA kaa fakhaar hai.
-* Kun FaYaKun ki Malka, Bibi Fatima RA: Hassan calls me mother.
-* Hassas AS mujh Hussain AS kaa imaam hai.
-* 
+* __Hassan mujh Ali RA kaa-fakhaar-hai.__
+* Kun FaYaKun ki Malka, Bibi Fatima RA: __Hassan calls me mother.__
+* __Hassas AS mujh Hussain AS kaa imaam hai.__
+
 
 ***
 
@@ -176,27 +176,27 @@
 ***
 
 #### [Hazrat Imam Hussain (R.A.) Ka Qissa Qurbani | SSA Shah](https://www.youtube.com/watch?v=BHKee2SId7s)
-* Hazrat Ibrahim AS say qurbani mangi gaye thee. Hukum kay tehat woh qurbani kar rahey thay
-* Allah SWT ka hukum
-* Siffat Rahemi: Lamb was placed 
-* Allah SWT kay Deen ko apni asal shakal mayn rakhnay kay liye, yeah faisla khud hazrat Imam Hussain nay kiya
-* Allak SWT ka hukum hai...burai kay khalaf jahad karo
+* __Hazrat Ibrahim AS:__
+  * Say qurbani mangi-gaye-thee. __HUKUM__-kay-tehat woh qurbani kar-rahey-thay
+  * Allah SWT ka HUKUM
+  * __Siffat Raheemi__: Lamb was placed 
+* __Hussain RA__
+  * Allah SWT kay Deen ko apni-asal-shakal mayn-rakhnay kay-liye, yeah faisla khud hazrat Imam Hussain nay kiya
+ * Allak SWT ka hukum hai...burai-kay-khalaf jahad-karo
 
 ***
 
 #### [Imam Hussain and Battle of Karbala | Professor ARA](https://www.youtube.com/watch?v=OTU3Zy83sho)
 * __Surah As-Saffat 37/108__: [وَتَرَكْنَا عَلَيْهِ فِى ٱلْـَٔاخِرِينَ](https://quran.com/37/108)
 * __Surah As-Saffat 37/129__: [وَتَرَكْنَا عَلَيْهِ فِى ٱلْـَٔاخِرِينَ](https://quran.com/37/129)
-* __Surah Al-Baqarah 2/106__: [۞ مَا نَنسَخْ مِنْ ءَايَةٍ أَوْ نُنسِهَا نَأْتِ بِخَيْرٍۢ مِّنْهَآ أَوْ مِثْلِهَآ ۗ أَلَمْ تَعْلَمْ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌ](https://quran.com/2/106)
+* __Surah Al-Baqarah 2/106__: [مَا نَنسَخْ مِنْ ءَايَةٍ أَوْ نُنسِهَا نَأْتِ بِخَيْرٍۢ مِّنْهَآ أَوْ مِثْلِهَآ ۗ أَلَمْ تَعْلَمْ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌ](https://quran.com/2/106)
 * __ALL TRAILS came together in a short duration.__
 
 ***
 
-#### [Hussain sey Ishq and Battle of Karbala| Professor ARA](https://www.youtube.com/watch?v=A9L5N2Be_Eo)
-
-***
-
-#### [Hussain sey Ishq and Battle of Karbala| Prof ARA](https://www.youtube.com/watch?v=BgD8272HidQ)
+#### [Hussain-sey-Ishq and Battle-of-Karbala| Prof ARA](https://www.youtube.com/watch?v=BgD8272HidQ)
+* __ISHQ__: Is name of a top commit.
+* Top priority at time-of-departure offer those two Rakats in front of Allah SWT.
 
 ***
 

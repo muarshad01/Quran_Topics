@@ -461,6 +461,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 ***
 
+#### [Moqam-e-Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+* __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
+* __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
+* __Surah At-Taghabun 64/8__: [فَـَٔامِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَٱلنُّورِ ٱلَّذِىٓ أَنزَلْنَا ۚ وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/64/8)
+  
+***
+***
+
 #### [Takhleeq-e-Kainat aur Noor-e-Muhammadi ﷺ | Allama Talib Johri](https://www.youtube.com/watch?v=kXaGChI0aQs)
 
 ***

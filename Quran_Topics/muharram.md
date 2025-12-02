@@ -195,3 +195,25 @@
 #### [Hussain sey Ishq and Battle of Karbala| Prof ARA](https://www.youtube.com/watch?v=BgD8272HidQ)
 
 ***
+
+#### [Nawasa (Hussain) | Allama Talib Johri](https://www.youtube.com/watch?v=0hdIF26MofY)
+* Namaz, momin-ki-miraj Hai. Afzal tareen Ibadat.
+* Sajdah, namaz-ki-miraj Hai. Namaz ka afzal-tareen-rukun.
+* Sahib-e-Miraj Sajdah mayn. 
+* ...
+* Masjid-e-Nabvi, dunya ki afzal-tareen-masjid
+* Mera Nabi, dunya ka afzal-tareen-namazi
+* Sajdah, namaz ka afzal-tareen-rukun
+* ...
+* Nawasa-aa-kar Rool (SAW) ki pushat-par bhayt-gaya
+* 70 times: "Subhana Rabbiyal a la" ( سُبْحَانَ رَبِّيَ الأَعْلَى)
+* ...
+* __Surah Al-Munaafiqoon 63/9__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تُلْهِكُمْ أَمْوَٰلُكُمْ وَلَآ أَوْلَـٰدُكُمْ عَن ذِكْرِ ٱللَّهِ ۚ وَمَن يَفْعَلْ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ](https://quranwbw.com/63/9)
+* __Hussan ka Zikr ...Zikr Allah hai!!!__
+* __Na Namaaz ko Hussain RA kay-liya qurban-kia aur na Hussain ko Namaaz kay-liya qurban-kia.__
+* __Hussain hee hay maqsad-e-namaaz.__
+* Hazrat Hussan RA:
+  * Start of Day: Akbar ki Azaan
+  * End of Day: Hussain Ka Sajdah
+
+***

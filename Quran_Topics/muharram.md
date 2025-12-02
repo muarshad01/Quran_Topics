@@ -185,6 +185,10 @@
 ***
 
 #### [Imam Hussain and Battle of Karbala | Professor ARA](https://www.youtube.com/watch?v=OTU3Zy83sho)
+* __Surah As-Saffat 37/108__: [وَتَرَكْنَا عَلَيْهِ فِى ٱلْـَٔاخِرِينَ](https://quran.com/37/108)
+* __Surah As-Saffat 37/129__: [وَتَرَكْنَا عَلَيْهِ فِى ٱلْـَٔاخِرِينَ](https://quran.com/37/129)
+* __Surah Al-Baqarah 2/106__: [۞ مَا نَنسَخْ مِنْ ءَايَةٍ أَوْ نُنسِهَا نَأْتِ بِخَيْرٍۢ مِّنْهَآ أَوْ مِثْلِهَآ ۗ أَلَمْ تَعْلَمْ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌ](https://quran.com/2/106)
+* __ALL TRAILS came together in a short duration.__
 
 ***
 
@@ -215,5 +219,9 @@
 * Hazrat Hussan RA:
   * Start of Day: Akbar ki Azaan
   * End of Day: Hussain Ka Sajdah
+
+***
+
+#### [Waqia-E-Karbala and Palestine | Sahil Adeem](https://www.youtube.com/watch?v=eLT9DdtU5E8)
 
 ***

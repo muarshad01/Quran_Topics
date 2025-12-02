@@ -2,7 +2,7 @@
 
 ***
 
-### Allah SWT Names in Quran
+#### Allah SWT Names in Quran
 * ONE name `Allah` is `Ism-e-Zaat`
 * 98 other names are `Ism-e-siffat`
 * https://99namesofallah.name/

@@ -3,6 +3,15 @@
 
 ***
 
+#### [Hazrat Hussain’s (RA) Painful Moment |The Karbala Scene That Shakes Every Heart | SSA Shah](https://www.youtube.com/watch?v=4kjeLFOWnpk)
+* In the whole human history, no-body has ever shown such a bravery...
+  * Na koi shikwa,
+  * na koi gila,
+  * na koi tasbeeh,
+  * na koi wazifa
+
+***
+
 #### [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
 * Sons:
   * Ali Akbar (Bharchi in the chest) [18-27] years
@@ -45,15 +54,6 @@
 * Ya Hakeemu Ya Qawiu - 
 * Ya Awalu Ya Akiru -
 
-***
-
-#### [Martyrdom of Imam Hussain (RA)… Jewish Plan? | Why were the tents burned?](https://www.youtube.com/watch?v=X5TXpEYoe0A)
-
-***
-
-#### [Hazrat Hussain’s (RA) Painful Moment |The Karbala Scene That Shakes Every Heart | SSA Shah](https://www.youtube.com/watch?v=4kjeLFOWnpk)
-* In the whole human history, no-body has ever shown such a bravery...
-* Na koi shikwa, na koi gila, na koi tasbeeh, na koi wazifa
 ***
 
 #### [1st Muharram - Martyrdom anniversary of the conqueror-of-Jerusalem, Hazrat Umar (RA) | Suno Muslim](https://www.youtube.com/watch?v=K_mVoljgqCk)
@@ -223,5 +223,9 @@
 ***
 
 #### [Waqia-E-Karbala and Palestine | Sahil Adeem](https://www.youtube.com/watch?v=eLT9DdtU5E8)
+
+***
+
+#### [Martyrdom of Imam Hussain (RA)… Jewish Plan? | Why were the tents burned? | Dr Israr Ahmed](https://www.youtube.com/watch?v=X5TXpEYoe0A)
 
 ***

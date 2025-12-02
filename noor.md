@@ -46,7 +46,7 @@
 
 ***
 
-#### [Emaan Ka Noor Kaisay Milta Hai| Wasif Ali Wasif](https://www.youtube.com/shorts/WRyk-bJUhWA)
+#### [Emaan Ka Noor Kaisay Milta Hai | Wasif Ali Wasif](https://www.youtube.com/shorts/WRyk-bJUhWA)
 * __Surah Al-Baqarah 2/257__: [ٱللَّهُ وَلِىُّ ٱلَّذِينَ ءَامَنُوا۟ يُخْرِجُهُم مِّنَ ٱلظُّلُمَـٰتِ إِلَى ٱلنُّورِ ۖ وَٱلَّذِينَ كَفَرُوٓا۟ أَوْلِيَآؤُهُمُ ٱلطَّـٰغُوتُ يُخْرِجُونَهُم مِّنَ ٱلنُّورِ إِلَى ٱلظُّلُمَـٰتِ ۗ أُو۟لَـٰٓئِكَ أَصْحَـٰبُ ٱلنَّارِ ۖ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/2/257)
 
 ***

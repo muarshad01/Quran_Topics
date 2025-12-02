@@ -82,19 +82,19 @@
  
 ***
 
-#### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
-
-***
-
-#### [What Is The Meaning of | Allahu nurus Samawati wal ard'| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
-
-***
-
 #### [Noor kia hy | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
 
 ***
 
 #### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
+
+***
+
+#### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
+
+***
+
+#### [What Is The Meaning of | Allahu nurus Samawati wal ard'| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
 
 ***
 

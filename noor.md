@@ -1,12 +1,11 @@
-* __Surah At-Tawbah 9/32__: [يُرِيدُونَ أَن يُطْفِـُٔوا۟ نُورَ ٱللَّهِ بِأَفْوَٰهِهِمْ وَيَأْبَى ٱللَّهُ إِلَّآ أَن يُتِمَّ نُورَهُۥ وَلَوْ كَرِهَ ٱلْكَـٰفِرُونَ](https://quran.com/9/32)
-
 #### Allah SWT Noor
 * __Surah 24/35__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ مَثَلُ نُورِهِۦ كَمِشْكَوٰةٍۢ فِيهَا مِصْبَاحٌ ۖ ٱلْمِصْبَاحُ فِى زُجَاجَةٍ ۖ ٱلزُّجَاجَةُ كَأَنَّهَا كَوْكَبٌۭ دُرِّىٌّۭ يُوقَدُ مِن شَجَرَةٍۢ مُّبَـٰرَكَةٍۢ زَيْتُونَةٍۢ لَّا شَرْقِيَّةٍۢ وَلَا غَرْبِيَّةٍۢ يَكَادُ زَيْتُهَا يُضِىٓءُ وَلَوْ لَمْ تَمْسَسْهُ نَارٌۭ ۚ نُّورٌ عَلَىٰ نُورٍۢ ۗ يَهْدِى ٱللَّهُ لِنُورِهِۦ مَن يَشَآءُ ۚ وَيَضْرِبُ ٱللَّهُ ٱلْأَمْثَـٰلَ لِلنَّاسِ ۗ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/24/35)
-
+* __Surah At-Tawbah 9/32__: [يُرِيدُونَ أَن يُطْفِـُٔوا۟ نُورَ ٱللَّهِ بِأَفْوَٰهِهِمْ وَيَأْبَى ٱللَّهُ إِلَّآ أَن يُتِمَّ نُورَهُۥ وَلَوْ كَرِهَ ٱلْكَـٰفِرُونَ](https://quran.com/9/32)
+  
 #### Misbaah - Fanous (Lantern)
 * Human `HEART` is like a `Fanous (Lantern)`
 * If the glass-of-Lantern is foggy then the-light-will-not-be-able-to-spread-out and will remain trapped-inside
-* Once we clean / purify our heart (i.e. clean the Lantern glass) then the Lantern light, which fells upon it, refrects and spreads out in all directions
+* Once we clean / purify our HEART (i.e. clean the Lantern glass) then the Lantern light, which fells upon it, refrects and spreads out in all directions
 * Heart has 10 impurities (Al-Ghazali [1058 – 1111])
    * Unless our heart is not PURIFIED (`Aina-e-Dil` is not purified), God doesn't live there.
 
@@ -19,21 +18,6 @@
 
 #### La Shar-qe-ya-tin wa-la Ghar-bi-ya-tin (لَّا شَرْقِيَّةٍۢ وَلَا غَرْبِيَّةٍۢ)
 * Since, `Imaan` has no `haad-o-hisab (limts)` thats why it has been mentioned that it is `Not-of-the-East and Not-of-the-West`
-
-***
-
-#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
-
-***
-
-* Paki: Intellectual Paki and Maturity
-
-***
-
-#### Prophet PBUH prayer
-* `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`
-* `al-masakeen`, which refers to the needy. 
-  * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
 
 ***
 
@@ -110,5 +94,20 @@
 ***
 
 #### [Noor kia hy | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
+
+***
+
+#### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
+
+***
+
+* Paki: Intellectual Paki and Maturity
+
+***
+
+#### Prophet PBUH prayer
+* `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`
+* `al-masakeen`, which refers to the needy. 
+  * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
 
 ***

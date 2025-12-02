@@ -1,8 +1,8 @@
-### [Tazkia Nafs Kaise Kiya Jaye? | SSA Shah](https://www.youtube.com/watch?v=KV22YWPRArY)
+#### [Tazkia Nafs Kaise Kiya Jaye? | SSA Shah](https://www.youtube.com/watch?v=KV22YWPRArY)
 
 ***
 
-### [Tazkiya-e-Nafs | Allama Talib Johri](https://www.youtube.com/watch?v=MFymvwe0WLA)
+#### [Tazkiya-e-Nafs | Allama Talib Johri](https://www.youtube.com/watch?v=MFymvwe0WLA)
 * __Surah Ash-Shams 91/7-10__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10)
   * First Yourself
   * Then Your Home, Family
@@ -29,7 +29,7 @@
   * Nabi: The one who takes Naba(Khabar) from Allah SWT
   * Rasool: The messenger, the one who conveys the message to People
 
-### Toor, Galeel, Faran
+#### Toor, Galeel, Faran
 * Toor (Torah)
 * Galeel??? (Gospel)
 * Faran (Quran...?)
@@ -38,7 +38,7 @@
 
 ***
 
-### [Tazkia-e-Nafs | Sahil Adeem](https://www.youtube.com/watch?v=nevkIwKlDE8)
+#### [Tazkia-e-Nafs | Sahil Adeem](https://www.youtube.com/watch?v=nevkIwKlDE8)
 * __Surah Al-Baqarah 2/152__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ](https://quranwbw.com/2/152)
 * __Surah Ar-Raad 13/11__: [إِنَّ ٱللَّهَ لَا يُغَيِّرُ مَا بِقَوْمٍ حَتَّىٰ يُغَيِّرُوا۟ مَا بِأَنفُسِهِمْ ۗ](https://quran.com/13/11)
 * __Surah__: [(1) Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise. (2) He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quran.com/62/1-2)

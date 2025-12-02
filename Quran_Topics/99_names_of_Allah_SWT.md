@@ -26,6 +26,10 @@
 ***
 
 #### [Allah Kay 4-Nam Ju Na-Mumkin Ko Mumkin-Bana-Day | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7dQ8ZixvZKA)
+1. Ya Subhoohoou
+2. Ya Qadoosu
+3. Ya Ghafooru
+4. Ya Wadoodu
 
 ***
 
@@ -34,7 +38,7 @@
 ***
 
 #### [01. Benefits of Allah Name Ar-Rehman | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=JT4hNf_5zrA)
-* __Surah 6/64__: [عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+* __Surah 6/64__: [ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
 * Bay-haad-Reham kaynay-wala (Momin, Kafir, sabb bilaa-tafreeq)
 * Rizq, Shafqat-o-Mohabbat, Balaon-Afatoon-Musibatoon say bachata
 * __Rehman__: Manga-jaye to khush-hoo; Na-manga-jaye to naraz-hoo.

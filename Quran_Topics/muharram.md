@@ -1,5 +1,5 @@
 #### [Hazrat Hussain (RA) Ks Sabar | SSA Shah](https://www.youtube.com/shorts/0s-gMoG1lvs)
-* Yehi woh loag hayn, jinhayn apnay-Rabb-par puri-tarah bharoosa-hai.
+* Yehi woh loag hayn, jinhayn apnay-Rabb-par puri-tarah __BHAROOSA__-hai.
 
 ***
 

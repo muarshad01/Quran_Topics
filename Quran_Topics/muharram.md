@@ -1,9 +1,5 @@
 #### [Hazrat Hussain (RA) Ks Sabar | SSA Shah](https://www.youtube.com/shorts/0s-gMoG1lvs)
-
-***
-
-#### [Hussain sey Ishq and Battle of Karbala| Professor ARA](https://www.youtube.com/watch?v=BgD8272HidQ)
-* Hussain 
+* Yehi woh loag hayn, jinhayn apnay-Rabb-par puri-tarah bharoosa-hai.
 
 ***
 
@@ -51,7 +47,7 @@
 
 ***
 
-* [Martyrdom of Imam Hussain (RA)… Jewish Plan? | Why were the tents burned?](https://www.youtube.com/watch?v=X5TXpEYoe0A)
+#### [Martyrdom of Imam Hussain (RA)… Jewish Plan? | Why were the tents burned?](https://www.youtube.com/watch?v=X5TXpEYoe0A)
 
 ***
 

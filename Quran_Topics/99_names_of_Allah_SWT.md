@@ -1,3 +1,7 @@
+#### [Lafz-e-Allah Ki Tashreeh | Asma-e-Husna | Allama Talib Jauhari](https://www.youtube.com/watch?v=52c9wsxgLTg)
+
+***
+
 ### Allah SWT Names in Quran
 * ONE name `Allah` is `Ism-e-Zaat`
 * 98 other names are `Ism-e-siffat`

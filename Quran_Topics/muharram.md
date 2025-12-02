@@ -9,11 +9,11 @@
 
 #### [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
 * Sons:
- * Ali Akbar (Bharchi in the chest) [18-27] years
- * Ali Asghar (6 months old; Arrow in the heart)
- * Qasim
+  * Ali Akbar (Bharchi in the chest) [18-27] years
+  * Ali Asghar (6 months old; Arrow in the heart)
+  * Qasim
 * Brother Abbas:
- * Hands were cut
+  * Hands were cut
 * Carried 72 dead bodies
 * 33 wounds of daggers, 34 wounds of swords
 

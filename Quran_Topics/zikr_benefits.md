@@ -6,12 +6,12 @@
 
 ***
 
-* Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa
+* __Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa.__
 * Hikmat Momim-ki gum-shuda-mataa hai, chahay Munafiq say-bhee-milay lay-loo. -- Hazrat Ali RA
-* Insaan Zabaan-kay-parday mayn chupa-hai. -- Hazrat Ali RA
-* __Don't leave Zir ever...All problems will be solved!__ -- Irfan-ul-Haq
-* Tasbeeh walay BRAVE hotay hayn. -- Prof. ARA
-* `SECRET`: No body can fight that person because Allah SWT takes care of his ememies-:) -- Prof. ARA
+* Insaan __ZABAAN__-kay-parday mayn chupa-hai. -- Hazrat Ali RA
+* __Don't leave ZIKR ever...All problems will be solved!__ -- Irfan-ul-Haq
+* Tasbeeh walay __BRAVE__ hotay hayn. -- Prof. ARA
+* __SECRET__: No body can fight that person because Allah SWT takes care of his ememies-:) -- Prof. ARA
 
 ***
 

@@ -6,6 +6,10 @@
 
 ***
 
+#### [Girtay hayn sajdon mayn hum...](https://www.youtube.com/shorts/30kAvMu-zgg)
+
+***
+
 #### [Namaz Tarjuma ke sath | Namaz With Urdu Translation | نماز کا طریقہ | نماز ترجمہ](https://www.youtube.com/watch?v=DgJ36yBDgQA)
 
 ***

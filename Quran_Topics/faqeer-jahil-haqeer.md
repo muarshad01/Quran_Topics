@@ -3,6 +3,10 @@
 
 ***
 
+#### [Yearning for God](https://www.youtube.com/shorts/VyaGXuP8azc)
+
+***
+
 #### [Why is Faqeer Peaceful | SSA Shah](https://www.youtube.com/shorts/oOXQY7IXo2M)
 * Kamyabi ki qeemat mehnat, dukh, aur takleef hai.
 * FAQEER's objective: Mujhay Rabb ka QURAB hasil ho jai.

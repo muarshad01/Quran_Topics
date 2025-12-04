@@ -1,17 +1,17 @@
 #### [Signs that Allah SWT has Choses you](https://www.youtube.com/shorts/GkzowvaPtsA)
-* Grant of Ilm is afzal tareen (The Best Inam)
-* Roozi wasee kar deh
-* Izzat (Respect) baksh di
+* Grant-of-Ilm is afzal tareen (The Best Inaam)
+* Roozi wasee-kar-deh
+* Izzat (Respect) baksh-di
 * Every Naymat (Blessing) granted to us is His Fazal
 
 ***
 
 #### Fazl (Bounty)
-* __Surah Al-Baqarah 2/243__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
-    * https://quranwbw.com/97/3 (alif / alufun)
-    * https://quranwbw.com/2/216
-    * https://quranwbw.com/5/20
-    * `This refers to the exodus of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for forty years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.`
+* __Surah Al-Baqarah 2/243__: [۞ أَلَمْ تَرَ إِلَى ٱلَّذِينَ خَرَجُوا۟ مِن دِيَـٰرِهِمْ وَهُمْ أُلُوفٌ حَذَرَ ٱلْمَوْتِ فَقَالَ لَهُمُ ٱللَّهُ مُوتُوا۟ ثُمَّ أَحْيَـٰهُمْ ۚ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quranwbw.com/2/243)
+    * __Surah 2/216__:[__Surah 5/20__:](https://quran.com/2/216)
+    * __Surah 5/20__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦ يَـٰقَوْمِ ٱذْكُرُوا۟ نِعْمَةَ ٱللَّهِ عَلَيْكُمْ إِذْ جَعَلَ فِيكُمْ أَنۢبِيَآءَ وَجَعَلَكُم مُّلُوكًۭا وَءَاتَىٰكُم مَّا لَمْ يُؤْتِ أَحَدًۭا مِّنَ ٱلْعَـٰلَمِينَ](https://quran.com/5/20)
+    * __Surah 97/3__: [لَيْلَةُ ٱلْقَدْرِ خَيْرٌۭ مِّنْ أَلْفِ شَهْرٍۢ](https://quran.com/97/3) (alif / alufun)
+    * `This refers to the EXODUS of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for 40 years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.`
 
 ***
 

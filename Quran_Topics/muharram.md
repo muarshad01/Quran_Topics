@@ -228,3 +228,7 @@
 #### [Imam Hassas AS Langaar](https://www.youtube.com/shorts/4fe7ZjG6Ziw)
 
 ***
+
+#### [Allama Talib Johri | Shan-e-Imam Hassan](https://www.youtube.com/watch?v=I2hN8g37LI8)
+
+***

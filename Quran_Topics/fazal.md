@@ -39,12 +39,10 @@ https://quran.com/27/15-16
 ***
 
 #### [Allah Ke Fazal Ya Raazi Hone Ki Nishaniyan | SSA Shah](https://www.youtube.com/watch?v=ghe-XUb2Vkg)
-* 
-
-***
-
-#### [Faiz Aur Uski Nishaniyan | SSA Shah](https://www.youtube.com/shorts/VyaGXuP8azc)
-
+* Behaviour Attitudes with others.
+* What you can do for other.
+* What sacrifice you can do for others.
+  
 ***
 
 #### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Hazrat Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)

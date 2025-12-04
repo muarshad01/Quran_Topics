@@ -1,3 +1,8 @@
+#### [The Formula for Lasting Happiness | حقیقی خوشی کیسے حاصل ہوتی ہے؟](https://www.youtube.com/watch?v=ltbutngPzUs)
+* Loag rootay-huay meray-pass aayan aur hanstay huway-jayn.
+
+***
+
 #### [Azab-e-Qaber Rooh ko Ya Jisam ko | Dil Ko Sukoon Dene Wala Bayan Dr Hammad Lakhvi](https://www.youtube.com/watch?v=WI_p3vtX1i0)
 * __Surah 39/42__: [ٱللَّهُ يَتَوَفَّى ٱلْأَنفُسَ حِينَ مَوْتِهَا وَٱلَّتِى لَمْ تَمُتْ فِى مَنَامِهَا ۖ فَيُمْسِكُ ٱلَّتِى قَضَىٰ عَلَيْهَا ٱلْمَوْتَ وَيُرْسِلُ ٱلْأُخْرَىٰٓ إِلَىٰٓ أَجَلٍۢ مُّسَمًّى ۚ إِنَّ فِى ذَٰلِكَ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَتَفَكَّرُونَ](https://quran.com/39/42)
 * __Surah 75/22 (Radiant)__: [وُجُوهٌۭ يَوْمَئِذٍۢ نَّاضِرَةٌ](https://quran.com/75/22)

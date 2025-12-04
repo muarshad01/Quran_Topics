@@ -1,3 +1,7 @@
+#### [I was a hidden treasure Khazana - Allah SWT](https://www.youtube.com/watch?v=HNbF6SFLnt8)
+
+***
+
 #### [Lafz-e-Allah Ki Tashreeh | Asma-e-Husna | Allama Talib Jauhari](https://www.youtube.com/watch?v=52c9wsxgLTg)
 
 ***

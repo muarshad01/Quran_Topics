@@ -1,4 +1,4 @@
-### [Why is Faqeer Peaceful](https://www.youtube.com/shorts/oOXQY7IXo2M)
+### [Why is Faqeer Peaceful | SSA Shah](https://www.youtube.com/shorts/oOXQY7IXo2M)
 
 ***
 
@@ -24,15 +24,21 @@ https://quranawareness.wordpress.com/success-53-ayats/
 
 * __Surah At-Taghuban 64/9__:[يَوْمَ يَجْمَعُكُمْ لِيَوْمِ ٱلْجَمْعِ ۖ ذَٰلِكَ يَوْمُ ٱلتَّغَابُنِ ۗ وَمَن يُؤْمِنۢ بِٱللَّهِ وَيَعْمَلْ صَـٰلِحًۭا يُكَفِّرْ عَنْهُ سَيِّـَٔاتِهِۦ وَيُدْخِلْهُ جَنَّـٰتٍۢ تَجْرِى مِن تَحْتِهَا ٱلْأَنْهَـٰرُ خَـٰلِدِينَ فِيهَآ أَبَدًۭا ۚ ذَٰلِكَ ٱلْفَوْزُ ٱلْعَظِيمُ](https://quran.com/64/9)
 
-
-
 ***
 
-
-## Great SUCCESS
+#### Great SUCCESS
 * Defeat your NAFAS
    * You'll get `Izzat, Dulat, Iqtidar of Descendants`
    * `Raat-ki-Tanhai` main Raab ko pukaartay rahain
    * Din main jan-toorh `Mehnat aur Jad-o-Jahad` karain
 
 ***
+
+#### [Why Successful People Face Challenges | کامیابی کے مشکل راستے کیوں؟](https://www.youtube.com/watch?v=rV73Ow2fmwE)
+* ARMY Officer:
+  * Medical Test
+  * ISSB
+  * Interview
+  * PMA
+
+*** 

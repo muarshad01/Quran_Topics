@@ -1,1 +1,9 @@
+* Occult: Numerology, ...
+* Ilm-e-Jibbat
 
+***
+
+#### [Waseela aur Shirk, Wasila kab shirak banta hai | Prof ARA](https://www.youtube.com/watch?v=rTlvDDizhCs)
+* __Surah Al-Hujurat 49/2__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ وَلَا تَجْهَرُوا۟ لَهُۥ بِٱلْقَوْلِ كَجَهْرِ بَعْضِكُمْ لِبَعْضٍ أَن تَحْبَطَ أَعْمَـٰلُكُمْ وَأَنتُمْ لَا تَشْعُرُونَ](https://quran.com/49/2)
+* Occult: Principle is again the asool-of-deen
+***

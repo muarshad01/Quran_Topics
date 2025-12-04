@@ -6,6 +6,10 @@
 
 ***
 
+#### [Nigahe-e-Faqar Mein | Bal-e--Jibril 45 Ghazal with Explanation](https://www.youtube.com/watch?v=_mzRfTq_r00)
+
+***
+
 ## Hazrat Daata Jang-Baksh
 * Faqeer par lazim-hai, kay-woh doosron-ki-khidmat iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, faqeer-par ihsaan kar-rahay-hayn.
 

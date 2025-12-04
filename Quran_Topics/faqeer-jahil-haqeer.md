@@ -1,6 +1,14 @@
 #### [Rishtay Aur Sabr-o-Bardasht](https://www.youtube.com/shorts/MDFbeKDnm9I)
 * Faqeer wo hai, jis-nay __dunya-ko-tukhraya__
 
+***
+
+#### [Why is Faqeer Peaceful | SSA Shah](https://www.youtube.com/shorts/oOXQY7IXo2M)
+* Kamyabi ki qeemat mehnat, dukh, aur takleef hai.
+* FAQEER's objective: Mujhay Rabb ka QURAB hasil ho jai.
+  
+***
+
 #### https://www.youtube.com/shorts/sJI9qOYmvPc
 * Faqeer saari-umer doosron-mayn khyushian-bantaa-hai
 

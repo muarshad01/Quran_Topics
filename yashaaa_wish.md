@@ -1,6 +1,6 @@
-#### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
-* Aik Ikhlas ka Sajdah
-* Aik Ikhlas wala Sajdah, where there is no body in heart except All might Allah SWT.
+#### [You cannot will, unless Allah wills, Tum Chah be | Prof ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
+* Aik-Ikhlas ka-Sajdah
+* __Aik-Ikhlas-Wala-Sajdah__, where there is nobody in HEART except All mighty Allah SWT.
 * Sheikh Abdul Qadir Jilani: What is Ism-e-Azam
   * Jab tuh Allah ka naam aisay lay, keh terey dil mayn aur kuch-naa-hoo
 * __Surah Al-Anbya 21/79 (فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ)__: [فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ وَكُلًّا ءَاتَيْنَا حُكْمًۭا وَعِلْمًۭا ۚ وَسَخَّرْنَا مَعَ دَاوُۥدَ ٱلْجِبَالَ يُسَبِّحْنَ وَٱلطَّيْرَ ۚ وَكُنَّا فَـٰعِلِينَ](https://quran.com/21/79)

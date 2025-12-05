@@ -1,8 +1,3 @@
-#### [Hazrat Adam (A.S) Ko Mukhtalif-Mitti Se Kyun-Banaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
-
-
-***
-
 <!--
 ### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof Ahmed Rafique Akhtar](https://www.youtube.com/shorts/iIcV-MAQzZE)
 
@@ -107,6 +102,7 @@
 
 ***
 
+#### [Hazrat Adam (A.S) Ko Mukhtalif-Mitti Se Kyun-Banaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
 
 #### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
 

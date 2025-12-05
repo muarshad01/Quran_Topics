@@ -232,3 +232,5 @@
 #### [Allama Talib Johri | Shan-e-Imam Hassan](https://www.youtube.com/watch?v=I2hN8g37LI8)
 
 ***
+
+#### [Shan-e-Imam Hassan a.s Part 3 | Allama Talib Johri](https://www.youtube.com/watch?v=I2hN8g37LI8)

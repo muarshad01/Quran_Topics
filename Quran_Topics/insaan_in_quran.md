@@ -103,7 +103,7 @@
 
 ***
 
-#### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof Ahmed Rafique Akhtar](https://www.youtube.com/shorts/iIcV-MAQzZE)
+#### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof ARA](https://www.youtube.com/shorts/iIcV-MAQzZE)
 
 ***
 

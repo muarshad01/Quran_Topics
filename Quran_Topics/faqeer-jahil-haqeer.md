@@ -88,19 +88,21 @@
 2. Sufi
 3. Peer: Sahib-e-Aqal-o-Daanish (When the Murshid thinks the mureed can teach people)
 
-* Murshid:
-  * Rush-o-Hadiat: Woh admi joo apki tarbayat karta hai. Shows you the straight path.
+* __Murshid (Rushad-o-Hadiat)__: Woh admi joo apki tarbayat karta hai. Shows you the straight path.
 
 ***
 
 #### [Wali Allah Ki Pehchan Kya Hoti Hai | Prof ARA](https://www.youtube.com/watch?v=CkZbdNb3Nqo&t=17s)
 
 ***
+
 #### [Yearning for God | Prof ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
 
 ***
 
 #### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
+
+***
 
 #### [Nigahe-e-Faqar Mein | Bal-e--Jibril 45 Ghazal with Explanation](https://www.youtube.com/watch?v=_mzRfTq_r00)
 

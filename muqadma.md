@@ -1,6 +1,14 @@
 * Fear uss-koo-hota-hai jo-apnay-liye jeeta-ho...jo kisi-maqsad kay-liye zinda-ho...usay koi-darr-nahi. Wasif Ali Wasif 
 
 ***
+
+#### [Remember Allah In Hard Time..| Prof ARA](https://www.youtube.com/watch?v=qpV8dowbTjE)
+
+***
+
+#### [How To Deal With Bad Time? | Prof ARA](https://www.youtube.com/watch?v=LpLiNVefRd8)
+
+***
 * __Surah 4/45__: [وَٱللَّهُ أَعْلَمُ بِأَعْدَآئِكُمْ ۚ وَكَفَىٰ بِٱللَّهِ وَلِيًّۭا وَكَفَىٰ بِٱللَّهِ نَصِيرًۭا](https://quran.com/4/45)
   * [Dushman Ka Sar Tumhare Pero Men](https://www.youtube.com/shorts/Lj7fgLdH4gA)
   * Monday / Wednesday, Asr to Maghbir, 21-times

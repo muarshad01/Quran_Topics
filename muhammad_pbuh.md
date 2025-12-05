@@ -472,3 +472,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 #### [Takhleeq-e-Kainat aur Noor-e-Muhammadi ﷺ | Allama Talib Johri](https://www.youtube.com/watch?v=kXaGChI0aQs)
 
 ***
+
+#### [Mola Ali A.S Se Anokha Sawal Allah Ne Muhammad SWS Ko Kaisy Paida Kia...!! | Allama Talib jhori](https://www.youtube.com/watch?v=cBRs3Y252G0)
+
+***

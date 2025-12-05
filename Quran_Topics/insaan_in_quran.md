@@ -93,3 +93,5 @@
 ### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
 
 ***
+
+#### [Sharf e Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)

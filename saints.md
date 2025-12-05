@@ -317,4 +317,10 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 * Silsila-e-Junadia
 * Top intellectuals
 * __Surah Ale-Imran 3/191__: [ٱلَّذِينَ يَذْكُرُونَ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِهِمْ وَيَتَفَكَّرُونَ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ رَبَّنَا مَا خَلَقْتَ هَـٰذَا بَـٰطِلًۭا سُبْحَـٰنَكَ فَقِنَا عَذَابَ ٱلنَّارِ](https://quran.com/3/191)
+
+***
+
+### Ali bin Usman Hajveri
+* __Ali bin Usman Hajveri__, also known as Data Ganj Bakhsh, was a 11th-century Sufi saint and scholar who had a spiritual teacher named __Sheikh Abul Fazal Muhammad bin Khatli__. Hajveri received his spiritual education from Abul Fazal, a master of the __Junaidiya Sufi order__, before settling in Lahore to spread Islam in South Asia. 
+
 ***

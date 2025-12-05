@@ -93,6 +93,7 @@
 ***
 
 #### [Wali Allah Ki Pehchan Kya Hoti Hai | Prof ARA](https://www.youtube.com/watch?v=CkZbdNb3Nqo&t=17s)
+* __Ali bin Usman Hajveri__, also known as Data Ganj Bakhsh, was a 11th-century Sufi saint and scholar who had a spiritual teacher named __Sheikh Abul Fazal Muhammad bin Khatli__. Hajveri received his spiritual education from Abul Fazal, a master of the __Junaidiya Sufi order__, before settling in Lahore to spread Islam in South Asia. 
 
 ***
 

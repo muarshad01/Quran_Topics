@@ -7,8 +7,7 @@
 ***
 
 * __Surah Al-Isra 17/83 (Arrogance; Loses Hope)__: [وَإِذَآ أَنْعَمْنَا عَلَى ٱلْإِنسَـٰنِ أَعْرَضَ وَنَـَٔا بِجَانِبِهِۦ ۖ وَإِذَا مَسَّهُ ٱلشَّرُّ كَانَ يَـُٔوسًۭا](https://quran.com/17/83)
-
-* __Surah Al-Isra 100 (Stingy)__: [قُل لَّوْ أَنتُمْ تَمْلِكُونَ خَزَآئِنَ رَحْمَةِ رَبِّىٓ إِذًۭا لَّأَمْسَكْتُمْ خَشْيَةَ ٱلْإِنفَاقِ ۚ وَكَانَ ٱلْإِنسَـٰنُ قَتُورًۭا](https://quranwbw.com/17/100)
+* __Surah Al-Isra 17/100 (Stingy)__: [قُل لَّوْ أَنتُمْ تَمْلِكُونَ خَزَآئِنَ رَحْمَةِ رَبِّىٓ إِذًۭا لَّأَمْسَكْتُمْ خَشْيَةَ ٱلْإِنفَاقِ ۚ وَكَانَ ٱلْإِنسَـٰنُ قَتُورًۭا](https://quranwbw.com/17/100)
 
 ***
 
@@ -17,7 +16,6 @@
 ***
 
 * __Surah Al-Kahf 18/54 (Quarrelsome)__: [وَلَقَدْ صَرَّفْنَا فِى هَـٰذَا ٱلْقُرْءَانِ لِلنَّاسِ مِن كُلِّ مَثَلٍۢ ۚ وَكَانَ ٱلْإِنسَـٰنُ أَكْثَرَ شَىْءٍۢ جَدَلًۭا](https://quran.com/18/54)
-
 * __Surah Al-Kahf 18/67,72 (No Patience)__: [قَالَ إِنَّكَ لَن تَسْتَطِيعَ مَعِىَ صَبْرًۭا......وَكَيْفَ تَصْبِرُ عَلَىٰ مَا لَمْ تُحِطْ بِهِۦ خُبْرًۭا](https://quranwbw.com/18#67-68)
 
 *** 
@@ -52,6 +50,11 @@
 
 ***
 
+* __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
+    * In Arabic, the word "لَشَتَّىٰ" (lashattaa) from the Quran 93:4, means diverse, divergent, or scattered, referring to different types of efforts, deeds, and aims
+
+***
+
 * __Surah Al-Alaq 96/6 (Exceeds ALL Bounds)__: [كَلَّآ إِنَّ ٱلْإِنسَـٰنَ لَيَطْغَىٰٓ](https://quran.com/96/6)
 
 ***
@@ -62,11 +65,6 @@
 ***
 
 * __Surah Al-Asr 103/2 (Grave Loss)__: [إِنَّ ٱلْإِنسَـٰنَ لَفِى خُسْرٍ](https://quran.com/103/2)
-
-***
-
-* __Surah 92/1-4 (The end you strive for are diverse)__: [إِنَّ سَعْيَكُمْ لَشَتَّىٰ](https://quranwbw.com/92/1-4)
-    * In Arabic, the word "لَشَتَّىٰ" (lashattaa) from the Quran 93:4, means diverse, divergent, or scattered, referring to different types of efforts, deeds, and aims
 
 ***
 

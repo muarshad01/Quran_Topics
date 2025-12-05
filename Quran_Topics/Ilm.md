@@ -15,6 +15,11 @@
 
 ***
 
+#### [Journey of Ilm From Murshid | SSA Shah](https://www.youtube.com/shorts/H_J0Gd0v_j0)
+* Mursihid koo ghoar say dekhtay rahyai, aun ki naqal kartay rahayn to MANZIL ko poonch jayan gay
+* When you meet murshid then LOCK-your-TONGUE and LEAVE-your-AQAL at home
+* ONLY keep your EYES-and-EARS open.
+
 ***
 
 #### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)

@@ -118,7 +118,3 @@
 #### [Ajeeb Insaan | Allama Talib Johri](https://www.youtube.com/watch?v=v7n1Kp8yy94)
 
 ***
-
-#### [Mola Ali A.S Se Anokha Sawal Allah Ne Muhammad SWS Ko Kaisy Paida Kia...!! | Allama Talib jhori](https://www.youtube.com/watch?v=cBRs3Y252G0)
-
-***

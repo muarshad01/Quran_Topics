@@ -101,11 +101,11 @@
 
 ***
 
-#### [Majlis Topic InsaanN (1:04 hrs)| Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
+#### [Sharf-e-Insaniyat (31 mins) | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
 
 ***
 
-#### [Sharf-e-Insaniyat (31 mins) | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
+#### [Majlis Topic InsaanN (1:04 hrs)| Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
 
 ***
 

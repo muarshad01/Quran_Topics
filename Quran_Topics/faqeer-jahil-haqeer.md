@@ -1,50 +1,41 @@
 #### [Rishtay Aur Sabr-o-Bardasht](https://www.youtube.com/shorts/MDFbeKDnm9I)
-* Faqeer wo hai, jis-nay __dunya-ko-tukhraya__
-
-***
-
-#### [Maqam-e-Fuqar Kaise Hasil Hota Hai? | SSA Shah](https://www.youtube.com/watch?v=oYN4xOalZkc)
-* This is only possible through two ways:
-1. Ishq of Rabb
-2. Rabb ko itna bara maan lay keh uss say koi question naa kiya jaa sakay
-Lower your head and accpet every order with great abad and itheram.
-* Bandagi kay-saath, merey-liay mera-Rabb hi-kaafi-hai.
-* Hazrat Rabi Basri in Bazaar, water in one hand and fire in the other hand
-  * I'm going to cool down Jahanum (the fear of which makes people Ibadah) fire with this water, 
-  * Going to burn Jannat (the greed of which makes people to do Ibadah) with this fire
-  * Hazrat Sultan Bahu said about Bibi Rabia Basri, woh FAQR kay muqaam par faiz theen.
-***
-
-#### [Yearning for God](https://www.youtube.com/shorts/VyaGXuP8azc)
+* FAQEER wo hai, jis-nay __DUNYA-ko-TUKHRAYA__
 
 ***
 
 #### [Why is Faqeer Peaceful | SSA Shah](https://www.youtube.com/shorts/oOXQY7IXo2M)
 * Kamyabi ki qeemat mehnat, dukh, aur takleef hai.
-* FAQEER's objective: Mujhay Rabb ka QURAB hasil ho jai.
+* __FAQEER's objective__: Mujhay __Rabb-ka-QURAB__ hasil ho jai.
   
 ***
 
-#### https://www.youtube.com/shorts/sJI9qOYmvPc
-* Faqeer saari-umer doosron-mayn khyushian-bantaa-hai
+#### [ Simple way to heal a hurting heart | SSA Shah](https://www.youtube.com/shorts/sJI9qOYmvPc)
+* __Faqeer saari-umer doosron-mayn KHUSIYAN-bantaa-hai__
+
+#### [Character That Makes a Leader | اچھے لیڈر کا کردار](https://www.youtube.com/watch?v=3KqK83y0DRU)
+* __Faqeer umer-bhar apnay-NAQAIS doar-karnay-mayn laga-rehay-gaa__
 
 ***
 
-#### [Nigahe-e-Faqar Mein | Bal-e--Jibril 45 Ghazal with Explanation](https://www.youtube.com/watch?v=_mzRfTq_r00)
+#### [Maqam-e-Fuqar Kaise Hasil Hota Hai? | SSA Shah](https://www.youtube.com/watch?v=oYN4xOalZkc)
+* This is only possible through two ways:
+1. Ishq-of-Rabb
+2. Rabb ko itna bara maan lay keh uss say koi question naa kiya jaa sakay
+* Lower your head and accpet every order with great abad and itheram.
+* __Bandagi kay-saath, merey-liay mera-Rabb hi-kaafi-hai ([فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ ](https://quran.com/2/137)).__
+* Hazrat Rabi Basri in Bazaar, water in one hand and fire in the other hand
+  * I'm going to cool down Jahanum (the fear of which makes people Ibadah) fire with this water, 
+  * Going to burn Jannat (the greed of which makes people to do Ibadah) with this fire
+  * Hazrat Sultan Bahu said about Bibi Rabia Basri, woh FAQR kay muqaam par faiz theen.
 
 ***
 
-## Hazrat Daata Jang-Baksh
-* Faqeer par lazim-hai, kay-woh doosron-ki-khidmat iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, faqeer-par ihsaan kar-rahay-hayn.
+#### Hazrat Daata Jang-Baksh
+* Faqeer par lazim-hai, kay-woh __doosron-ki-KHIDMAT__ iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, faqeer-par ihsaan kar-rahay-hayn.
 
 ***
 
-
-#### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
-
-***
-
-#### [Apni-Zaat Ka Irfan](https://www.youtube.com/shorts/lcy6z2eAF5c)
+#### [Apni-Zaat Ka Irfan | SSA Shah](https://www.youtube.com/shorts/lcy6z2eAF5c)
 * Shah Hussain said, "Mayn-nahi sabb-Tuhi".
 * __Surah Faatir 35/10 (All Izzat)__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quranwbw.com/35/10)
 * __Surah Yaseen 36/77 (Haqeer)__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
@@ -80,15 +71,17 @@ Lower your head and accpet every order with great abad and itheram.
 
 ***
 
-#### [Character That Makes a Leader | اچھے لیڈر کا کردار](https://www.youtube.com/watch?v=3KqK83y0DRU)
-* Faqeer umer-bhar apnay-naqais doar-karnay-mayn laga-rehay-gaa
-
-***
-
 #### [Wali Allah Ki Pehchan Kya Hoti Hai | Prof ARA](https://www.youtube.com/watch?v=CkZbdNb3Nqo&t=17s)
-
-***
 
 #### [Qalandar Kon Hai? | SSA Shah](https://www.youtube.com/watch?v=PTYF-0dmVxk)
 
 #### [Murshid, Peer & Qalandar | SSA Shah](https://www.youtube.com/watch?v=nesZSYl-q7c)
+
+#### [Yearning for God | Prof ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
+
+#### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
+
+#### [Nigahe-e-Faqar Mein | Bal-e--Jibril 45 Ghazal with Explanation](https://www.youtube.com/watch?v=_mzRfTq_r00)
+
+***
+***

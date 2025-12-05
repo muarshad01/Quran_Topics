@@ -3,6 +3,18 @@
 
 ***
 
+#### [Maqam-e-Fuqar Kaise Hasil Hota Hai? | SSA Shah](https://www.youtube.com/watch?v=oYN4xOalZkc)
+* This is only possible through two ways:
+1. Ishq of Rabb
+2. Rabb ko itna bara maan lay keh uss say koi question naa kiya jaa sakay
+Lower your head and accpet every order with great abad and itheram.
+* Bandagi kay-saath, merey-liay mera-Rabb hi-kaafi-hai.
+* Hazrat Rabi Basri in Bazaar, water in one hand and fire in the other hand
+  * I'm going to cool down Jahanum (the fear of which makes people Ibadah) fire with this water, 
+  * Going to burn Jannat (the greed of which makes people to do Ibadah) with this fire
+  * Hazrat Sultan Bahu said about Bibi Rabia Basri, woh FAQR kay muqaam par faiz theen.
+***
+
 #### [Yearning for God](https://www.youtube.com/shorts/VyaGXuP8azc)
 
 ***

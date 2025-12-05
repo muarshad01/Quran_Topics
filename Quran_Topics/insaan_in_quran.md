@@ -91,26 +91,26 @@
 
 ***
 
-#### [Hazrat Adam (A.S) Ko Mukhtalif-Mitti Se Kyun-Banaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
-
-***
-
-#### [Sharf-e-Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
-
-***
-
-#### [Insano ke do groh | انسانوں کے دو گروہ | Allama Talib Johri](https://www.youtube.com/watch?v=3nqxEHeLqwY)
-
-***
-
 #### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof ARA](https://www.youtube.com/shorts/iIcV-MAQzZE)
 
 ***
 
-#### [Majlis Topic InsaanN | Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
+#### [Insano ke do groh (10 mins) | انسانوں کے دو گروہ | Allama Talib Johri](https://www.youtube.com/watch?v=3nqxEHeLqwY)
 
 ***
 
-#### [Ajeeb Insaan | Allama Talib Johri](https://www.youtube.com/watch?v=v7n1Kp8yy94)
+#### [Ajeeb Insaan (6 mins) | Allama Talib Johri](https://www.youtube.com/watch?v=v7n1Kp8yy94)
+
+***
+
+#### [Majlis Topic InsaanN (1:04 hrs)| Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
+
+***
+
+#### [Sharf-e-Insaniyat (31 mins) | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
+
+***
+
+#### [Hazrat Adam (A.S) Ko Mukhtalif-Mitti Se Kyun-Banaya? (8 mins) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
 
 ***

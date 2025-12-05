@@ -103,10 +103,22 @@
 
 ***
 
+#### [Insano ke do groh | انسانوں کے دو گروہ | Allama Talib Johri](https://www.youtube.com/watch?v=3nqxEHeLqwY)
+
+***
+
 #### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof Ahmed Rafique Akhtar](https://www.youtube.com/shorts/iIcV-MAQzZE)
+
+***
 
 #### [Majlis Topic InsaanN | Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
 
+***
+
 #### [Ajeeb Insaan | Allama Talib Johri](https://www.youtube.com/watch?v=v7n1Kp8yy94)
 
+***
+
 #### [Mola Ali A.S Se Anokha Sawal Allah Ne Muhammad SWS Ko Kaisy Paida Kia...!! | Allama Talib jhori](https://www.youtube.com/watch?v=cBRs3Y252G0)
+
+***

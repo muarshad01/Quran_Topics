@@ -86,14 +86,6 @@
 
 ***
 
-#### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
-
-***
-
-#### [Sharf e Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
-
-***
-
 #### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
 * __Insaan__: (Fire, Water, Air, Soil)
 * __Surah Al-Insan 76/1__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا](https://quran.com/76/1)
@@ -112,5 +104,14 @@
 * __Surah Hud 11/17 (وَيَتْلُوهُ شَاهِدٌۭ مِّنْهُ)__: [أَفَمَن كَانَ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّهِۦ وَيَتْلُوهُ شَاهِدٌۭ مِّنْهُ وَمِن قَبْلِهِۦ كِتَـٰبُ مُوسَىٰٓ إِمَامًۭا وَرَحْمَةً ۚ أُو۟لَـٰٓئِكَ يُؤْمِنُونَ بِهِۦ ۚ وَمَن يَكْفُرْ بِهِۦ مِنَ ٱلْأَحْزَابِ فَٱلنَّارُ مَوْعِدُهُۥ ۚ فَلَا تَكُ فِى مِرْيَةٍۢ مِّنْهُ ۚ إِنَّهُ ٱلْحَقُّ مِن رَّبِّكَ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يُؤْمِنُونَ](https://quran.com/11/17)
   * Minn -- say
 * __Surah 91/1-2__: [وَٱلشَّمْسِ وَضُحَىٰهَا...وَٱلْقَمَرِ إِذَا تَلَىٰهَا](https://quran.com/91/1-2)
+
+***
+
+
+#### [Takhleeq-e-Insan | Allama Talib Johri](https://www.youtube.com/watch?v=KbIAGx20pU0)
+
+***
+
+#### [Sharf-e-Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
 
 ***

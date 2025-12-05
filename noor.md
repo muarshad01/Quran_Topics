@@ -108,3 +108,7 @@
   * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
 
 ***
+
+#### [Falsafa-e-Noor | Allama Talib Johri](https://www.youtube.com/watch?v=KBZ8utqcegc)
+
+***

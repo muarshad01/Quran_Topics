@@ -1,11 +1,12 @@
 |   | Topic | Last Updated |
 |---|---|---|
-|   | [Ilm](#Ilm)| 12/06/2025 |
-|   | [Prophets](#Prophets)| 12/06/2025| 
-|1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
-|2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq)| 12/06/2025 |
-|3. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
-|4. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel)| 12/06/2025 |
+|0. | [Ilm](#Ilm) | 12/06/2025 |
+|1. | [Prophets](#Prophets) | 12/06/2025| 
+|2. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
+|3. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq) | 12/06/2025 |
+|4. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
+|5. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
+
 ***
 
 ## Quran Fazilat

@@ -1,16 +1,21 @@
 |   | Topic | Last Updated |
 |---|---|---|
-|0. | [Ilm](#Ilm) | 12/06/2025 |
-|1. | [Prophets](#Prophets) | 12/06/2025| 
-|2. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
-|3. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq) | 12/06/2025 |
-|4. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
-|5. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
-|6. | [Different Quran Topics](#different-quran-topics)||
+|1. |[Quran and Its Fazilat](#quran-and-its-fazilat) | 12/06/2025 |
+|2. | [Ilm](#Ilm) | 12/06/2025 |
+|3. | [Prophets](#Prophets) | 12/06/2025| 
+|4. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
+|5. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq) | 12/06/2025 |
+|6. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
+|7. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
+|8. | [Different Quran Topics](#different-quran-topics)||
+
 ***
 
-## Quran Fazilat
-* [Notes](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md)
+#### Quran and Its Fazilat
+| No. | Quran and Its Fazilat | Last Updated |
+|---|---|---|
+|1. | [Quran Fazilat](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md) | 12/06/2025 |
+|2. | [Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran.md) | 12/06/2025 |
   
 ***
 

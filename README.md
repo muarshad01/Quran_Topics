@@ -1,5 +1,6 @@
 |   | Topic | Last Updated |
 |---|---|---|
+|   | [Ilm](#Ilm)| 12/06/2025 |
 |1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
 |2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq)| 12/06/2025 |
 |3. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
@@ -104,7 +105,9 @@
 
 ***
 
-|   | ILM | Last Updated |
+#### Ilm
+
+| No. | Ilm | Last Updated |
 |---|---|---|
 |1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md)| 12/06/2025 |
 |2. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 12/06/2025 |

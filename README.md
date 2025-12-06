@@ -14,6 +14,7 @@
 |7. | [Hidayat, Sirat, Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
 |8. | [Different Quran Topics](#different-quran-topics)| 12/06/2025 |
 |9. | [Islamic Months](#islamic-months) | 12/06/2025 |
+|10.| [Allah SWT](#allah-swt)| 12/06/2025 |
 
 ***
 

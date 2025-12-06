@@ -29,15 +29,15 @@
 
 | No.  | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
 |---|---|---|--- | ---| ---| ---|--|
-|1. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)|||
-|2. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | July 29, 2025 |
-|4. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
-|5. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 30, 2025 |
-|6. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) |  |
-|7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) |  |
-|8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)|  |
-|10. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
-
+|1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | 12/06/2025 |
+|2. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| 12/06/2025 |
+|3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| 12/06/2025|
+|4. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | 12/06/2025 |
+|5. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | 12/06/2025 |
+|6. | [Tawba]()|12/06/2025|
+|7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | 12/06/2025 |
+|8. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | 12/06/2025 |
+|9. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)|12/06/2025|
 
 ***
 

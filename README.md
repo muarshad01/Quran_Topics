@@ -36,7 +36,6 @@
 |6. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) |  |
 |7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) |  |
 |8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)|  |
-|9. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) |  |
 |10. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
 
 
@@ -46,14 +45,14 @@
 
 |   | Allah SWT | Last Updated |
 |---|---|---|
-|1. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) | 12/06/2025 |
-|2. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | 12/06/2025 |
-|3. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 12/06/2025 |
-|4. | [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 12/06/2025 |
-|5. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 12/06/2025 |
-|6. | [Allah SWT - Blessing](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_blessings.md) | 12/6/2025 |
-|7. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 12/6/2025 |
-|8. | []() | 12/6/2025 |
+|1. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | 12/06/2025 |
+|2. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 12/06/2025 |
+|3. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) | 12/06/2025 |
+|4. | [Allah SWT - Rehmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_rehmat.md) |12/6/2025 |
+|5. | [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 12/06/2025 |
+|6. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 12/06/2025 |
+|7. | [Allah SWT - Blessing](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_blessings.md) | 12/6/2025 |
+|8. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 12/6/2025 |
 
 ***
 

@@ -3,7 +3,7 @@
 
 ***
 
-|No.| Main Topics - Click the Link | Last Updated |
+|No.| Main Topics | Last Updated |
 |---|---|---|
 |1. | [Quran and Its Fazilat](#quran-and-its-fazilat) | 12/06/2025 |
 |2. | [Ilm](#Ilm) | 12/06/2025 |

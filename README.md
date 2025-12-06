@@ -176,6 +176,7 @@
 |18.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)||
 |19.|[Shaadi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/shaadi(marriage).md)||
 |20.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)||
+|21.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| |
 
 
 
@@ -211,6 +212,5 @@
 |30.| [Muharram](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muharram.md) | July 2025|
 |33.| [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/burhaan.md) | July 2025|
 |8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
-|31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| |
 
 ***

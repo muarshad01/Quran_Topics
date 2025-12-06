@@ -159,6 +159,7 @@
 |---|---|---|
 ||[Creation in SIX days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/creation_6_days.md)||
 ||[SEVEN Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)||
+||[Jannat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)||
 |3. | [Gates in Sky](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)| 12/06/2025|
 |0. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 12/06/2025 |
 |1. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
@@ -174,7 +175,6 @@
 ||[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)||
 ||[Shaadi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/shaadi(marriage).md)||
 ||[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)||
-||[Jannat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)||
 
 
 

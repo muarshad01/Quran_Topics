@@ -112,6 +112,9 @@
 ***
 
 #### [Sharf-e-Insaniyat (31 mins) | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
+* __Surah Ale-Imran 3/18__: [شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/3/18)
+* Shaiban-e-Ilam
+*  Shaiban-e-Ilam joo adal-par qaim-hoon
 
 ***
 

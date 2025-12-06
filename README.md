@@ -171,7 +171,8 @@
 || [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| xxx|
 ||[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)||
 ||[Shaadi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/shaadi(marriage).md)||
-||[Seven Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)||
+||[Creation in SIX days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/creation_6_days.md)||
+||[SEVEN Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)||
 ||[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)||
 ||[Jannat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)||
 

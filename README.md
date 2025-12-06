@@ -64,9 +64,10 @@
 |1. | [Al-Insaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/insaan.md) | 12/6/2025 |
 |2. | Muslim | | |
 |3. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/momin.md) | 12/6/2025 |
-|4.| Muttaqi ||
-|5.| [Kafir (Unbeliever)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/kafirs.md) | 12/6/2025 |
-|6. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) | 12/6/2025 |
+|4. | Muttaqi ||
+|5. | [Salaheen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/Salaheen.md)| 12/6/2025 |
+|6.| [Kafir (Unbeliever)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/kafirs.md) | 12/6/2025 |
+|7. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) | 12/6/2025 |
 
 ***
 

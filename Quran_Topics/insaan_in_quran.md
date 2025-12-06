@@ -118,7 +118,7 @@
 
 ***
 
-#### [Majlis Topic InsaanN (1:04 hrs)| Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
+#### [Majlis Topic InsaanN (1:04 hrs) | Allama Talib Johri](https://www.youtube.com/watch?v=9uo-mHqfs_w)
 
 ***
 

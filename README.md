@@ -38,28 +38,17 @@
 
 | No.  | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
 |---|---|---|--- | ---| ---| ---|--|
-|0. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)|||
-|1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | July 29, 2025 |
-|2. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 29, 2025|
-|3. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
-|4. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 30, 2025 |
-
-***
-
-
-| No.  | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
-|---|---|---|--- | ---| ---| ---|--|
-|7. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | July 31, 2025 |
-|8. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | Sept 05, 2025 |
-|9. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 30, 2025 |
-|10.| [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | Aug 29, 2025 |
-
-***
-
-|   | Topic                      | Last Updated               |
-|---|---|---|
-|1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
-|7. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
+|1. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)|||
+|2. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | July 29, 2025 |
+|3. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 29, 2025|
+|4. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |
+|5. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | July 30, 2025 |
+|6. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) |  |
+|7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) |  |
+|8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)|  |
+|9.| [Rehmat (Mercy)(https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) |  |
+|10. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
+|11. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
 
 
 ***
@@ -211,7 +200,3 @@
 |43.| [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ulul_azam.md)| xxx|
 
 ***
-
-<!--
-Kher e kaseer kiya hai or kesay milti h by baba g Irfan ul haq
--->

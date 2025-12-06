@@ -95,7 +95,8 @@
 |3. | [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| |
 |4. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Jahil_Ignorant.md)  | July 2025 |
 
-
+|   | ILM | Last Updated |
+|---|---|---|
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
 

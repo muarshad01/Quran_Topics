@@ -1,4 +1,4 @@
-#### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
+x#### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
 * __Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quranwbw.com/16/98)
 
 ***
@@ -161,17 +161,18 @@
 |14. |[Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
 |15.| [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)|12/06/2025|
 |16. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
-|17.| [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
-|18.| [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
-|19.| [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul-albab.md)| 12/06/2025|
-|20.| [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| 12/06/2025|
-|21.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)|12/06/2025|
-|22.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
-|23.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
-|24.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
-|25. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) |12/06/2025|
+|17. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) |12/06/2025|
+|18.| [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
+|19.| [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
+|20.| [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul-albab.md)| 12/06/2025|
+|21.| [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| 12/06/2025|
+|22.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)|12/06/2025|
+|23.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
+|24.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
+|25.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
 |26. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) |12/06/2025|
 
+***
 
 |   | Topic | Last Updated |
 |---|---|---|

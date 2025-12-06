@@ -1,6 +1,7 @@
 |   | Topic | Last Updated |
 |---|---|---|
 |   | [Ilm](#Ilm)| 12/06/2025 |
+|   | [Prophets](#Prophets)| 12/06/2025| 
 |1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
 |2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq)| 12/06/2025 |
 |3. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
@@ -116,7 +117,9 @@
 
 ***
 
-|   | Prophets | Last Updated |
+#### Prophets
+
+|No.| Prophets | Last Updated |
 |---|---|---|
 |1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md) | 12/06/2025 |
 |2. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) | 12/06/2025 |

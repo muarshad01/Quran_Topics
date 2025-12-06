@@ -83,3 +83,21 @@
 * See Roza-e-Mubarak
 
 ***
+
+> #### [Khawaja Nizamuddin Auliya | Prof ARA](https://www.youtube.com/watch?v=K6BZ5fiVYNM)
+> * __UNDERSTANDING Quran is more important than READING it.__
+> * __READ like doing RESEARCH ...like dong BS/MS/PhD__
+* [Rewards of True Worship | بے غرض عبادت کا صلہ | SSA Shah](https://www.youtube.com/watch?v=OOU18bsazh0)
+* [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ | SSA Shah](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
+* [Allah Ko Jann-nah | Irfan-ul-Haq](https://www.youtube.com/shorts/TwDJhC5TcPQ)
+* __Surah Ale-Imran 3/7__: [وَٱلرَّٰسِخُونَ فِى ٱلْعِلْمِ يَقُولُونَ ءَامَنَّا بِهِۦ كُلٌّۭ مِّنْ عِندِ رَبِّنَا ۗ وَمَا يَذَّكَّرُ إِلَّآ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/3/7)
+  * As for those __well-grounded in knowledge__, they say, “We believe in this ˹Quran˺—it is all from our Lord.” But none will be mindful ˹of this˺ except people of reason.
+* __Surah An-Nisa 4/69 (What honourable company!)__: [وَمَن يُطِعِ ٱللَّهَ وَٱلرَّسُولَ فَأُو۟لَـٰٓئِكَ مَعَ ٱلَّذِينَ أَنْعَمَ ٱللَّهُ عَلَيْهِم مِّنَ ٱلنَّبِيِّـۧنَ وَٱلصِّدِّيقِينَ وَٱلشُّهَدَآءِ وَٱلصَّـٰلِحِينَ ۚ وَحَسُنَ أُو۟لَـٰٓئِكَ رَفِيقًۭا](https://quran.com/4/69)
+* __Surah Yusuf 12/101__: [فَاطِرَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ أَنتَ وَلِىِّۦ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ تَوَفَّنِى مُسْلِمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/12/101)
+* __Surah Shu'araa 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
+* __Surah Shu'araa 26/85__: [وَٱجْعَلْنِى مِن وَرَثَةِ جَنَّةِ ٱلنَّعِيمِ](https://quran.com/26/85)
+* __Surah An-Naml 27/19__: [وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ ](https://quran.com/27/19)
+* __Surah 27/59-66__: [قُلِ ٱلْحَمْدُ لِلَّهِ وَسَلَـٰمٌ عَلَىٰ عِبَادِهِ ٱلَّذِينَ ٱصْطَفَىٰٓ ۗ ءَآللَّهُ خَيْرٌ أَمَّا يُشْرِكُونَ](https://quran.com/27/59-66)
+* __Surah Al-Insaan 76/31__: [يُدْخِلُ مَن يَشَآءُ فِى رَحْمَتِهِۦ ۚ وَٱلظَّـٰلِمِينَ أَعَدَّ لَهُمْ عَذَابًا أَلِيمًۢا](https://quran.com/76/31)
+* __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ ٢٧...ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ ٢٨...فَٱدْخُلِى فِى عِبَـٰدِى ٢٩...وَٱدْخُلِى جَنَّتِى ٣٠](https://quran.com/89/27-30)
+* __Surah 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)

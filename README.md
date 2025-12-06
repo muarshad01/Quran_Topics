@@ -154,7 +154,7 @@
 ***
 
 |   | Topic | Last Updated |
-|---|---|---|--- |
+|---|---|---|
 |0. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 12/06/2025 |
 |1. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
 |2.| [Harut and Marut](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 12/06/2025 |

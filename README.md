@@ -133,7 +133,6 @@
 |2. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 28, 2025 |
 |3. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | July 2025 |
 |5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-|6. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/promise.md)| July 2025 |
 
 ***
 
@@ -171,6 +170,7 @@
 || [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)||
 |8. | [Kun FaYa Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) | |
 || [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)||
+|| [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| July 2025 |
 || [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul-albab.md)| xxx|
 || [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| xxx|
 ||[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)||

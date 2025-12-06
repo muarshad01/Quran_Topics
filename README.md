@@ -59,6 +59,15 @@
 
 ***
 
+|   | ILM | Last Updated |
+|---|---|---|
+|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md)| 12/06/2025 |
+|2. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 12/06/2025 |
+|3. | [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| 12/06/2025 |
+|4. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/Jahil_Ignorant.md)  | 12/06/2025 |
+
+***
+
 |   | Prophets | Last Updated |
 |---|---|---|
 |1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md) | 12/06/2025 |
@@ -88,14 +97,8 @@
 
 ***
 
-|   | ILM | Last Updated |
-|---|---|---|
-|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md)| 12/06/2025 |
-|2. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 12/06/2025 |
-|3. | [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| 12/06/2025 |
-|4. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/Jahil_Ignorant.md)  | 12/06/2025 |
 
-|   | ILM | Last Updated |
+|   | xxx | Last Updated |
 |---|---|---|
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |

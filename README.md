@@ -2,6 +2,7 @@
 |---|---|---|
 |1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
 |2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq)| 12/06/2025 |
+|3. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
 
 ***
 
@@ -74,7 +75,9 @@
 
 ***
 
-| No.  | Topic | Last Updated |
+#### Nafs and Tazkia
+
+| No.  | Nafs and Tazkia | Last Updated |
 |---|---|---|
 |1. | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md) | 12/06/2025 |
 |2. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 12/06/2025|

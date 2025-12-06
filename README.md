@@ -27,8 +27,8 @@
   
 ***
 
-| No.  | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
-|---|---|---|--- | ---| ---| ---|--|
+| No.  | Topic | Last Updated|
+|---|---|---|
 |1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | 12/06/2025 |
 |2. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| 12/06/2025 |
 |3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| 12/06/2025|

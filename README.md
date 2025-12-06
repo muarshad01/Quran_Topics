@@ -90,10 +90,10 @@
 
 |   | ILM | Last Updated |
 |---|---|---|
-|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md)| |
-|2. | [Ilm Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| |
-|3. | [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| |
-|4. | [Jahil (Ignorant or foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Jahil_Ignorant.md)  | July 2025 |
+|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md)| 12/06/2025 |
+|2. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 12/06/2025 |
+|3. | [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| 12/06/2025 |
+|4. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/Jahil_Ignorant.md)  | 12/06/2025 |
 
 |   | ILM | Last Updated |
 |---|---|---|

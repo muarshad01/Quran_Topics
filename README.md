@@ -138,6 +138,8 @@
 |32.| [Harut and Marut](...) | August 2025 |
 
 
+|   | Topic | Last Updated | 
+|---|---|---|
 |41.| [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ulul-albab.md)| xxx|
 |42.| [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/utul-ilm.md)| xxx|
 |43.| [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ulul-azam.md)| xxx|

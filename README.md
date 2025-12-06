@@ -11,7 +11,7 @@
 |4. | [Zikr and Tasbeeh](#zikr-and-tasbeen) | 12/06/2025 |
 |5. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq) | 12/06/2025 |
 |6. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
-|7. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
+|7. | [Hidayat, Sirat, Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
 |8. | [Different Quran Topics](#different-quran-topics)| 12/06/2025 |
 
 ***

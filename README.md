@@ -165,8 +165,18 @@
 |7. |[Yashaa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)||
 || [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)||
 || [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)||
+|| [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul-albab.md)| xxx|
+|| [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| xxx|
+||[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)||
+||[Shaadi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/shaadi(marriage).md)||
+||[Seven Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)||
+||[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)||
+||[Jannat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)||
 
 
+
+|   | Topic | Last Updated |
+|---|---|---|
 |0. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 30, 2025|
 |1. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |2. | [99 Names of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/99_names_of_Allah_SWT.md) |August 2025|
@@ -205,7 +215,5 @@
 
 |   | Topic | Last Updated | 
 |---|---|---|
-|41.| [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ulul-albab.md)| xxx|
-|43.| [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ulul_azam.md)| xxx|
 
 ***

@@ -46,11 +46,11 @@
 
 |   | Allah SWT | Last Updated |
 |---|---|---|
-|1. | [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | July 29, 2025|
-|2. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) |August 2025|
-|3. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| July 30, 2025 |
-|4. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | July 2025|
-|5. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | August 2025 |
+|1. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) | 12/06/2025 |
+|2. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | 12/06/2025 |
+|3. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 12/06/2025 |
+|4. | [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 12/06/2025 |
+|5. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 12/06/2025 |
 
 |1. | []() | 12/6/2025 |
 |1. | []() | 12/6/2025 |

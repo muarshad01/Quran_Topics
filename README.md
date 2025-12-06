@@ -14,7 +14,7 @@
 #### Quran and Its Fazilat
 | No. | Quran and Its Fazilat | Last Updated |
 |---|---|---|
-|1. | [Quran Fazilat](https://github.com/muarshad01/Quran_Topics/blob/main/quran_fazilat.md) | 12/06/2025 |
+|1. | [Quran Fazilat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran_fazilat.md) | 12/06/2025 |
 |2. | [Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran.md) | 12/06/2025 |
   
 ***

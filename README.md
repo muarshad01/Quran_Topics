@@ -1,3 +1,8 @@
+#### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
+* __Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quranwbw.com/16/98)
+
+***
+
 |   | Topic | Last Updated |
 |---|---|---|
 |1. |[Quran and Its Fazilat](#quran-and-its-fazilat) | 12/06/2025 |
@@ -12,16 +17,12 @@
 ***
 
 #### Quran and Its Fazilat
+
 | No. | Quran and Its Fazilat | Last Updated |
 |---|---|---|
 |1. | [Quran Fazilat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran_fazilat.md) | 12/06/2025 |
 |2. | [Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran.md) | 12/06/2025 |
   
-***
-
-#### Tauz (أَعُوذ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ)
-* __Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quranwbw.com/16/98)
-
 ***
 
 | No.  | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|

@@ -1,6 +1,7 @@
-|   | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
-|---|---|---|--- | ---| ---| ---|--|
-|1. | Introduction | July 2025 |  |
+|   | Topic | Last Updated |
+|---|---|---|
+|1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
+
 
 ***
 
@@ -86,7 +87,9 @@
 
 ***
 
-| No.  | Zikr & Tasbeen | Last Updated |
+#### Zikr and Tasbeen
+
+| No.  | Zikr and Tasbeen | Last Updated |
 |---|---|---|
 |1. | [Zikr (Rememberance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/zikr_benefits.md) | 12/06/2025 | 
 |2. | [Tasbeeh (Act of glorifying and praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 12/06/2025 | 

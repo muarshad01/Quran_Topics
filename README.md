@@ -46,7 +46,7 @@
 |6. | [Shukr (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) |  |
 |7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) |  |
 |8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)|  |
-|9.| [Rehmat (Mercy)(https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) |  |
+|9. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) |  |
 |10. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
 |11. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
 

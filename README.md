@@ -54,8 +54,6 @@
 |   | Topic                      | Last Updated               |
 |---|---|---|
 |1. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
-|3. | [Nafas (Self, soul, or psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs.md) | July 2025 |
-|4. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tazkia.md) | August 07, 2025|
 |7. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
 
 
@@ -69,6 +67,13 @@
 |4.| Muttaqi ||
 |5.| [Kafir (Unbeliever)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/kafirs.md) | 12/6/2025 |
 |6. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) | 12/6/2025 |
+
+***
+
+| No.  | Topic | Last Updated |
+|---|---|---|
+|1. | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md) | 12/06/2025 |
+|2. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 12/06/2025|
 
 ***
 

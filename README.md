@@ -65,7 +65,7 @@
 |2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets.md) | July 2025|
 |2. | [Prophet Musa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Prophet_Musa_AS.md) ||
 |2. | [Prophet Issa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Prophet_Issa_as.md) ||
-|3. | [Prophet Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/muhammad_pbuh.md) | August 15, 2025
+|3. | [Prophet Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muhammad_pbuh.md) ||
 |4. | [Prophet Abraham AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Prophet_Ibrahim_AS.md) ||
 |5. | [Prophet Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/solomon.md)  | August 06, 2025|
 |6. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|

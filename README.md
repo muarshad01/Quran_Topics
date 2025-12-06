@@ -3,7 +3,7 @@
 |1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
 |2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq)| 12/06/2025 |
 |3. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
-
+|4. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel)| 12/06/2025 |
 ***
 
 ## Quran Fazilat
@@ -84,7 +84,9 @@
 
 ***
 
-| No.  | Hidayat-Sirat-Sabeel | Last Updated |
+#### Hidayat Sirat Sabeel
+
+| No.  | Hidayat Sirat Sabeel | Last Updated |
 |---|---|---|
 |1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
 |2. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sirat.md) | 12/06/2025 |

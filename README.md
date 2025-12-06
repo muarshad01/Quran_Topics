@@ -45,7 +45,7 @@
 |9. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| July 30, 2025 |
 |10.| [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) | Aug 29, 2025 |
 
-+***
+***
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
@@ -70,7 +70,7 @@
 |7. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
 |8. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |
 
-+***
+***
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
@@ -88,7 +88,7 @@
 |3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
 
-+***
+***
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
@@ -139,6 +139,6 @@
 
 ***
 
-+<!--
-+Kher e kaseer kiya hai or kesay milti h by baba g Irfan ul haq
-+-->
+<!--
+Kher e kaseer kiya hai or kesay milti h by baba g Irfan ul haq
+-->

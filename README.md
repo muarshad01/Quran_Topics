@@ -6,7 +6,7 @@
 |3. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq) | 12/06/2025 |
 |4. | [Nafs and Tazkia](#nafs-and-tazkia) | 12/06/2025 |
 |5. | [Hidayat Sirat Sabeel](#hidayat-sirat-sabeel) | 12/06/2025 |
-
+|6. | [Different Quran Topics](#different-quran-topics)||
 ***
 
 ## Quran Fazilat
@@ -153,7 +153,9 @@
 
 ***
 
-|   | Topic | Last Updated |
+#### Different Quran Topics
+
+|   | Different Quran Topics | Last Updated |
 |---|---|---|
 |0. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 12/06/2025 |
 |1. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
@@ -211,9 +213,5 @@
 |33.| [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/burhaan.md) | July 2025|
 |8. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Gog_Magog.md) | July 28, 2025|
 |31.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/taboot-e-sakina.md)| July 2025|
-
-
-|   | Topic | Last Updated | 
-|---|---|---|
 
 ***

@@ -1,7 +1,7 @@
 |   | Topic | Last Updated |
 |---|---|---|
 |1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
-|2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan,-muslim,-momin,-mutaqqi,-salaheen,-kafir,-munafiq)| 12/06/2025 |
+|2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan-muslim-momin-mutaqqi-salaheen-kafir-munafiq)| 12/06/2025 |
 
 ***
 
@@ -62,7 +62,7 @@
 
 #### Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq
 
-|   | Insaan, Muslim, Momin, Mutaqqi, Kafir, Salaheen, Munafiq | Last Updated |
+|   | Insaan Muslim Momin Mutaqqi Kafir Salaheen Munafiq | Last Updated |
 |---|---|---|
 |1. | [Al-Insaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/insaan.md) | 12/6/2025 |
 |2. | Muslim | | |

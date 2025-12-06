@@ -29,4 +29,9 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 
 #### [How People Earn Respect | دنیا میں عزت پانے کا فارمولا | SSA Shah](https://www.youtube.com/watch?v=CgVxeWgwYOY)
 * Doosray-koo izzat wohi deh-sakta-hai, jo-khud izzat-wala-hai
+
+***
+
+#### [Bani Adam ko Izat | Allama Talib Johri](https://www.youtube.com/watch?v=1hV21fCu_co)
+
 ***

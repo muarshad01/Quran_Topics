@@ -33,7 +33,7 @@
 
 | No.  | Topic | Last Updated | Am | Mo | Ay | Fa | Mz|
 |---|---|---|--- | ---| ---| ---|--|
-|0. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/muqadma.md)|||
+|0. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)|||
 |1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | July 29, 2025 |
 |2. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 29, 2025|
 |3. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| July 29, 2025 |

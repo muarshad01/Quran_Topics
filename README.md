@@ -50,7 +50,7 @@
 |2. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) |August 2025|
 |3. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| July 30, 2025 |
 |4. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | July 2025|
-|5. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Allah/allah_ka_noor.md) | August 2025 |
+|5. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | August 2025 |
 
 |1. | []() | 12/6/2025 |
 |1. | []() | 12/6/2025 |

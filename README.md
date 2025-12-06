@@ -1,7 +1,7 @@
 |   | Topic | Last Updated |
 |---|---|---|
 |1. | [Zikr and Tasbeen](#zikr-and-tasbeen) | 12/06/2025 |
-|2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan, Muslim,-momin,-mutaqqi,-salaheen,-kafir,-munafiq)| 12/06/2025 |
+|2. | [Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq](#insaan,-muslim,-momin,-mutaqqi,-salaheen,-kafir,-munafiq)| 12/06/2025 |
 
 ***
 

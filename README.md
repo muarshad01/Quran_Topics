@@ -59,20 +59,19 @@
 
 ***
 
-|   | Topic                      | Last Updated               |
+
+|   | Prophete | Last Updated |
+|---|---|---|
+|1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md) ||
+|2. | [Musa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) ||
+|3. | [Issa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md) ||
+|4. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md) ||
+|5. | [Abraham AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) ||
+|6. | [Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  ||
+
+|   | Topic | Last Updated               |
 |---|---|---|
 |1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md) | July 28, 2025|
-
-|   | Topic                      | Last Updated               |
-|---|---|---|
-|2. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md) | July 2025|
-|2. | [Prophet Musa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) ||
-|2. | [Prophet Issa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md) ||
-|3. | [Prophet Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md) ||
-|4. | [Prophet Abraham AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) ||
-|5. | [Prophet Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  | August 06, 2025|
-
-
 |6. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|
 |7. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
 |8. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sirat.md) | July 2025 |

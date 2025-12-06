@@ -38,7 +38,28 @@
 |8. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)|  |
 |9. | [Rehmat (Mercy)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Rehmat_Mercey.md) |  |
 |10. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | Aug 29, 2025 |
-|11. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
+
+
+***
+
+#### Allah SWT
+
+|   | Allah SWT | Last Updated |
+|---|---|---|
+|1. | [Love of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah_ki_mohabbat.md) | July 29, 2025|
+|2. | [99 Names of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/99_names_of_Allah_SWT.md) |August 2025|
+|3. | [Amr of Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/amr_of_allah.md)| July 30, 2025 |
+|4.| [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/allah-koon-hai.md) | July 2025|
+|5. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
+
+|1. | []() | 12/6/2025 |
+|1. | []() | 12/6/2025 |
+|1. | []() | 12/6/2025 |
+|1. | []() | 12/6/2025 |
+|1. | []() | 12/6/2025 |
+|1. | []() | 12/6/2025 |
+|1. | []() | 12/6/2025 |
+
 
 
 ***

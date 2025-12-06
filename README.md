@@ -62,10 +62,10 @@
 |   | Prophets | Last Updated |
 |---|---|---|
 |1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md) ||
-|2. | [Abraham AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) ||
-|3. | [Solomon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  ||
-|4. | [Moses AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) ||
-|5. | [Musa AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md) ||
+|2. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) ||
+|3. | [Sulayman (Solomon) AS ](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  ||
+|4. | [Musa (Moses) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) ||
+|5. | [Isa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md) ||
 |6. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md) ||
 
 

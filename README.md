@@ -31,7 +31,7 @@
 |---|---|---|
 |1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | 12/06/2025 |
 |2. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| 12/06/2025 |
-|3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/namaaz_in_quran.md)| 12/06/2025|
+|3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/namaaz_in_quran.md)| 12/06/2025|
 |4. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | 12/06/2025 |
 |5. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | 12/06/2025 |
 |6. | [Tawba]()|12/06/2025|

@@ -59,6 +59,7 @@
 |7. | [Noor](https://github.com/muarshad01/Quran_Topics/blob/main/noor.md) | August 2025 |
 
 
+***
 
 |   | Insaan, Muslim, Momin, Mutaqqi, Kafir, Munafiq | Last Updated |
 |---|---|---|

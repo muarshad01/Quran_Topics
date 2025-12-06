@@ -51,16 +51,13 @@
 |3. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 12/06/2025 |
 |4. | [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 12/06/2025 |
 |5. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 12/06/2025 |
-
-|1. | []() | 12/6/2025 |
-|1. | []() | 12/6/2025 |
-|1. | []() | 12/6/2025 |
-|1. | []() | 12/6/2025 |
-|1. | []() | 12/6/2025 |
-|1. | []() | 12/6/2025 |
-|1. | []() | 12/6/2025 |
-
-
+|6. | []() | 12/6/2025 |
+|7. | []() | 12/6/2025 |
+|8. | []() | 12/6/2025 |
+|9. | []() | 12/6/2025 |
+|10. | []() | 12/6/2025 |
+|11. | []() | 12/6/2025 |
+|12. | []() | 12/6/2025 |
 
 ***
 

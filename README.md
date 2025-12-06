@@ -177,6 +177,7 @@
 |19.|[Shaadi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/shaadi(marriage).md)||
 |20.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)||
 |21.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| |
+|22. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 
 
 
 
@@ -189,7 +190,6 @@
 |26.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | August 31, 2025|
 |27.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
 |1. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
-|2. | [Types of Clay](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/teen_turab_salsal.md) | July 2025 
 |3. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
 |4. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
 |5. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|

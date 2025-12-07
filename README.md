@@ -17,6 +17,7 @@
 |9. | [Islamic Months](#islamic-months) | 12/06/2025 |
 |10.| [Allah SWT](#allah-swt)| 12/06/2025 |
 |11.|[Satan](#satan)| 12/06/2025 |
+|12. |[Miscalleneous](#miscalleneous)|12/06/2025|
 
 ***
 
@@ -206,7 +207,9 @@
 
 ***
 
-|   | Topic | Last Updated |
+#### Miscalleneous
+
+| No. | Miscalleneous | Last Updated |
 |---|---|---|
 |1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
 |3. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|

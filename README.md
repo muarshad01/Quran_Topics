@@ -70,6 +70,9 @@
 |6. | [Awabeen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/awabeen.md)| 12/6/2025 |
 |7.| [Kafir (Unbeliever)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/kafirs.md) | 12/6/2025 |
 |8. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) | 12/6/2025 |
+|9.  | [Saints](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints.md)|12/6/2025|
+|10. | [Saint Ranks](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saint_ranks.md)|12/6/2025|
+|11. | [Saint Levels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/levels.md)|12/6/2025|
 
 ***
 

@@ -325,3 +325,5 @@
 ### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=TS5pmz8Sc3s)
 
 ***
+
+* __Surah Al-Araf 7/16__: [قَالَ فَبِمَآ أَغْوَيْتَنِى لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ ](https://quran.com/7/16)

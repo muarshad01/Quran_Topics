@@ -120,7 +120,7 @@
 
 |No.| Prophets | Last Updated |
 |---|---|---|
-|1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md) | 12/06/2025 |
+|1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md); [Muqam-e-mehmood](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muqam-e-mehmood.md) | 12/06/2025 |
 |2. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) | 12/06/2025 |
 |3. | [Sulayman (Solomon) AS ](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  | 12/06/2025 |
 |4. | [Musa (Moses) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) | 12/06/2025 |

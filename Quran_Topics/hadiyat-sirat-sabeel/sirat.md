@@ -1,14 +1,13 @@
-## SIRATUL MUSTAQEEM (STRAIGHT PATH) AYATS
+#### SIRATUL MUSTAQEEM (STRAIGHT PATH) AYATS
 * https://quranawareness.wordpress.com/siratul-mustaqeem-straight-path-ayats/
 
+***
+
+#### [Mutaqqi - وہ کون سے لوگ ہیں جنہیں اللہ گھسیٹ کر اپنی طرف لے آتا ہے؟](https://www.youtube.com/watch?v=KSi6VYzEjuE)
 
 ***
 
-### [Mutaqqi - وہ کون سے لوگ ہیں جنہیں اللہ گھسیٹ کر اپنی طرف لے آتا ہے؟](https://www.youtube.com/watch?v=KSi6VYzEjuE)
-
-***
-
-### [Sirat-e-Mustaqeem par kon-hain | Allama Talib Jauhari](https://www.youtube.com/watch?v=8oCdNbsZdog)
+#### [Sirat-e-Mustaqeem par kon-hain | Allama Talib Jauhari](https://www.youtube.com/watch?v=8oCdNbsZdog)
 * You like good things
 * Allah SWT also does the same...He pulls good people towards Him
 
@@ -37,7 +36,6 @@
 ***
 
 * __Surah Al Maida (5:15-16)__: [O People of the Book! Now Our Messenger has come to you, revealing much of what you have hidden of the Scriptures and disregarding much. There certainly has come to you from Allah a light and a clear Book (5:15). through which Allah guides those who seek His pleasure to the ways of peace, brings them out of darkness and into light by His Will, and guides them to the Straight Path. (5:16)](https://quran.com/5/15-16)
-
 
 ***
 

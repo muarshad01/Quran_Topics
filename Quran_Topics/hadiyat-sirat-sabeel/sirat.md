@@ -1,9 +1,10 @@
-#### SIRATUL MUSTAQEEM (STRAIGHT PATH) AYATS
+#### Siratul Mustaqeem (Straight Path) Ayats
 * https://quranawareness.wordpress.com/siratul-mustaqeem-straight-path-ayats/
 
 ***
 
 #### [Mutaqqi - وہ کون سے لوگ ہیں جنہیں اللہ گھسیٹ کر اپنی طرف لے آتا ہے؟](https://www.youtube.com/watch?v=KSi6VYzEjuE)
+* __Surah An-Nur 24/35__: [نُورٍۢ ۗ يَهْدِى ٱللَّهُ لِنُورِهِۦ](https://quran.com/24/35)
 
 ***
 

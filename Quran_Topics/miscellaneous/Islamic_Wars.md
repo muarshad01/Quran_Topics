@@ -36,6 +36,8 @@
 ## Jang-e-khandaq
 * [Jung e Khandaq Ka waqia | Battle of Khandaq Story | Ghazwa e Khandaq| Muhammadﷺ ki zindagi ka waqia](https://www.youtube.com/watch?v=42LUZsS0Wxk)
 
+#### [Jang-e-Khandaq | Allama Talib Johri | ‪@Naqihassan-p4e‬](https://www.youtube.com/watch?v=hVPSdJsvukw)
+
 ***
 
 #### [Battle of Hittin and Salah al-Din Ayubi | Prof ARA](https://www.youtube.com/watch?v=tG7UOSfYcAM)

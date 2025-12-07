@@ -364,19 +364,19 @@ https://quran.com/12/101
 * Full of talent; cholestor; blood thickness
 * Ya Hayyu Ya Qayyum, Ya Latifu - 500x
 * Ya Allahu, Ya Wakeelu, Ya Naseeru - 
-===
+* ===
 * 8:00
 * 2 - [2,11,20,29]
 * Art; Stomach, musches
 * Ya Azizu, Ya Salaamu - 300x
 * Ya Zaljal Wal Ikram - 300x
-===
+* ===
 * 3 - [3,12,21,30]
 * Business; creativity; allergy
 * Syed Sarfaraz Shah: 12 June 1944
 * Ya Razzaqu, Ya Basitu, Ya Fathu - 500x
 * Ya Ghaniu, Ya Mughniu - 500x
-===
+* ===
 * 16:00
 * 4 - [4,13,22,31]
 * Idabi; Takhleeqi; Sohurat; kamyabi-aur-Nakami parallel
@@ -384,16 +384,14 @@ https://quran.com/12/101
 * Ya Hayya, Ya Qayyum, Ya Latif - 500x
 * Ya Raqeebu, Ya Hafeezu - 500x
 * Ya Salaamu, Ya Mominu, Ya Allahu - 500x
-===
+* ===
 * 19:00 
 * 5 - [5,14,23]
 * Irfan-ul-Haq: August 14, 1946
-===
+* ===
 * 6 - [6,15,24] - Chat phar kar 
 * 7 - [7,16,25] - Wahmi
 * 8 - [8,17,26]
 * 9 - [9,18,27] - Ghusay ki intaha
 
 *** 
-
-

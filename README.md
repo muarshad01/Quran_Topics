@@ -222,19 +222,15 @@
 |9. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Numbers.md) ||
 |10. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) ||
 |11. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) ||
+|12.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/islamic_wars.md) ||
+|13.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) ||
+|14. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) ||
 
-
-
-
-
-|3. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/muraqba.md) ||
-
-|4. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
-|6. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
-|11. | [Anfiqu..](...) |July 2025|
+|1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
+|11. | [Anfiqu](...) |July 2025|
 |12. | [Haqq](...) |July 2025|
-|13. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/loneliness.md) | July 2025|
 |14.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
 |15.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
-|1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
+
+
 ***

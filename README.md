@@ -220,6 +220,7 @@
 |14. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Numbers.md) |12/06/2025|
 |15. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) |12/06/2025|
 |16. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) |12/06/2025|
+|17. | [Kashf](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/kashf.md) |12/06/2025|
 |17. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) |12/06/2025|
 |18.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
 |19.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|

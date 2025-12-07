@@ -24,7 +24,9 @@
 |---|---|---|
 |1. | [Quran Fazilat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran_fazilat.md) | 12/06/2025 |
 |2. | [Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran.md) | 12/06/2025 |
-  
+|3. | [Arabic Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/quran/.md) | July 30, 2025|
+|4. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
+ 
 ***
 
 | No.  | Topic | Last Updated|
@@ -187,8 +189,6 @@
 |   | Topic | Last Updated |
 |---|---|---|
 |6.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
-|7. | [Urdu Alphabets (Letters)](https://github.com/muarshad01/YouTube_Videos/blob/main/different_scholars/mufti_muneer_ahmad_akhoon.md) | July 30, 2025|
-|8. | [Haroof-e-Muqatat](https://github.com/muarshad01/YouTube_Videos/blob/main/Haroof-e-Muqataat.md)| July 30, 2025|
 |11.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | August 31, 2025|
 |12. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
 |13. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|

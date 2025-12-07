@@ -362,20 +362,30 @@ https://quran.com/12/101
 #### [Unlock Your Hidden Personality Traits | Abdullah Bhatti](https://www.youtube.com/watch?v=U1e52diM2DM)
 * 1 - [1,10,19,28]
 * Full of talent; cholestor; blood thickness
+* Ya Hayyu Ya Qayyum, Ya Latifu - 500x
+* Ya Allahu, Ya Wakeelu, Ya Naseeru - 
 ===
-8:00 pm
+* 8:00
 * 2 - [2,11,20,29]
 * Art; Stomach, musches
+* Ya Azizu, Ya Salaamu - 300x
+* Ya Zaljal Wal Ikram - 300x
 ===
 * 3 - [3,12,21,30]
 * Business; creativity; allergy
-* Syed Sarfaraz Shat: 12 June 1944
+* Syed Sarfaraz Shah: 12 June 1944
+* Ya Razzaqu, Ya Basitu, Ya Fathu - 500x
+* Ya Ghaniu, Ya Mughniu - 500x
 ===
-* 16:00 pm
+* 16:00
 * 4 - [4,13,22,31]
 * Idabi; Takhleeqi; Sohurat; kamyabi-aur-Nakami parallel
 * Sufi
+* Ya Hayya, Ya Qayyum, Ya Latif - 500x
+* Ya Raqeebu, Ya Hafeezu - 500x
+* Ya Salaamu, Ya Mominu, Ya Allahu - 500x
 ===
+* 19:00 
 * 5 - [5,14,23]
 * Irfan-ul-Haq: August 14, 1946
 ===
@@ -385,4 +395,5 @@ https://quran.com/12/101
 * 9 - [9,18,27] - Ghusay ki intaha
 
 *** 
+
 

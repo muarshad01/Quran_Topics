@@ -37,7 +37,7 @@
 |3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/namaaz_in_quran.md); [Sajdah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/sajdah.md); [Azan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/azan.md)| 12/06/2025|
 |4. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/thank_in_quran.md) | 12/06/2025 |
 |5. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Istighfar.md) | 12/06/2025 |
-|6. | [Tawba]()|12/06/2025|
+|6. | [Tawah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawah.md)|12/06/2025|
 |7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | 12/06/2025 |
 |8. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | 12/06/2025 |
 |9. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)| 12/06/2025|

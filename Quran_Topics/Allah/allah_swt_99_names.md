@@ -6,6 +6,10 @@
 
 ***
 
+#### [ALLAH names effect | Why ALLAH repeats his name in Quran | Prof ARA](https://www.youtube.com/watch?v=3URekiCa2-M)
+
+***
+
 #### Allah SWT Names in Quran
 * ONE name `Allah` is `Ism-e-Zaat`
 * 98 other names are `Ism-e-siffat`

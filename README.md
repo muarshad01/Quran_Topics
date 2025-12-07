@@ -149,7 +149,7 @@
 |5. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 12/06/2025 |
 |6. |[Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md)|12/06/2025|
 |7. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
-|8. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.mv) |12/06/2025|
+|8. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.md) |12/06/2025|
 |9. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
 |10. |[Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)|12/06/2025|
 |11. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/east_and_west.md) |12/06/2025|

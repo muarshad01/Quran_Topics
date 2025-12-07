@@ -179,7 +179,7 @@
 | No. | Satan | Last Updated |
 |---|---|---|
 |1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/bani_israel.md) | 12/06/2025 |
-|2. | [Satan (Devil)]([https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md] | 12/06/2025|
+|2. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md] | 12/06/2025|
 |3. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/sata_makes_you_forget.md) | 12/06/2025 |
 |4. | [Dajjal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/dajjal.md) | 12/06/2025 |
 |5. | [Illumanati](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/illumanati.md) | 12/06/2025 |

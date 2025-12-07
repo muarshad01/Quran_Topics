@@ -359,3 +359,15 @@ https://quran.com/12/101
 
 ***
 
+#### [Unlock Your Hidden Personality Traits | Abdullah Bhatti](https://www.youtube.com/watch?v=U1e52diM2DM)
+* 1 - [1,10,19,28]
+* 2 - [2,11,22,29]
+* 3 - [3,12,21,30]
+* 4 - [4,13,22,31]
+* 5 - [5,14,23]
+* 6 - [6,15,24] - Chat phar kar 
+* 7 - [7,16,25] - Wahmi
+* 8 - [8,17,26]
+* 9 - [9,18,27] - Ghusay ki intaha
+
+*** 

@@ -395,13 +395,19 @@ https://quran.com/12/101
 * 22:00
 * 6 - [6,15,24]
 * Chatt-phar-kar milna
-* === 
-* 7 - [7,16,25] - Wahmi
 * ===
+* 28:00
+* 7 - [7,16,25] - Intelligent; wahmi; illusion; sensitivty; depression; anxiety
+* Very weak marriage box; hang-shaadi
+* Quaid-e-Azam
+* Depression: Ashwaganda
+* ===
+* 35:00
 * 8 - [8,17,26]
 * ===
 * 9 - [9,18,27] - Ghusay ki intaha
 * ===
 
 *** 
+
 

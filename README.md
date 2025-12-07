@@ -226,6 +226,9 @@
 |20. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
 |21. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
 |22. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|
+|22. | [Wasila](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
+|22. | [Heart](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
+|22. | [Change](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
 
 ***
 

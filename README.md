@@ -209,11 +209,11 @@
 |2. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
 |3. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) |12/06/2025|
 |4. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)|12/06/2025|
-|5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/qaraz_hasana_in_quran.md) |  |
-|6. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sadaqah.md) |  |
-|7. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/shadow.md) |  |
-|8. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/ya_wali_ya_naseer_in_quran.m.md) |  |
-|9. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/shadow.md) |  |
+|5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  |
+|6. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sadaqah.md) |  |
+|7. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow.md) |  |
+|8. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.m.md) |  |
+|9. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow.md) |  |
 |10. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
 |11. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|
 |12. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) |12/06/2025|

@@ -125,3 +125,7 @@
 #### [The End of the West? Why America and Europe Could Vanish by 2050 | Professor ARA](https://www.youtube.com/watch?v=HrzVAWu62UU)
 
 ***
+
+#### [PAKISTAN KA FUTURE KAISE HOGA? | AGLE 5 SAAL | Irfan ul Haq](https://www.youtube.com/watch?v=O9sA0hq8U-g&t=571s)
+
+***

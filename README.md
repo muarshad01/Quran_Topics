@@ -144,8 +144,7 @@
 |9. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
 |10. |[Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)|12/06/2025|
 |11. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/east_and_west.md) |12/06/2025|
-|12. | [Types of Clay (Teen, Turab, Salsal)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/teen_turab_salsal.md) | 12/06/2025| 
-|13.| [Harut and Marut](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 12/06/2025|
+|13. | [Types of Clay (Teen, Turab, Salsal)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/teen_turab_salsal.md) | 12/06/2025| 
 |14. |[Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
 |15.| [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)|12/06/2025|
 |16. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
@@ -158,10 +157,12 @@
 |23.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
 |24.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
 |25.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
-|26. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) |12/06/2025|
 |26. | [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
 |27. | [Add and Samud](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/aad_and_samud.md) |12/06/2025|
-|28. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) |12/06/2025|
+|28. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) |12/06/2025|
+|29. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) |12/06/2025|
+|30.| [Harut and Marut](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 12/06/2025|
+
 
 ***
 

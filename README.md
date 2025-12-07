@@ -5,6 +5,7 @@
 
 |No.| Main Topics | Last Updated |
 |---|---|---|
+|0. |[Special Topics](#special-topics)| 12/06/2025|
 |1. | [Quran and Its Fazilat](#quran-and-its-fazilat) | 12/06/2025 |
 |2. | [Ilm](#Ilm) | 12/06/2025 |
 |3. | [Prophets](#Prophets) | 12/06/2025| 
@@ -28,9 +29,12 @@
 |3. | [Haroof-e-Muqatat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/haroof-e-muqataat.md)| 12/06/2025|
 |4. | [Arabic Alphabets (Letters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_letters.md) | 12/06/2025|
 |5. |[Ism-e-Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/ism-e-azam.md)| 12/06/2025|
+
 ***
 
-| No.  | Topic | Last Updated|
+#### Special Topics
+
+| No.  | Special Topics | Last Updated|
 |---|---|---|
 |1. | [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | 12/06/2025 |
 |2. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sabr_patience.md)| 12/06/2025 |

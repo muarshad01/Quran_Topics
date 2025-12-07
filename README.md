@@ -53,6 +53,7 @@
 |6. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 12/06/2025 |
 |7. | [Allah SWT - Blessing](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_blessings.md) | 12/6/2025 |
 |8. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 12/6/2025 |
+|9. | [Fazl (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_fazal.md)| July 28, 2025 |
 
 ***
 
@@ -178,7 +179,6 @@
 
 |   | Topic                      | Last Updated               |
 |---|---|---|
-|2. | [Fazal (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fazal.md)| July 28, 2025 |
 |3. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | July 2025 |
 |5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
 

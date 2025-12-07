@@ -363,7 +363,7 @@ https://quran.com/12/101
 * 1 - [1,10,19,28]
 * Full of talent; cholestor; blood thickness
 * Ya Hayyu Ya Qayyum, Ya Latifu - 500x
-* Ya Allahu, Ya Wakeelu, Ya Naseeru - 
+* Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
 * ===
 * 8:00
 * 2 - [2,11,20,29]
@@ -388,10 +388,20 @@ https://quran.com/12/101
 * 19:00 
 * 5 - [5,14,23]
 * Irfan-ul-Haq: August 14, 1946
+* Warrior; Go abroad (hijrat); Yar Baaz
+* Ya Hayyu Ya Qayyum, Ya Latifu - 500x
+* Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
 * ===
-* 6 - [6,15,24] - Chat phar kar 
+* 22:00
+* 6 - [6,15,24]
+* Chatt-phar-kar milna
+* === 
 * 7 - [7,16,25] - Wahmi
+* ===
 * 8 - [8,17,26]
+* ===
 * 9 - [9,18,27] - Ghusay ki intaha
+* ===
 
 *** 
+

@@ -205,12 +205,10 @@
 |   | Topic | Last Updated |
 |---|---|---|
 |1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
-|2.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | August 31, 2025|
 |3. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
 |4. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
 |5. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
 |6. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
-|7. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)|July 2025|
 |8. | [Fingerprint](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fingerprint.md) | July 2025|
 |9. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
 |10. | [Animal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/animals.md) | July 2025|

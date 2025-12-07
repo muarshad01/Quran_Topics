@@ -246,9 +246,8 @@
 
 | No.  | TODO | Last Updated |
 |---|---|---|
-|1.| [Haqq](...) ||
-|2.| [Hadiyat](...) ||
-|3.| [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) ||
-|5.| [Anfiqu](...) ||
+|1.| [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) ||
+|2.| [Haqq](...) ||
+|3.| [Anfiqu](...) ||
 
 ***

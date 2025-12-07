@@ -361,13 +361,28 @@ https://quran.com/12/101
 
 #### [Unlock Your Hidden Personality Traits | Abdullah Bhatti](https://www.youtube.com/watch?v=U1e52diM2DM)
 * 1 - [1,10,19,28]
-* 2 - [2,11,22,29]
+* Full of talent; cholestor; blood thickness
+===
+8:00 pm
+* 2 - [2,11,20,29]
+* Art; Stomach, musches
+===
 * 3 - [3,12,21,30]
+* Business; creativity; allergy
+* Syed Sarfaraz Shat: 12 June 1944
+===
+* 16:00 pm
 * 4 - [4,13,22,31]
+* Idabi; Takhleeqi; Sohurat; kamyabi-aur-Nakami parallel
+* Sufi
+===
 * 5 - [5,14,23]
+* Irfan-ul-Haq: August 14, 1946
+===
 * 6 - [6,15,24] - Chat phar kar 
 * 7 - [7,16,25] - Wahmi
 * 8 - [8,17,26]
 * 9 - [9,18,27] - Ghusay ki intaha
 
 *** 
+

@@ -214,10 +214,21 @@
 |1. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) ||
 |2. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) ||
 |3. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) ||
-|4. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md) ||
+|4. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)||
+|5. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fear.md) ||
+|6. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/depression.md) ||
+|7. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/psychological_problems.md) ||
+|8. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/digits.md) ||
+|9. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/numbers.md) ||
+|10. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/dreams.md) ||
+|11. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/muraqba.md) ||
 
-|1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
-|3. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
+
+
+
+
+|3. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/muraqba.md) ||
+
 |4. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
 |6. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
 |11. | [Anfiqu..](...) |July 2025|
@@ -225,5 +236,5 @@
 |13. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/loneliness.md) | July 2025|
 |14.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
 |15.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
-
+|1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
 ***

@@ -188,29 +188,29 @@
 
 |   | Topic | Last Updated |
 |---|---|---|
-|4. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-|5. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
-|6. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
-|7. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
+|1. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
+|2. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
+|3. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
+|4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
 
 ***
 
 |   | Topic | Last Updated |
 |---|---|---|
-|6.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
-|11.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | August 31, 2025|
-|12. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
-|13. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
-|14. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
-|15. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
-|16. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)|July 2025|
-|17. | [Fingerprint](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fingerprint.md) | July 2025|
-|18. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
-|19. | [Animal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/animals.md) | July 2025|
-|20. | [Anfiqu..](...) |July 2025|
-|21. | [Haqq](...) |July 2025|
-|22. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/loneliness.md) | July 2025|
-|23.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
-|24.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
+|1.| [Kafirs at Judgement Day](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/kafirs-at-judgement-day.md) | July 2025|
+|2.| [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/jadu_treatment.md) | August 31, 2025|
+|3. | [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Islamic_Wars.md) | July 2025|
+|4. | [Tanhi (Solitude)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Tanhi_Solitude.md)| July 2025|
+|5. | [Colors](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/colors_in_quran.md) | July 2025|
+|6. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/digits.md) | July 2025|
+|7. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/gates_in_sky.md)|July 2025|
+|8. | [Fingerprint](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/fingerprint.md) | July 2025|
+|9. | [Food](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/food_in_quran.md) | July 2025|
+|10. | [Animal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/animals.md) | July 2025|
+|11. | [Anfiqu..](...) |July 2025|
+|12. | [Haqq](...) |July 2025|
+|13. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/loneliness.md) | July 2025|
+|14.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/owner_zu.md) | July 2025|
+|15.| [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_and_mathematics.md) | July 2025|
 
 ***

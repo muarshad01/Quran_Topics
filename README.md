@@ -46,6 +46,7 @@
 |8. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Trouble.md) | 12/06/2025 |
 |9. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/muqadma.md)| 12/06/2025|
 |10.| [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/success.md)  | 12/06/2025 |
+|10.| [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/rizq.md)  | 12/06/2025 |
 
 ***
 
@@ -199,7 +200,6 @@
 
 |   | Topic | Last Updated |
 |---|---|---|
-|1. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
 |2. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |3. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
 |4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|

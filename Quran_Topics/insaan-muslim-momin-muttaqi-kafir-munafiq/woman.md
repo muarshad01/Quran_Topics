@@ -12,8 +12,8 @@
 * __Surah Ash-Shuara 26/214__: [وَأَنذِرْ عَشِيرَتَكَ ٱلْأَقْرَبِينَ...وَٱخْفِضْ جَنَاحَكَ لِمَنِ ٱتَّبَعَكَ مِنَ ٱلْمُؤْمِنِينَ](https://quran.com/26/214-215)
 
 * __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Women}$)__: [وَقَرْنَ فِى بُيُوتِكُنَّ وَلَا تَبَرَّجْنَ تَبَرُّجَ ٱلْجَـٰهِلِيَّةِ ٱلْأُولَىٰ ۖ وَأَقِمْنَ ٱلصَّلَوٰةَ وَءَاتِينَ ٱلزَّكَوٰةَ وَأَطِعْنَ ٱللَّهَ وَرَسُولَهُۥٓ ۚ إِنَّمَا يُرِيدُ ٱللَّهُ لِيُذْهِبَ عَنكُمُ ٱلرِّجْسَ أَهْلَ ٱلْبَيْتِ وَيُطَهِّرَكُمْ تَطْهِيرًۭا](https://quranwbw.com/33/33)
-* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ~pre-Islamic ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)
 
+* __Surah Al-Ahzab 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [وَقَرْنَ فِى بُيُوتِكُنَّ وَلَا تَبَرَّجْنَ تَبَرُّجَ ٱلْجَـٰهِلِيَّةِ ٱلْأُولَىٰ ۖ وَأَقِمْنَ ٱلصَّلَوٰةَ وَءَاتِينَ ٱلزَّكَوٰةَ وَأَطِعْنَ ٱللَّهَ وَرَسُولَهُۥٓ ۚ إِنَّمَا يُرِيدُ ٱللَّهُ لِيُذْهِبَ عَنكُمُ ٱلرِّجْسَ أَهْلَ ٱلْبَيْتِ وَيُطَهِّرَكُمْ تَطْهِيرًۭا](https://quran.com/33/33)
 ***
 
 #### [Khabees Urtean Khabees Mardoun Ke liye ...| Sahil Adeem](https://www.youtube.com/watch?v=vZoUaFHrTSw)

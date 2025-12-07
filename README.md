@@ -183,7 +183,7 @@
 |3. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/sata_makes_you_forget.md) | 12/06/2025 |
 |4. | [Dajjal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/dajjal.md) | 12/06/2025 |
 |5. | [Illumanati](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/illumanati.md) | 12/06/2025 |
-|6. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/jinn.md) | 12/06/2025 |
+|6. | [Jinn]([https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/jinn.md](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md)) | 12/06/2025 |
 |7. | [Occult](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/occult.md) | 12/06/2025 |
 |8. | [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/jadu_treatment.md) | 12/06/2025 |
 

@@ -215,9 +215,9 @@
 |2. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) ||
 |3. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) ||
 |4. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)||
-|5. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fear.md) ||
-|6. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/depression.md) ||
-|7. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/psychological_problems.md) ||
+|5. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) ||
+|6. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) ||
+|7. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) ||
 |8. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/digits.md) ||
 |9. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/numbers.md) ||
 |10. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/dreams.md) ||

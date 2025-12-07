@@ -3,10 +3,10 @@
 * 14 - `Haroof-e-Muqataat`
     * Every `HARF` commands a particuler thing. Is a ruler, inchange of that thing.
     * By reciting that `HARF` you get that thing.
-        * One letter `cures` all-sickness
+        * One letter `Cures` all-sickness
         * One letter makes `Rizq` wasee (Specific Day and Specific Time)
-        * One letter is for `Hasool-e-Kashaf`
         * One letter (haraf) gives you `Dast-e-Ghayeb`
+        * One letter is for `Hasool-e-Kashaf`
 * 29 - Surahs start with `Haroof-e-Muqataat`
    * Keys of the code-of-conduct OR law-book of Islam.
    * These words were taught to `Hazraat Adam AS` [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا]
@@ -418,3 +418,4 @@ https://quran.com/12/101
 * ===
 
 ***
+

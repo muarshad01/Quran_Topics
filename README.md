@@ -234,6 +234,8 @@
 |28. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
 |29. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
 |30. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
+|31. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sugar_insulin.md) |12/06/2025|
+|33. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/arrogance.md) |12/06/2025|
 
 ***
 

@@ -78,8 +78,7 @@
 * __Surah Fatir 35/27__: [White (Bidun), Red (Wagharabibu Sudun), Black (Sudun)](https://quran.com/35/27)
 
 #### [Tawaf Ke 7 Chakar Kyun HainHAIN? | Irfan-ul-Haq](https://www.youtube.com/watch?v=HHMeqhOuucg)
-* __Surah Ghafir 40/60__: [وَقَالَ رَبُّكُمُ ٱدْعُونِىٓ أَسْتَجِبْ لَكُمْ ۚ إِنَّ ٱلَّذِينَ يَسْتَكْبِرُونَ عَنْ عِبَادَتِى سَيَدْخُلُونَ جَهَنَّمَ دَاخِرِينَ](https://quran.com/40/60)
-* __Surah Surah Qaaf 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
+* __Surah Ghafir 40/7 (angels holding Arsh-e-Maula)__: [ٱلَّذِينَ يَحْمِلُونَ ٱلْعَرْشَ وَمَنْ حَوْلَهُۥ يُسَبِّحُونَ بِحَمْدِ رَبِّهِمْ وَيُؤْمِنُونَ بِهِۦ وَيَسْتَغْفِرُونَ لِلَّذِينَ ءَامَنُوا۟ رَبَّنَا وَسِعْتَ كُلَّ شَىْءٍۢ رَّحْمَةًۭ وَعِلْمًۭا فَٱغْفِرْ لِلَّذِينَ تَابُوا۟ وَٱتَّبَعُوا۟ سَبِيلَكَ وَقِهِمْ عَذَابَ ٱلْجَحِيمِ](https://quran.com/40/7)
 
 * Tawaf - 7 Rounds (Anti Clock-wise; your heart will remain towards Kabba)
 * Days of Week - 7
@@ -87,7 +86,7 @@
 
 ***
 
-#### Digit (8)
+#### Number - 8
 * Jannat has 8 doors
 1. Baab As-Salaat (Gate of Prayer),
 2. Baab Ar-Rayyan (Gate of Those Who Fasted),
@@ -98,28 +97,26 @@
 7. Baab At-Tawbah (Gate of Repentance)
 8. Baab Al-Kaazimeen Al-Ghayz wal Aafina Anin Naas (Gate of Those Who Control Their Anger and Forgive),
 
-* __Surah Al-Haqqah 69/17 (EIGHT)__: [with the angels on its sides. On that Day eight ˹mighty angels˺ will bear the Throne of your Lord above them.](https://quran.com/69/17)
-* __Surah Al-Baqaraa 2/269 (Hikmat)__: [Yu'til ...yu'tal ootiya ...](https://quranwbw.com/2/269)
-* __Surah Al Israa 7/80__: [Wa-qur Rabbi adkhilnee mudkhala sidqinw Wa-akhrijnee mukhraja sidqinw waj'al lee mil ladunka sultaanan naseeraa](https://quranwbw.com/17/80)
+* __Surah Al-Haqqah 69/17 (8 angels ar holding Arsh-e-Maula)__: [وَٱلْمَلَكُ عَلَىٰٓ أَرْجَآئِهَا ۚ وَيَحْمِلُ عَرْشَ رَبِّكَ فَوْقَهُمْ يَوْمَئِذٍۢ ثَمَـٰنِيَةٌۭ](https://quran.com/69/17)
 
 ***
 
-## Digit (9)
+#### Number - 9
 
-* __Surah Az-Zumar 39/9 (Ilm)__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ][˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quranwbw.com/39/9)
+* __Surah Az-Zumar 39/9 (ulul albab)__: [أَمَّنْ هُوَ قَـٰنِتٌ ءَانَآءَ ٱلَّيْلِ سَاجِدًۭا وَقَآئِمًۭا يَحْذَرُ ٱلْـَٔاخِرَةَ وَيَرْجُوا۟ رَحْمَةَ رَبِّهِۦ ۗ قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ إِنَّمَا يَتَذَكَّرُ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/39/9)
 
-* __Surah Ahzab 33/72 (Zalim & Jahil)__: [وَحَمَلَهَا ٱلْإِنسَـٰنُ ۖ إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا][Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quranwbw.com/33/72)
+* __Surah Ahzab 33/72 (Zalim & Jahil)__: [وَحَمَلَهَا ٱلْإِنسَـٰنُ ۖ إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا][Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quran.com/33/72)
 
 * __Surah 31/27 (All Trees & & Oceans)__: [If all the trees on earth were pens and the ocean ˹were ink˺, refilled by seven other oceans, the Words of Allah would not be exhausted. Surely Allah is Almighty, All-Wise.](https://quranwbw.com/31/27)
 
 ***
 
-## Digit (10)
+#### Number - 9
 * __Surah Faatir 35/10 (All Izzat belong to Allah SWT)__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quranwbw.com/35/10)
 
 ***
 
-## Digit (11): 29 = 2 + 9 = 11 
+#### Number - 11=29=2+9=11 
 * __Allah (11)__: `2 + 9 = 11 ~ 1 (Creator) AND 1 (Creation)`
    * Creator: `Allah SWT`
    * Creation: `Prophet Muhammad PBUH`
@@ -130,64 +127,60 @@
    * I am the city of knowledge and Ali AS is the door - Hadith
    * Sword of Allah SWT 
 
-* __Surah Al-Baqarag 2/155-156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
-  * For every big trouble...read this tasbeeh...
 * __Surah Al-Kahf 18/109 (Total 110 Ayats)__: [](https://quran.com/18/110)
-* __Surah Al-Ahzaab 33/56 (${\color{red}Darood ~Sharif}$)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
-* __Surah Muhammad 47/38 (${\color{red}He ~will ~replace ~you}$)__: [Here you are, being invited to donate ˹a little˺ in the cause of Allah. Still some of you withhold. And whoever does so, it is only to their own loss. For Allah is the Self-Sufficient, whereas you stand in need ˹of Him˺. If you ˹still˺ turn away, He will replace you with another people. And they will not be like you.](https://quranwbw.com/47/38)
+* __Surah Al-Ahzaab 33/56 (${\color{red}Darood ~Sharif}$)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quran.com/33/56)
+* __Surah Muhammad 47/38 (${\color{red}He ~will ~replace ~you}$)__: [Here you are, being invited to donate ˹a little˺ in the cause of Allah. Still some of you withhold. And whoever does so, it is only to their own loss. For Allah is the Self-Sufficient, whereas you stand in need ˹of Him˺. If you ˹still˺ turn away, He will replace you with another people. And they will not be like you.](https://quran.com/47/38)
 
-* __Surah 12/101__: [فَاطِرَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ أَنتَ وَلِىِّۦ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ تَوَفَّنِى مُسْلِمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/12/101)
+* __Surah Yusuf 12/101__: [فَاطِرَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ أَنتَ وَلِىِّۦ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ تَوَفَّنِى مُسْلِمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/12/101)
 
 ***
 
-### Digit (12)
+#### Number - 12 
 * Ibrahim AS -> Ishaq [Issac] (12 Sons; 12 tribes of Jews) -> Yaqoob [Jacob] (12 Sons)
-* __Surah Al-Baqarah 2/60 (12 Streams of Water)__: [And ˹remember˺ when Moses prayed for water for his people, We said, “Strike the rock with your staff.” Then twelve springs gushed out, ˹and˺ each tribe knew its drinking place. ˹We then said,˺ “Eat and drink of Allah’s provisions, and do not go about spreading corruption in the land.”](https://quranwbw.com/2/60)
-* __Surah At-Tawba (12 Months; 4're sacred) 9/36__: [Indeed, the number of months ordained by Allah is twelve—in Allah’s Record1 since the day He created the heavens and the earth—of which four are sacred. That is the Right Way. So do not wrong one another during these months. And fight the polytheists together as they fight together against you. And know that Allah is with those mindful ˹of Him˺.](https://quranwbw.com/9/36)
+* __Surah Al-Baqarah 2/60 (12 Streams of Water)__: [And ˹remember˺ when Moses prayed for water for his people, We said, “Strike the rock with your staff.” Then twelve springs gushed out, ˹and˺ each tribe knew its drinking place. ˹We then said,˺ “Eat and drink of Allah’s provisions, and do not go about spreading corruption in the land.”](https://quran.com/2/60)
+* __Surah At-Tawba (12 Months; 4're sacred) 9/36__: [Indeed, the number of months ordained by Allah is twelve—in Allah’s Record1 since the day He created the heavens and the earth—of which four are sacred. That is the Right Way. So do not wrong one another during these months. And fight the polytheists together as they fight together against you. And know that Allah is with those mindful ˹of Him˺.](https://quran.com/9/36)
 
 ***
 
-### Digit (13)
+#### Number - 13 
 * Water and Land
    * 13x (land, memtioned in Quran) + 32x (water mentioned in Quran) = 45
    * (13/45) = 29%
    * (32/45) = 71%
-* __Surad Ar-Raad__: [The thunder glorifies His praises, as do the angels in awe of Him. He sends thunderbolts, striking with them whoever He wills. Yet they dispute about Allah. And He is tremendous in might.](https://quranwbw.com/13#13)
-* __Surah Al-Isra (Nano Chip) 17/13__: [We have bound every human’s destiny to their neck. And on the Day of Judgment We will bring forth to each ˹person˺ a record which they will find laid open.](https://quran.com/17/13)
-* __Surah An-Nisa 4/157__: [...neither killed nor crucified him...](https://quran.com/4/157)
+* __Surad Ar-Raad 13/13 (Cloud Thunder: Tasbeeh)__: [وَيُسَبِّحُ ٱلرَّعْدُ بِحَمْدِهِۦ وَٱلْمَلَـٰٓئِكَةُ مِنْ خِيفَتِهِۦ وَيُرْسِلُ ٱلصَّوَٰعِقَ فَيُصِيبُ بِهَا مَن يَشَآءُ وَهُمْ يُجَـٰدِلُونَ فِى ٱللَّهِ وَهُوَ شَدِيدُ ٱلْمِحَالِ](https://quran.com/13/13)
+* __Surah Al-Isra (Insaan Neck - Nano Chip) 17/13__: [وَكُلَّ إِنسَـٰنٍ أَلْزَمْنَـٰهُ طَـٰٓئِرَهُۥ فِى عُنُقِهِۦ ۖ وَنُخْرِجُ لَهُۥ يَوْمَ ٱلْقِيَـٰمَةِ كِتَـٰبًۭا يَلْقَىٰهُ مَنشُورًا](https://quran.com/17/13)
+* __Surah An-Nisa 4/157 (Issa AS: neither killed nor crucified him)__: [وَقَوْلِهِمْ إِنَّا قَتَلْنَا ٱلْمَسِيحَ عِيسَى ٱبْنَ مَرْيَمَ رَسُولَ ٱللَّهِ وَمَا قَتَلُوهُ وَمَا صَلَبُوهُ وَلَـٰكِن شُبِّهَ لَهُمْ ۚ وَإِنَّ ٱلَّذِينَ ٱخْتَلَفُوا۟ فِيهِ لَفِى شَكٍّۢ مِّنْهُ ۚ مَا لَهُم بِهِۦ مِنْ عِلْمٍ إِلَّا ٱتِّبَاعَ ٱلظَّنِّ ۚ وَمَا قَتَلُوهُ يَقِينًۢا](https://quran.com/4/157)
 
 ***
 
-### Digit (15)
-* __Surah Faatir 35/15 (Faqeer)__: [O humanity! It is you who stand in need of Allah, but Allah ˹alone˺ is the Self-Sufficient, Praiseworthy.](https://quranwbw.com/35/15)
+#### Number - 14 
+* __Surah Faatir 35/15 (Faqeer)__: [۞ يَـٰٓأَيُّهَا ٱلنَّاسُ أَنتُمُ ٱلْفُقَرَآءُ إِلَى ٱللَّهِ ۖ وَٱللَّهُ هُوَ ٱلْغَنِىُّ ٱلْحَمِيدُ](https://quran.com/35/15)
 
 ***
 
-### Digit (16)
-* __Surah Al-Araf 7/16__: [He said, “For leaving me to stray I will lie in ambush for them on Your Straight Path.](https://quran.com/7/16)
+#### Number - 16 
+* __Surah Al-Araf 7/16__: [قَالَ فَبِمَآ أَغْوَيْتَنِى لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ ](https://quran.com/7/16)
 
 ***
 
-### Digit 17
+#### Number - 17
 * [Hikmat](https://quranwbw.com/2/269)
-* https://quranwbw.com/3#17
+* __Surah 3/17__: [ٱلصَّـٰبِرِينَ وَٱلصَّـٰدِقِينَ وَٱلْقَـٰنِتِينَ وَٱلْمُنفِقِينَ وَٱلْمُسْتَغْفِرِينَ بِٱلْأَسْحَارِ](https://quran.com/3/17)
+* It is they˺ who are patient (ٱلصَّـٰبِرِينَ)
+* sincere (وَٱلصَّـٰدِقِينَ)
+* obedient (وَٱلْقَـٰنِتِينَ)
+* and charitable (وَٱلْمُنفِقِينَ)
+* and who pray for forgiveness (وَٱلْمُسْتَغْفِرِينَ) before dawn (بِٱلْأَسْحَارِ).
 
 ***
 
-* __Surah An-Naml 27/19__: [تَرْضَىٰهُ وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
-
-***
-
-### Digit (23)
-* https://quran.com/7/23
-***
-
-### Digit (19): 19 = 1+9 = 10 = 1+0 = 1
+#### Number - 19=1+9=10=1+0=1
+* __Surah An-Naml 27/19__: [وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 * __Surah Fatiha 01/01__:[First Verse of Quran](https://quran.com/1/1)
    * `19` - Number of letters (Haroof) in `Bismillahir Rahmanir Raheem`
 * `114 = 19 x 6` - Number of universe formation
-* __Surah Tawba 09__:[NO - Bisimillah](https://quranwbw.com/27#29)
-* __Surah An Naml 27/30__:[TWICE - Bisimillah](https://quranwbw.com/27#30)
+* __Surah Tawba 09__:[NO - Bisimillah](https://quran.com/27/29)
+* __Surah An Naml 27/30__:[TWICE - Bisimillah](https://quran.com/27/30)
 * __Surah Al-Muddaththir 74/30__: [It is overseen by 19 ˹keepers˺.](https://quran.com/74/30)
 * __Surah Al Alaq 96/1-5__: [19 words - The famous FIRST relelation](https://quran.com/96/1-5)
 * __Surah An Nasr 110__: [19 words - The LAST revelation](https://quran.com/110)
@@ -196,33 +189,35 @@
 
 ***
 
-## Digit (21)
-
+#### Number - 21
 * 786 = 7 + 8 + 6 = 21
 
 ***
 
-## Digit (23)
+#### Number - 23
 * 23 years to spread Islam after becoming prophet
 * 63 = 40 + 23 years
 * 23 chromose pairs
+* __Surah Al-Araf 7/23__: [قَالَا رَبَّنَا ظَلَمْنَآ أَنفُسَنَا وَإِن لَّمْ تَغْفِرْ لَنَا وَتَرْحَمْنَا لَنَكُونَنَّ مِنَ ٱلْخَـٰسِرِينَ](https://quran.com/7/23)
+  
+***
+
+#### Number - 27
+* __Surah Luqman 31/27__: [](https://quran.com/31/27)
 
 ***
 
-## Digit 27
-* __Surah Luqman__: [](https://quran.com/31/27)
-
-## Digit (28)
+#### Number - 28
 * 28 prophets are mentioned in Quran
 
 ***
 
-## Digit (30)
-* __Surah Al-Furqaan 25/30__: [The Messenger has cried, “O my Lord! My people have indeed received this Quran with neglect.”](https://quran.com/25/30)
+#### Number - 30
+* __Surah Al-Furqaan 25/30__: [وَقَالَ ٱلرَّسُولُ يَـٰرَبِّ إِنَّ قَوْمِى ٱتَّخَذُوا۟ هَـٰذَا ٱلْقُرْءَانَ مَهْجُورًۭا](https://quran.com/25/30)
   
 ***
 
-## Digit 33
+#### Number - 33
 * 33 x 1 = 33
     * Tasbeeh-e-Fatima
     * Age in Jannat 32-33
@@ -233,12 +228,12 @@
 * 33 x 4 = 132 = 
 * 33 x 5 = 165
 * [Abu Huraira reported Allah's Messenger (ﷺ) as saying: If anyone extols Allah after every prayer thirty-three times, and praises Allah thirty-three times, and declares His Greatness thirty-three times, ninety-nine times in all, and says to complete a hundred:" There is no god but Allah, having no partner with Him, to Him belongs sovereignty and to Him is praise due, and He is Potent over everything," his sins will be forgiven even If these are as abundant as the foam of the sea.](https://sunnah.com/muslim:597a) -- Sahih Muslim 597a
-* __Surah Al-Anfaal 08/33 ()__: [And Allah would not punish them while you (Muhammad SAW) are amongst them, nor will He punish them while they seek (Allah's) Forgiveness](https://quranwbw.com/8/33)
-* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [Settle in your homes, and do not display yourselves as women did in the days of ˹pre-Islamic˺ ignorance. Establish prayer, pay alms-tax, and obey Allah and His Messenger. Allah only intends to keep ˹the causes of˺ evil away from you and purify you completely, members of the ˹Prophet’s˺ family!](https://quranwbw.com/33/33)
+* __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quran.com/8/33)
+* __Surah Al-Ahzab [The Clans] 33/33 (${\color{red}Don't ~display ~yourselves ~as ~women ~did ..~ ˹pre-Islamic˺ ~ignorance}$)__: [وَقَرْنَ فِى بُيُوتِكُنَّ وَلَا تَبَرَّجْنَ تَبَرُّجَ ٱلْجَـٰهِلِيَّةِ ٱلْأُولَىٰ ۖ وَأَقِمْنَ ٱلصَّلَوٰةَ وَءَاتِينَ ٱلزَّكَوٰةَ وَأَطِعْنَ ٱللَّهَ وَرَسُولَهُۥٓ ۚ إِنَّمَا يُرِيدُ ٱللَّهُ لِيُذْهِبَ عَنكُمُ ٱلرِّجْسَ أَهْلَ ٱلْبَيْتِ وَيُطَهِّرَكُمْ تَطْهِيرًۭا](https://quran.com/33/33)
 
 ***
 
-## Digit 40
+#### Number - 40
 * Nubawat 40th year of life
 * __Surah Baqarah 2/51 (40 Nights)__: [And ˹remember˺ when We appointed forty nights for Moses, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/51)
 * __Surah Al-Maida 5/26 (40 Years)__: [Allah replied, “Then this land is forbidden to them for forty years, during which they will wander through the land. So do not grieve for the rebellious people.”](https://quran.com/5/26)
@@ -252,18 +247,18 @@
 
 ***
 
-## Digit 41
+#### Number - 41
 
 * __Surah An-Nur 24/41 (${\color{red}Each ˹instinctively˺ knows their manner of prayer and glorification.; Birds.}$)__: [Do you not see that Allah is glorified by all those in the heavens and the earth, even the BIRDS as they soar? Each ˹instinctively˺ knows their manner of prayer and glorification. And Allah has ˹perfect˺ knowledge of all they do.](https://quranwbw.com/24/41)
 
 ***
 
-## Digit (44)
+#### Number - 44
 * __Surah AL-Israa (Every Atom of Universise does Tasbeeh)__: [تُسَبِّحُ لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quranwbw.com/17/44)
 
 ***
 
-## Digit (53)
+#### Number - 53
 * __Surah Az-Zumar 39/53__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ ٥٣](https://quran.com/39/53)
 
 ***
@@ -272,51 +267,41 @@
 
 ***
 
-## Digit 59
+#### Number - 59
 * Keys of Unseen
-* __Surah Al-Anaam 6/59__: [Leafs fall with His knowlege](https://quranwbw.com/6/59)
+* __Surah Al-Anaam 6/59__: [Leafs fall with His knowlege](https://quran.com/6/59)
 
 ***
 
-## Digit 66
+#### Number - 66
 * Allah SWT
 * Alf (1) + Laam (30) + Laam (30) + Hay (5) = 66 adaads
 
 ***
 
-## Digit 66
-
-***
-
-## Digit 70
-
-* __Surah Al-Araaf __: [Moses chose seventy men from among his people for Our appointment and, when they were seized by an earthquake,1 he cried, “My Lord! Had You willed, You could have destroyed them long ago, and me as well. Will You destroy us for what the foolish among us have done? This is only a test from You—by which You allow whoever you will to stray and guide whoever You will. You are our Guardian. So forgive us and have mercy on us. You are the best forgiver.](https://quranwbw.com/7/155)
-* __Surah At-Tawba__: [˹It does not matter˺ whether you ˹O Prophet˺ pray for them to be forgiven or not. Even if you pray for their forgiveness seventy times, Allah will never forgive them. That is because they have lost faith in Allah and His Messenger. And Allah does not guide the rebellious people.](https://quranwbw.com/9/80)
-
-***
-
-## Digit (71)
-
-* __Surah Maryam 19/71__: [There is none of you who will not pass over it.1 ˹This is˺ a decree your Lord must fulfil.](https://quranwbw.com/19/71)
-
-
-***
-
-## Digit 76
-* https://quranwbw.com/12/76
-
-***
-
-## Digit 70 - 624 AD
-* __Surah Al-Araaf 7/155__: [Moses chose seventy men from among his people for Our appointment and, when they were seized by an earthquake,1 he cried, “My Lord! Had You willed, You could have destroyed them long ago, and me as well. Will You destroy us for what the foolish among us have done? This is only a test from You—by which You allow whoever you will to stray and guide whoever You will. You are our Guardian. So forgive us and have mercy on us. You are the best forgiver.](https://quranwbw.com/7/155)
-* Badr Battle (1,000 to 313)
+#### Number - 70
+* Badr Battle (1,000 to 313) - 624 AD
     * (70 or 72)  Kafirs were killed and another 70 were captured
         * Ali ibn Abi-Talib alone killed 36
     * 14 Muslims were martyred
 * Ahud Battle (3,000 to 700) - 625 AD
     * 70 Muslims were martyred ? 
     * According to The Life of Muhammad by Muhammad Husayn Haykal, Imam Ali killed eight standard-bearers of the Meccan idolaters during the Battle of Uhud
-* Musa AS took 70 people from Bani-Israel to Koh-e-Toor: https://quran.com/5/20-26
+
+* __Surah Al-Araaf 7/155 (70 Men)__: [وَٱخْتَارَ مُوسَىٰ قَوْمَهُۥ سَبْعِينَ رَجُلًۭا لِّمِيقَـٰتِنَا ۖ فَلَمَّآ أَخَذَتْهُمُ ٱلرَّجْفَةُ قَالَ رَبِّ لَوْ شِئْتَ أَهْلَكْتَهُم مِّن قَبْلُ وَإِيَّـٰىَ ۖ أَتُهْلِكُنَا بِمَا فَعَلَ ٱلسُّفَهَآءُ مِنَّآ ۖ إِنْ هِىَ إِلَّا فِتْنَتُكَ تُضِلُّ بِهَا مَن تَشَآءُ وَتَهْدِى مَن تَشَآءُ ۖ أَنتَ وَلِيُّنَا فَٱغْفِرْ لَنَا وَٱرْحَمْنَا ۖ وَأَنتَ خَيْرُ ٱلْغَـٰفِرِينَ](https://quranwbw.com/7/155)
+* __Surah 5/20-26__: [](https://quran.com/5/20-26)
+   * Musa AS took 70 people from Bani-Israel to Koh-e-Toor:
+* __Surah At-Tawba 9/80 (Allah will not forgive MUNAFIS even you pray 70 times)__: [ٱسْتَغْفِرْ لَهُمْ أَوْ لَا تَسْتَغْفِرْ لَهُمْ إِن تَسْتَغْفِرْ لَهُمْ سَبْعِينَ مَرَّةًۭ فَلَن يَغْفِرَ ٱللَّهُ لَهُمْ ۚ ذَٰلِكَ بِأَنَّهُمْ كَفَرُوا۟ بِٱللَّهِ وَرَسُولِهِۦ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلْفَـٰسِقِينَ](https://quran.com/9/80)
+
+***
+
+#### Number - 71
+* __Surah Maryam 19/71__: [There is none of you who will not pass over it. ˹This is˺ a decree your Lord must fulfil.](https://quran.com/19/71)
+
+***
+
+#### Number - 76
+* __Surah__: [](https://quran.com/12/76)
 
 ***
 
@@ -327,31 +312,24 @@
 
 ***
 
-## Digit 101
-
-https://quran.com/12/101
-
-***
-
-## Digit 217
-
-* __Surah Al-Baqarah 2/217__: [And they will not stop fighting you until they turn you away from your faith—if they can](https://quranwbw.com/2/217)
+#### Number - 101
+* __Surah 12/101__: [](https://quran.com/12/101)
 
 ***
 
-#### [Ye Wazifa 313 Bar Parh Lo | Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
+#### Number - 217
+* __Surah Al-Baqarah 2/217 (وَلَا يَزَالُونَ يُقَـٰتِلُونَكُمْ حَتَّىٰ يَرُدُّوكُمْ عَن دِينِكُمْ إِنِ ٱسْتَطَـٰعُوا۟ ۚ)__: [يَسْـَٔلُونَكَ عَنِ ٱلشَّهْرِ ٱلْحَرَامِ قِتَالٍۢ فِيهِ ۖ قُلْ قِتَالٌۭ فِيهِ كَبِيرٌۭ ۖ وَصَدٌّ عَن سَبِيلِ ٱللَّهِ وَكُفْرٌۢ بِهِۦ وَٱلْمَسْجِدِ ٱلْحَرَامِ وَإِخْرَاجُ أَهْلِهِۦ مِنْهُ أَكْبَرُ عِندَ ٱللَّهِ ۚ وَٱلْفِتْنَةُ أَكْبَرُ مِنَ ٱلْقَتْلِ ۗ وَلَا يَزَالُونَ يُقَـٰتِلُونَكُمْ حَتَّىٰ يَرُدُّوكُمْ عَن دِينِكُمْ إِنِ ٱسْتَطَـٰعُوا۟ ۚ وَمَن يَرْتَدِدْ مِنكُمْ عَن دِينِهِۦ فَيَمُتْ وَهُوَ كَافِرٌۭ فَأُو۟لَـٰٓئِكَ حَبِطَتْ أَعْمَـٰلُهُمْ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ وَأُو۟لَـٰٓئِكَ أَصْحَـٰبُ ٱلنَّارِ ۖ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/2/217)
+
+***
 
 #### Number 313
 1. 313 Rasool
 2. Taloot Army story - 313
 3. Battle of Badr - 313
+* [Ye Wazifa 313 Bar Parh Lo | Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
 
 ***
 
-* [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)
-
-
-***
 #### [Mind Blowing Symmetry in Quran Pages! - The Miracle You’ll Hear for the First Time!](https://www.youtube.com/watch?v=2iiGZlyDOXk)
 
 | Occurance | Word |
@@ -419,4 +397,7 @@ https://quran.com/12/101
 
 ***
 
+* [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)
+
+***
 

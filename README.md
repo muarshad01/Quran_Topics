@@ -218,10 +218,10 @@
 |5. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) ||
 |6. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) ||
 |7. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) ||
-|8. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/digits.md) ||
-|9. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/numbers.md) ||
-|10. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/dreams.md) ||
-|11. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/muraqba.md) ||
+|8. | [Digits] (https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/digits.md) ||
+|9. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/numbers.md) ||
+|10. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) ||
+|11. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) ||
 
 
 

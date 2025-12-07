@@ -174,3 +174,5 @@
 #### [Hazrat Adam (A.S) Ko Mukhtalif-Mitti Se Kyun-Banaya? (8 mins) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DctVSOd6ZXc)
 
 ***
+
+* __Surah Al-Isra (Insaan Neck - Nano Chip) 17/13__: [وَكُلَّ إِنسَـٰنٍ أَلْزَمْنَـٰهُ طَـٰٓئِرَهُۥ فِى عُنُقِهِۦ ۖ وَنُخْرِجُ لَهُۥ يَوْمَ ٱلْقِيَـٰمَةِ كِتَـٰبًۭا يَلْقَىٰهُ مَنشُورًا](https://quran.com/17/13)

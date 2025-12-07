@@ -7,3 +7,7 @@
   * Hadab" (حَدَب) in Arabic, and particularly within the Quran, literally refers to raised ground or an elevation
 
 ***
+
+#### [Modern Interpretation of Yajuj-Majuj | Sahil Adeem](https://www.youtube.com/watch?v=2yajeOBoK3U)
+
+***

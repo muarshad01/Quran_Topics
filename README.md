@@ -37,7 +37,7 @@
 |6. | [Tawba]()|12/06/2025|
 |7. | [Tawaqqal (Placing one's trust on Allah (SWT) in all matters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tawaqqal.md) | 12/06/2025 |
 |8. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Trouble.md) | 12/06/2025 |
-|9. | [Muqadma](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)| 12/06/2025|
+|9. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/muqadma.md)| 12/06/2025|
 |10.| [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/success.md)  | 12/06/2025 |
 
 ***

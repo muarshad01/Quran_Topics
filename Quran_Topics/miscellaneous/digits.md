@@ -13,36 +13,36 @@
 
 ***
 
-## Digit Three (1)
+#### Number - 1
 
 ***
 
-## Digit Three (2)
+#### Number - 2
 
 ***
 
-## Digit Three (3)
-* __Surah An-Nasar 110/3__: [then glorify the praises of your Lord and seek His forgiveness, for certainly He is ever Accepting of Repentance.](https://quran.com/110/3)
+#### Number - 3
+* __Surah An-Nasar 110/3__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110/3)
 
 ***
 
-## Digit Four (4)
+#### Number - 4
 * [Digit Four (4)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession30.md)
 
 *** 
 
-## Digit Five (5 = 1 + 4) 
+#### Number - 5=1+4
 * 14 = 1 + 4 = 5
-   * There are `5 pillars of Islam`
+* There are `5 pillars of Islam`
 * 5 Prayers
 * 5 Arkan-e-Islam: They are Shahada (declaration of faith), Salah (prayer), Zakat (almsgiving), Sawm (fasting), and Hajj (pilgrimage).
-* [My favour upon you, and chosen Islam as your way.](https://quranwbw.com/5/3)
+* __Surah Al-Maidah 5/3__: [وَٱخْشَوْنِ ۚ ٱلْيَوْمَ أَكْمَلْتُ لَكُمْ دِينَكُمْ وَأَتْمَمْتُ عَلَيْكُمْ نِعْمَتِى وَرَضِيتُ لَكُمُ ٱلْإِسْلَـٰمَ](https://quran.com/5/3)
   
 ```
 1. Allah SWT (`Noor-Alqaa`), Malik-e-qul
 2. Prophet Muhammad PBUH (`Noor-e-Marwareed`)
 3. Quran Majeed (`Kitaab-e-Kul`) 
-4. Ilm-e-kul (Ilm of Quran)
+4. Ilm-e-kul (Ilm-of-Quran)
 5. People who know Ilm
 ```
 
@@ -52,21 +52,21 @@
 
 ***
 
-## Digit Six (6)
+#### Number - 6
 * [Digit Six (6)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerNagri/FaqeerNagriSession28.md)
 
 *** 
 
-## Digit Seven (7)
+#### Number - 7
 * `Rohaniat (Spiritualism)` ka adad hai.
 * Tameer(Construction) ka adaad hai:
 * 7 - Ayats of Surah Fatiha
 * 7 - Seven circumambulations of Muslim pilgrims around the Kaaba in Mecca during the Hajj and the Umrah.
-* Jahannum has 7 doors
+* 7 - doors/levels of Jahannum
   
 #### Seven Heavens and Seven Sky
 * [Seven Heavens and Seven Sky](https://github.com/muarshad01/YouTube_Videos/blob/main/quran/seven_heavens_and_earth.md)
-* __Surah Ghafir 40/7__: [Those ˹angels˺ who carry the Throne and those around it glorify the praises of their Lord, have faith in Him, and seek forgiveness for the believers, ˹praying:˺ “Our Lord! You encompass everything in ˹Your˺ mercy and knowledge. So forgive those who repent and follow Your Way, and protect them from the torment of the Hellfire.](https://quran.com/40/7)
+* __Surah Ghafir 40/7__: [ٱلَّذِينَ يَحْمِلُونَ ٱلْعَرْشَ وَمَنْ حَوْلَهُۥ يُسَبِّحُونَ بِحَمْدِ رَبِّهِمْ وَيُؤْمِنُونَ بِهِۦ وَيَسْتَغْفِرُونَ لِلَّذِينَ ءَامَنُوا۟ رَبَّنَا وَسِعْتَ كُلَّ شَىْءٍۢ رَّحْمَةًۭ وَعِلْمًۭا فَٱغْفِرْ لِلَّذِينَ تَابُوا۟ وَٱتَّبَعُوا۟ سَبِيلَكَ وَقِهِمْ عَذَابَ ٱلْجَحِيمِ](https://quran.com/40/7)
 * __Surah Al-Hashr 59/16__: [كَمَثَلِ ٱلشَّيْطَـٰنِ إِذْ قَالَ لِلْإِنسَـٰنِ ٱكْفُرْ فَلَمَّا كَفَرَ قَالَ إِنِّى بَرِىٓءٌۭ مِّنكَ إِنِّىٓ أَخَافُ ٱللَّهَ رَبَّ ٱلْعَـٰلَمِينَ](https://quran.com/59/16)
 
 #### Colors of Light
@@ -78,8 +78,8 @@
 * __Surah Fatir 35/27__: [White (Bidun), Red (Wagharabibu Sudun), Black (Sudun)](https://quran.com/35/27)
 
 #### [Tawaf Ke 7 Chakar Kyun HainHAIN? | Irfan-ul-Haq](https://www.youtube.com/watch?v=HHMeqhOuucg)
-* __Surah__: [](https://quran.com/40/60)
-* __Surah__: [](https://quran.com/50/16)
+* __Surah Ghafir 40/60__: [وَقَالَ رَبُّكُمُ ٱدْعُونِىٓ أَسْتَجِبْ لَكُمْ ۚ إِنَّ ٱلَّذِينَ يَسْتَكْبِرُونَ عَنْ عِبَادَتِى سَيَدْخُلُونَ جَهَنَّمَ دَاخِرِينَ](https://quran.com/40/60)
+* __Surah Surah Qaaf 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
 
 * Tawaf - 7 Rounds (Anti Clock-wise; your heart will remain towards Kabba)
 * Days of Week - 7
@@ -418,4 +418,5 @@ https://quran.com/12/101
 * ===
 
 ***
+
 

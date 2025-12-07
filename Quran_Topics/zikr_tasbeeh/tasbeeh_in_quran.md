@@ -1,4 +1,5 @@
 #### [Mayoosi Say Nikalne Ka Hal | Irfan-ul-Haq](https://www.youtube.com/watch?v=WOiVXeexw30)
+* 24/7 Tasbeeh: Allah SWT ki complete obediance
 
 ***
 

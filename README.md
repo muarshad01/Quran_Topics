@@ -92,14 +92,14 @@
 
 ***
 
-#### Hidayat Sirat Sabeel
+#### Hidayat Sirat Sabeel Imaan
 
 | No.  | Hidayat Sirat Sabeel Imaan| Last Updated |
 |---|---|---|
 |1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
 |2. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sirat.md) | 12/06/2025 |
 |3. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sabeel.md) | 12/06/2025 |
-|4. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
+|4. | [Imaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
 
 ***
 

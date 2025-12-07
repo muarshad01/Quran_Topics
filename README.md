@@ -178,6 +178,10 @@
 |1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md) | July 28, 2025|
 |2. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|
 |3. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
+
+
+|   | Topic | Last Updated |
+|---|---|---|
 |4. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
 |5. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
 |6. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |

@@ -24,8 +24,8 @@
 |---|---|---|
 |1. | [Quran Fazilat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran_fazilat.md) | 12/06/2025 |
 |2. | [Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran.md) | 12/06/2025 |
-|3. | [Arabic Alphabets (Letters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_letters.md) | 12/06/2025|
-|4. | [Haroof-e-Muqatat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/haroof-e-muqataat.md)| 12/06/2025|
+|3. | [Haroof-e-Muqatat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/haroof-e-muqataat.md)| 12/06/2025|
+|4. | [Arabic Alphabets (Letters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_letters.md) | 12/06/2025|
  
 ***
 

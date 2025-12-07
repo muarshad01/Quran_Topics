@@ -1,3 +1,7 @@
+#### [Mayoosi Say Nikalne Ka Hal | Irfan-ul-Haq](https://www.youtube.com/watch?v=WOiVXeexw30)
+
+***
+
 #### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
 * Woh Musalman aqalmand-nahi-hai, __joo-Allah-Ko uska-wadaa yaad-nahi-dilata ([كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54))__
 * Woh Musalman aqalmand nahi hai, joo-Satan-Ko doge-nahi deh-sakta

@@ -180,3 +180,7 @@
 ***
 
 * __Surah Hud 11/9-11__: [](https://quran.com/11/9-11]
+
+#### [Man's two biggest Mistakes | Prof ARA](https://www.youtube.com/watch?v=4OyeTQe9HCg)
+
+***

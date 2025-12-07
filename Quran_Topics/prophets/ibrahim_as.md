@@ -1,3 +1,12 @@
+#### [Ibrahim A. S](https://www.youtube.com/shorts/lh43jJUmknQ)
+* __Surah Al-Baqarah 2/124 (وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ)__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ قَالَ وَمِن ذُرِّيَّتِى ۖ قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
+* __Surah An-Nahl 16/123 (وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ)__: [ثُمَّ أَوْحَيْنَآ إِلَيْكَ أَنِ ٱتَّبِعْ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۖ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/16/123)
+* __Surah As-Saffat 37/100-107__: [](https://quran.com/37/100-107)
+* __Surah An-Najm 53/37 (Wafaa: وَفَّىٰٓ)__: [وَإِبْرَٰهِيمَ ٱلَّذِى وَفَّىٰٓ](https://quran.com/53/37)
+
+**** 
+
+
 #### Abraham AS Father 
 * __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
 

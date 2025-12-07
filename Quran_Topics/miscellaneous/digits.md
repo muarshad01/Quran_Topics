@@ -1,10 +1,15 @@
-## Haroof-e-Muqataat (`Ramooz-e-Israr-e-Kainaat`)
+#### Haroof-e-Muqataat (`Ramooz-e-Israr-e-Kainaat`)
+* Controlling words of Universe
 * 14 - `Haroof-e-Muqataat`
-    * Every `HARF` commands a particuler thing. Is a ruler, Inchange of that thing.
+    * Every `HARF` commands a particuler thing. Is a ruler, inchange of that thing.
     * By reciting that `HARF` you get that thing.
+        * One letter `cures` all-sickness
+        * One letter makes `Rizq` wasee (Specific Day and Specific Time)
+        * One letter is for `Hasool-e-Kashaf`
+        * One letter (haraf) gives you `Dast-e-Ghayeb`
 * 29 - Surahs start with `Haroof-e-Muqataat`
-   * Keys of the `code-of-conduct` OR `law-book` of Islam.
-   * These words were taught to `Hazraat Adam AS`
+   * Keys of the code-of-conduct OR law-book of Islam.
+   * These words were taught to `Hazraat Adam AS` [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا]
 
 ***
 
@@ -389,6 +394,7 @@ https://quran.com/12/101
 * 5 - [5,14,23]
 * Irfan-ul-Haq: August 14, 1946
 * Warrior; Go abroad (hijrat); Yar Baaz
+* Imran Khan: October 5, 1952
 * Ya Hayyu Ya Qayyum, Ya Latifu - 500x
 * Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
 * ===
@@ -404,10 +410,11 @@ https://quran.com/12/101
 * ===
 * 35:00
 * 8 - [8,17,26]
+* Takhat ya Takhta; dictatorship;
 * ===
-* 9 - [9,18,27] - Ghusay ki intaha
+* 40:00
+* 9 - [9,18,27] - Ghusay-ki-intaha
+* 
 * ===
 
-*** 
-
-
+***

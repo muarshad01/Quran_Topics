@@ -171,31 +171,16 @@
 
 ***
 
-|   | Topic | Last Updated               |
+|   | Topic | Last Updated |
 |---|---|---|
 |1. | [Bani Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/bani_israel.md) | July 28, 2025|
-|6. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|
-|7. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
-
-***
-
-|   | Topic                      | Last Updated               |
-|---|---|---|
-|5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
-
-***
-
-|   | xxx | Last Updated |
-|---|---|---|
-|3. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
-|5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
-
-***
-
-|   | Topic                      | Last Updated               |
-|---|---|---|
-|4. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
-|6. | [Sajdah (Act of prostration)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sajdah.md) | July 2025 
+|2. | [Satan (Devil)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Satan.md) | July 2025|
+|3. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Nasiya_forgot.md) | July 2025 |
+|4. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/rizq.md) | July 2025 |
+|5. | [Faqeer-Jahil-Haqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/faqeer-jahil-haqeer.md)| July 2025|
+|6. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/qaraz_hasana.md) | July 2025 |
+|7. | [Tawhid (Absolute oneness and uniqueness of God (Allah))](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/tauheed.md) | July 2025|
+|8. | [Sajdah (Act of prostration)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/sajdah.md) | July 2025 
 
 ***
 

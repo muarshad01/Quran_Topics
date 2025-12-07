@@ -27,7 +27,7 @@
 |2. | [Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/quran.md) | 12/06/2025 |
 |3. | [Haroof-e-Muqatat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/haroof-e-muqataat.md)| 12/06/2025|
 |4. | [Arabic Alphabets (Letters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_letters.md) | 12/06/2025|
-|5. |[Ism-e-Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/ism-e-amaz.md)| 12/06/2025|
+|5. |[Ism-e-Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/ism-e-azam.md)| 12/06/2025|
 ***
 
 | No.  | Topic | Last Updated|

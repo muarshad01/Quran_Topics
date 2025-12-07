@@ -71,6 +71,7 @@
 
 |   | Insaan Muslim Momin Mutaqqi Kafir Salaheen Awabeen Munafiq | Last Updated |
 |---|---|---|
+|0. | [Naas Muslim Momin Mutaqi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/Naas_Muslim_momin_mutaqi.md) |12/6/2025|
 |1. | [Al-Insaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/insaan.md) | 12/6/2025 |
 |2. | Muslim | | |
 |3. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/momin.md) | 12/6/2025 |

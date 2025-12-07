@@ -230,7 +230,7 @@
 |16. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) |12/06/2025|
 |17. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) |12/06/2025|
 |18. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
-|19. | [Rohani Lataif](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohani_lataif.md) ||
+|19. | [Rohani Lataif](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohani_lataif.md) |12/06/2025|
 |20. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
 |21. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
 |22. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|

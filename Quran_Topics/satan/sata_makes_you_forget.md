@@ -1,0 +1,19 @@
+### Satan Makes You Forget
+
+* __Surah An-Nisa 4/140__: [He has already revealed to you in the Book that when you hear Allah’s revelations being denied or ridiculed, then do not sit in that company unless they engage in a different topic, or else you will be like them.1 Surely Allah will gather the hypocrites and disbelievers all together in Hell.](https://quran.com/4/140)
+
+* __Surah Al-Anam 6/68__: [وَإِذَا رَأَيْتَ ٱلَّذِينَ يَخُوضُونَ فِىٓ ءَايَـٰتِنَا فَأَعْرِضْ عَنْهُمْ حَتَّىٰ يَخُوضُوا۟ فِى حَدِيثٍ غَيْرِهِۦ ۚ وَإِمَّا يُنسِيَنَّكَ ٱلشَّيْطَـٰنُ فَلَا تَقْعُدْ بَعْدَ ٱلذِّكْرَىٰ مَعَ ٱلْقَوْمِ ٱلظَّـٰلِمِينَ](https://quran.com/6/68)
+
+* __Surah Al-Anam 6/71__: [قُلْ أَنَدْعُوا۟ مِن دُونِ ٱللَّهِ مَا لَا يَنفَعُنَا وَلَا يَضُرُّنَا وَنُرَدُّ عَلَىٰٓ أَعْقَابِنَا بَعْدَ إِذْ هَدَىٰنَا ٱللَّهُ كَٱلَّذِى ٱسْتَهْوَتْهُ ٱلشَّيَـٰطِينُ فِى ٱلْأَرْضِ حَيْرَانَ لَهُۥٓ أَصْحَـٰبٌۭ يَدْعُونَهُۥٓ إِلَى ٱلْهُدَى ٱئْتِنَا ۗ قُلْ إِنَّ هُدَى ٱللَّهِ هُوَ ٱلْهُدَىٰ ۖ وَأُمِرْنَا لِنُسْلِمَ لِرَبِّ ٱلْعَـٰلَمِينَ ٧١](https://quran.com/6/71)
+  
+* __Surah Yusuf 12/42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.1” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
+
+* __Surah Al-Kahf 18/24__: [إِلَّآ أَن يَشَآءَ ٱللَّهُ ۚ وَٱذْكُر رَّبَّكَ إِذَا نَسِيتَ وَقُلْ عَسَىٰٓ أَن يَهْدِيَنِ رَبِّى لِأَقْرَبَ مِنْ هَـٰذَا رَشَدًۭا](https://quranwbw.com/18/24)
+* 
+* __Surah Al-Kahf 18/28__: [without adding, “if Allah so wills!” But if you forget, then remember your Lord, and say, “I trust my Lord will guide me to what is more right than this.”](https://quran.com/18/24)
+
+* __Surah Al-Kahf 18/63__: [He replied, “Do you remember when we rested by the rock? ˹That is when˺ I forgot the fish. None made me forget to mention this except Satan. And the fish made its way into the sea miraculously.”](https://quran.com/18/63)
+
+* __Surah Al-Mujadila 58/19__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quranwbw.com/58/19)
+
+* https://quran.com/18/24

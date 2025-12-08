@@ -326,3 +326,6 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 ***
 
 ### Peer Syed Abdul Latif Kazmi Qadiri, often referred to as Bari Imam or Bari Sarkar
+* Shahshah-e-Behr-o-Bar Ya Latif
+
+***

@@ -329,3 +329,5 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### ["Bangali Baba" Ki Asliyat! | Kalay Jadu Ka Asan Tor | Ayatul Kursi Ka Wazifa💯 | Abdullah Bhatti](https://www.youtube.com/watch?v=E42Sy_Nen7c)
 
 ***
+
+#### [Jaadu Karne Wala Ghar Ya Daftar Mein Ho To Kesay Pata Chaly? | Abdullah Bhatti | Faqeer Di Dua](https://www.youtube.com/watch?v=k-bzYoT8hcA)

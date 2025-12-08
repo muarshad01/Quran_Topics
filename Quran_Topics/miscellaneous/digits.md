@@ -293,6 +293,8 @@
    * Musa AS took 70 people from Bani-Israel to Koh-e-Toor:
 * __Surah At-Tawba 9/80 (Allah will not forgive MUNAFIS even you pray 70 times)__: [ٱسْتَغْفِرْ لَهُمْ أَوْ لَا تَسْتَغْفِرْ لَهُمْ إِن تَسْتَغْفِرْ لَهُمْ سَبْعِينَ مَرَّةًۭ فَلَن يَغْفِرَ ٱللَّهُ لَهُمْ ۚ ذَٰلِكَ بِأَنَّهُمْ كَفَرُوا۟ بِٱللَّهِ وَرَسُولِهِۦ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلْفَـٰسِقِينَ](https://quran.com/9/80)
 
+* [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
+
 ***
 
 #### Number - 71
@@ -400,4 +402,5 @@
 * [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)
 
 ***
+
 

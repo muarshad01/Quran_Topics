@@ -14,3 +14,8 @@
 * https://www.youtube.com/shorts/GPyZ0rFtRJE (Exercise)
 * https://www.youtube.com/watch?v=2t_jbRvWPCk (Exercise)
 * https://www.youtube.com/watch?v=dMrl0MLysCA (Exercise)
+* https://www.youtube.com/shorts/WPQ3flIEh-Y (Yoga-Go App)
+* https://www.youtube.com/shorts/St37WmU3dFY (Exercise)
+* https://www.youtube.com/watch?v=3loiZUSmSfE (Exercise)
+* https://www.youtube.com/watch?v=E29AGyFn0WQ (Exercise)
+* https://www.youtube.com/shorts/i5vrC5jV-Y4 (Exercise)

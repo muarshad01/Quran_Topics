@@ -25,3 +25,5 @@
 * __Surah 27/62__: [أَمَّن يُجِيبُ ٱلْمُضْطَرَّ إِذَا دَعَاهُ وَيَكْشِفُ ٱلسُّوٓءَ](https://quran.com/27/62)
 
 ***
+
+#### [](https://www.youtube.com/shorts/BZ7wxIOFJyM)

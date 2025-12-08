@@ -4,6 +4,11 @@
 
 ***
 
+#### [Aik Ba-Barkat Wazifa](https://www.youtube.com/shorts/3A6Linj145E)
+* Wa-Huma Rahman ur Raheem
+
+***
+
 #### [Ye Wazifa 313 Bar Parh Lo | Har Dua Usi Waqt Qabool Ho Gi | Allama Hisham Elahi Zaheer](https://www.youtube.com/watch?v=_kBbjmsta0w)
 1. "Alif Lam Meem" (الٓمٓ)
 2. Bismillahir Rahmanir Raheem (بِسْمِ ٱللهِ ٱلرَّحْمَٰنِ ٱلرَّحِيْمِ) 

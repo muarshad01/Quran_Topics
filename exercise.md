@@ -9,3 +9,6 @@
 * https://www.youtube.com/shorts/8m8ikxk31bE (Exercise)
 * https://www.youtube.com/watch?v=QHjJT9BXEUw (Exercise P)
 * https://www.youtube.com/watch?v=okOdNG0ui_4 (Exercise)
+* https://www.youtube.com/watch?v=Sj3D99woKIk (Exercise)
+* https://www.youtube.com/watch?v=QZZdPKZMB-8 (Exercise)
+* https://www.youtube.com/shorts/GPyZ0rFtRJE (Exercise)

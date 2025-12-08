@@ -311,3 +311,5 @@
 #### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
 
 ***
+
+#### [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)

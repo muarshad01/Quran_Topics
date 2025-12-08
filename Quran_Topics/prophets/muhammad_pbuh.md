@@ -1,5 +1,5 @@
 #### [Makkah](https://www.youtube.com/shorts/GN64KFFSyTs)
-
+#### ["1400 Years Back in Time: AI Recreates the Streets & Homes of Prophet Muhammad ﷺ"](https://www.youtube.com/watch?v=dVuHaISFSqI)
 ***
 
 * __Surah 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)

@@ -1,1 +1,8 @@
-
+* https://www.youtube.com/shorts/CvuYUbrQUps (Exercise)
+* https://www.youtube.com/watch?v=B_8oCkU32yU (Exercise)
+* https://www.youtube.com/shorts/zg0xIk_sXpU (Exercise)
+* https://www.youtube.com/watch?v=Y9am2W3fHIc (Exercise)
+* https://www.youtube.com/shorts/hADVAZP9jyo (Exercise)
+* https://www.youtube.com/shorts/nzCEGzMPnAY (Exercise)
+* https://www.youtube.com/shorts/cT9FRydrTwI (Exercise)
+* https://www.youtube.com/shorts/z4pfzjJmORM (Exercise)

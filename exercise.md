@@ -19,3 +19,6 @@
 * https://www.youtube.com/watch?v=3loiZUSmSfE (Exercise)
 * https://www.youtube.com/watch?v=E29AGyFn0WQ (Exercise)
 * https://www.youtube.com/shorts/i5vrC5jV-Y4 (Exercise)
+* https://www.youtube.com/watch?v=DiMOF547_4w (Exercise)
+* https://www.youtube.com/watch?v=WA3HYjbeRo0 (Exercise)
+* https://www.youtube.com/shorts/JSCad5xTjqs (Exercise)

@@ -2,6 +2,12 @@
 
 ***
 
+* To win a court case, you can recite the Quranic supplication 
+* __Surah Al-Qamar 54/10__: [فَدَعَا رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ](https://quran.com/54/10)
+* __Surah Taha 20/25-26__: [قَالَ رَبِّ ٱشْرَحْ لِى صَدْرِى...وَيَسِّرْ لِىٓ أَمْرِى](https://quran.com/20/25-26)
+
+***
+
 #### [Remember Allah In Hard Time..| Prof ARA](https://www.youtube.com/watch?v=qpV8dowbTjE)
 
 ***

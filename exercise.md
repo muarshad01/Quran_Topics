@@ -22,3 +22,7 @@
 * https://www.youtube.com/watch?v=DiMOF547_4w (Exercise)
 * https://www.youtube.com/watch?v=WA3HYjbeRo0 (Exercise)
 * https://www.youtube.com/shorts/JSCad5xTjqs (Exercise)
+
+* https://www.youtube.com/shorts/i_znSKuROtQ (Medicine)
+* No More Urine Drops! Exercise To Get Rid Of Urine Drops & Completely Clear Your Bladder | Dr. Haris
+

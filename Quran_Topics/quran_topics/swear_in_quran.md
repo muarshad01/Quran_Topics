@@ -1,4 +1,6 @@
-https://www.quora.com/What-are-ten-things-Allah-swears-by
+* https://www.youtube.com/watch?v=BiZgg2l98UA
+
+* https://www.quora.com/What-are-ten-things-Allah-swears-by
 
 * [Khuda Quran Mein Kis Ki Qasam Kha Raha Hai? | Allama Talib Johri](https://www.youtube.com/watch?v=inRV3nyyObY)
 

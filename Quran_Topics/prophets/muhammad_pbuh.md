@@ -26,6 +26,16 @@
 
 #### ["1400 Years Back in Time: AI Recreates the Streets & Homes of Prophet Muhammad ﷺ"](https://www.youtube.com/watch?v=dVuHaISFSqI)
 
+* __Hazrat Hafsa RA__
+   * Hujra: 5x6x2.5
+* __Hazrat Aysha RA__
+* __Hazrat Sawdah (RA) bint Zam'ah__ was the second wife of Prophet Muhammad (PBUH), an honored "Mother of Believers" (Umm-ul-Mu'mineen)
+* __Hazrat Fatima RA__
+* __Umm Salama (Hind bint Abi Umayya)__
+* __Zaynab bint Jahsh__ (First Nikkah with Zayd ibn Ḥāritha al-Kalbī )
+* __Surah Al-Ahzab 33/37__: [وَإِذْ تَقُولُ لِلَّذِىٓ أَنْعَمَ ٱللَّهُ عَلَيْهِ وَأَنْعَمْتَ عَلَيْهِ أَمْسِكْ عَلَيْكَ زَوْجَكَ وَٱتَّقِ ٱللَّهَ وَتُخْفِى فِى نَفْسِكَ مَا ٱللَّهُ مُبْدِيهِ وَتَخْشَى ٱلنَّاسَ وَٱللَّهُ أَحَقُّ أَن تَخْشَىٰهُ ۖ فَلَمَّا قَضَىٰ زَيْدٌۭ مِّنْهَا وَطَرًۭا زَوَّجْنَـٰكَهَا لِكَىْ لَا يَكُونَ عَلَى ٱلْمُؤْمِنِينَ حَرَجٌۭ فِىٓ أَزْوَٰجِ أَدْعِيَآئِهِمْ إِذَا قَضَوْا۟ مِنْهُنَّ وَطَرًۭا ۚ وَكَانَ أَمْرُ ٱللَّهِ مَفْعُولًۭا](https://quran.com/33/37)
+* Sab-say-ziada sadqah dainay-wali
+
 ***
 
 #### [Rasool (pbuh) ko Risalat 40 Saal bad kyun ? | Allama Talib Johri](https://www.youtube.com/watch?v=GApHO6RFLKA)

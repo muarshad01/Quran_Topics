@@ -7,6 +7,13 @@
 
 ***
 
+* Bab ul Nisaa
+* Bab-e-Bilal (Hazrat Abu-Bakar Siddique House)
+* Hazrat Usman Ghani
+* Ashab-e-Shufa Place
+
+***
+
 #### [Riyazul jannah ki 10 aise ziyarat jo ap ko ni karwae ga koi bhi ](https://www.youtube.com/shorts/YhdiCcodgJE)
 
 #### [Makkah](https://www.youtube.com/shorts/GN64KFFSyTs)

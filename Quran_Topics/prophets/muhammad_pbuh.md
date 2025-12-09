@@ -23,6 +23,9 @@
 ***
 
 #### [Makkah](https://www.youtube.com/shorts/GN64KFFSyTs)
+
+***
+
 #### ["1400 Years Back in Time: AI Recreates the Streets & Homes of Prophet Muhammad ﷺ"](https://www.youtube.com/watch?v=dVuHaISFSqI)
 
 ***

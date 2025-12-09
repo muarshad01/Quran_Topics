@@ -38,11 +38,7 @@
 
 ***
 
-#### [Rasool (pbuh) ko Risalat 40 Saal bad kyun ? | Allama Talib Johri](https://www.youtube.com/watch?v=GApHO6RFLKA)
-
-***
-
-* __Surah 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)
+* __Surah Al-Imran 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)
 
 * https://www.youtube.com/shorts/_eNmQhaLMsA
 
@@ -518,5 +514,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ***
 
 #### [Zikr-e-Muhammad PBUH](https://www.youtube.com/watch?v=q5IUbAsF84Y)
+
+***
+
+#### [Rasool (pbuh) ko Risalat 40 Saal bad kyun ? | Allama Talib Johri](https://www.youtube.com/watch?v=GApHO6RFLKA)
 
 ***

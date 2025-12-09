@@ -2,6 +2,17 @@
 
 ***
 
+#### [Reality of Dreams | خواب میں خطرناک اشارے کس چیز کو ظاہرکرتے ہیں؟ | Syed Sarfraz Ahmad Shah Sahab | SSA Shah](https://www.youtube.com/watch?v=EYJu0_PV5jw)
+
+***
+
+#### [Reality of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
+1. Unconcious mind
+2. Sub-concious (La-Shahoar; most active)
+3. Concious mind
+
+***
+
 #### [Dream Signs You Must Know | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
 
 * Never tell-your-dream after __2:00 pm__ in the afternoon. Otherwise, it is wasted!!
@@ -23,13 +34,6 @@
 #### [Tasawwuf Main Khawab o Khayal Ki Ahmiyat | SSA Shah](https://www.youtube.com/watch?v=OdbEdP40H7c)
 * Jahan-e-Faqeer - Lecture 28, Page 226
   
-***
-
-#### [Reality of Bad Dreams - Waswaso ka ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)
-1. Unconcious
-2. Subconcious (La-Shaoor; most active)
-3. Concious
-
 ***
 
 #### [Reality-of-Bad Dreams - Waswaso-ka-Ilaj | SSA Shah](https://www.youtube.com/watch?v=emuYQLWWdsg)

@@ -169,3 +169,4 @@ __Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ 
 
 ***
 
+#### [Allah Apne Bande ko Kaise Yaad Krta Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=7qeW2T7vpc8)

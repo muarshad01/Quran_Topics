@@ -44,10 +44,6 @@
 
 ***
 
-#### [Hazrat Fatima Ke Naam Ke Maani Kya Hain? | Allama Syed Muzaffar Shah Qadri](https://www.youtube.com/watch?v=MIRacv-xuac)
-
-***
-
 #### Muhammad PBUH
 The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-time in the Quran.
 * __Surah Al-Imran 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quranwbw.com/3/144)
@@ -518,5 +514,9 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ***
 
 #### [Rasool (pbuh) ko Risalat 40 Saal bad kyun ? | Allama Talib Johri](https://www.youtube.com/watch?v=GApHO6RFLKA)
+
+***
+
+#### [Hazrat Fatima Ke Naam Ke Maani Kya Hain? | Allama Syed Muzaffar Shah Qadri](https://www.youtube.com/watch?v=MIRacv-xuac)
 
 ***

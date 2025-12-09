@@ -1,3 +1,7 @@
+#### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://github.com/muarshad01/Quran_Topics/edit/main/Quran_Topics/Allah/allah_ka_fazl.md)
+
+***
+
 #### [Signs that Allah SWT has Choses you](https://www.youtube.com/shorts/GkzowvaPtsA)
 * Grant-of-Ilm is afzal tareen (The Best Inaam)
 * Roozi wasee-kar-deh

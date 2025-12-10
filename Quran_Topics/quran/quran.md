@@ -183,3 +183,10 @@
 * __Surah Al-Ahzab 33/6__: [ٱلنَّبِىُّ أَوْلَىٰ بِٱلْمُؤْمِنِينَ مِنْ أَنفُسِهِمْ ۖ وَأَزْوَٰجُهُۥٓ أُمَّهَـٰتُهُمْ ۗ وَأُو۟لُوا۟ ٱلْأَرْحَامِ بَعْضُهُمْ أَوْلَىٰ بِبَعْضٍۢ فِى كِتَـٰبِ ٱللَّهِ مِنَ ٱلْمُؤْمِنِينَ وَٱلْمُهَـٰجِرِينَ إِلَّآ أَن تَفْعَلُوٓا۟ إِلَىٰٓ أَوْلِيَآئِكُم مَّعْرُوفًۭا ۚ كَانَ ذَٰلِكَ فِى ٱلْكِتَـٰبِ مَسْطُورًۭا](https://quran.com/33/6)
 
 ***
+
+#### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
+* __Surah Maryam 19/16-29 (Issa AS)__: [(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
+* __Surah 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
+* Theory versus Practical
+* Ilm-e-Ilahi in Alfaaz in Quran
+* Ilm-e-Ilahi in Noor is Muhammad PBUH

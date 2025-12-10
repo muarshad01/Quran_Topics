@@ -162,43 +162,44 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 #### Quran
 * Nazool: means coming-down-of-something from top
 * We sent down to you ˹O Prophet˺ a revelation in writing: [نَزَّلْنَا عَلَيْكَ كِتَـٰبًۭا](https://quran.com/6/7)
-* __Surah An-Nahl__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
-* __Surah__: [ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
-* Which day/nigh: [إِنَّآ أَنزَلْنَـٰهُ فِى لَيْلَةِ ٱلْقَدْرِ](https://quran.com/97/1)
-* Which month: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ](https://quran.com/2/185)
-* Which place: [ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quran.com/17/1)
-* What place it was revealed (Heart of Muhammad): [عَلَىٰ قَلْبِكَ لِتَكُونَ مِنَ ٱلْمُنذِرِينَ](https://quran.com/26/194)
-* Who brought it down: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
-* Power of Quran: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
+* __Surah An-Nahl 16/89__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
+* __Surah An-Nisa 4/113__: [شَىْءٍۢ ۚ وَأَنزَلَ ٱللَّهُ عَلَيْكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
+* __Surah 97/1 (Which day/nigh?)__: [إِنَّآ أَنزَلْنَـٰهُ فِى لَيْلَةِ ٱلْقَدْرِ](https://quran.com/97/1)
+* __Surah 2/185 (Which month?)__: [شَهْرُ رَمَضَانَ ٱلَّذِىٓ أُنزِلَ فِيهِ ٱلْقُرْءَانُ](https://quran.com/2/185)
+* __Surah 17/1 (Which place?)__: [ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ](https://quran.com/17/1)
+* __Surah 26/194 (What place it was revealed (Heart of Muhammad)?)__: [عَلَىٰ قَلْبِكَ لِتَكُونَ مِنَ ٱلْمُنذِرِينَ](https://quran.com/26/194)
+* __Surah 26/192-193 (Who brought it down?)__: [نَزَلَ بِهِ ٱلرُّوحُ ٱلْأَمِينُ](https://quran.com/26/192-193)
+* __Surah 59/21 (Power of Quran?)__: [لَوْ أَنزَلْنَا هَـٰذَا ٱلْقُرْءَانَ عَلَىٰ جَبَلٍۢ لَّرَأَيْتَهُۥ خَـٰشِعًۭا مُّتَصَدِّعًۭا مِّنْ خَشْيَةِ ٱللَّهِ ۚ](https://quran.com/59/21)
 
 #### (Quran == Muhammad PBUH) & (Muhammad PBUH > Quran)
 * __Surah An-Nahl 16/89 (Rehmat for Muslimeen)__: [تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
 * __Surah 1/2__: [ٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/1/2)
-* __Surah 4/113__: [وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
-* __Surah 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
-* __Surah 42/52__ : [وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quranwbw.com/42/52)
+* __Surah An-Nisa 4/113__: [وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ](https://quran.com/4/113)
+* __Surah Al-Anbya 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةًۭ لِّلْعَـٰلَمِينَ](https://quranwbw.com/21/107)
+* __Surah Ash-Shura 42/52__ : [وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quranwbw.com/42/52)
 
 #### Ibrahim AS versus Muhammad PBUH
 * __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
 * __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ](https://quran.com/89/27-30)
-* aa-jaa -- wapis-aaa-jaa
+  * aa-jaa -- wapis-aaa-jaa
 
 ***
 
 #### [Rasool Allah (SAW) ka Seena Chak Huwa? | Allama Talib Johri‬](https://www.youtube.com/watch?v=3Q00tns5azs)
-#### "Sharh-e-Sadr" (Arabic: شرح الصدر)
-* __Surah 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
+* "Sharh-e-Sadr" (Arabic: شرح الصدر)
+* __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
 * __Surah Taa-Haa 20/25__: [قَالَ رَبِّ ٱشْرَحْ لِى صَدْرِى](https://quranwbw.com/20/25)
-* __Surah 94/1__: [أَلَمْ نَشْرَحْ لَكَ صَدْرَكَ](https://quranwbw.com/94/1) 
+* __Surah Ash-Sharh 94/1__: [أَلَمْ نَشْرَحْ لَكَ صَدْرَكَ](https://quranwbw.com/94/1) 
 
 ***
 
 #### [Waqya-e-Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 * Quality of Mitti of Hazrat Muhammad PBUH
-* Syed-ul-Anbii
+* Syed-ul-Anbii (Khatum ar Rasool)
 * Syed-ul-Malaika
-* __Surah 96/9__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ](https://quran.com/96/9)
-* Abad: Rooh + Jism is Abad. Niyat-karti-hai Rooh Namaz-parthi-hai Abaad
+* __Surah Al-Alaq 96/9__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ](https://quran.com/96/9)
+  * Abad: Rooh + Jism is Abad.
+  * Niyat-karti-hai Rooh Namaz-parthi-hai Abaad
 1. Allah Ki Tauheed-ka-Iqrar
 2. App Ki Risalat-ka-Iqrar
 3. Ali AS ki Waliat-ka-Iqrar
@@ -207,7 +208,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 #### [Hazrat Issa (AS) or Muhammad Rasool Allah (SAW) | Allama Talib Johri‬](https://www.youtube.com/watch?v=QZAu5WE-9Ec)
 * __Surah Maryam 19/16-29 (Issa AS)__: [(16) And mention in the Book ˹O Prophet, the story of˺ Mary when she withdrew from her family to a place in the east, (17) ...](https://quranwbw.com/19/16-29)
-* __Surah 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
+* __Surah Maryam 19/12-15__: [Yahya AS](https://quran.com/19/12-15)
 * Theory versus Practical
 * Ilm-e-Ilahi in Alfaaz in Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
@@ -219,11 +220,11 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Surah Adh-Dhariyat 51/57__: [مَآ أُرِيدُ مِنْهُم مِّن رِّزْقٍۢ وَمَآ أُرِيدُ أَن يُطْعِمُونِ](https://quran.com/51/57)
 * __Surah Adh-Dhariyat 51/58__: [إِنَّ ٱللَّهَ هُوَ ٱلرَّزَّاقُ ذُو ٱلْقُوَّةِ ٱلْمَتِينُ](https://quran.com/51/58)
 
-* __Surah 36/78/79__: [وَضَرَبَ لَنَا مَثَلًۭا وَنَسِىَ خَلْقَهُۥ ۖ قَالَ مَن يُحْىِ ٱلْعِظَـٰمَ وَهِىَ رَمِيمٌۭ ٧٨...قُلْ يُحْيِيهَا ٱلَّذِىٓ أَنشَأَهَآ أَوَّلَ مَرَّةٍۢ ۖ وَهُوَ بِكُلِّ خَلْقٍ عَلِيمٌ ٧٩](https://quran.com/36/78-79)
-* Allah SWT is aware of all ways of create
-1. Sabab + Sabab = Nar + Mada = Aulad
-2. Tareeqa-e-Kun: Make stone a Camel (Saleh AS Camel came out of Mountain; Ismail AS Sheep; Musa AS Stick (Snake))
-3. Tareeq-e-Amr:
+* __Surah Yaseen 36/78-79__: [وَضَرَبَ لَنَا مَثَلًۭا وَنَسِىَ خَلْقَهُۥ ۖ قَالَ مَن يُحْىِ ٱلْعِظَـٰمَ وَهِىَ رَمِيمٌۭ ٧٨...قُلْ يُحْيِيهَا ٱلَّذِىٓ أَنشَأَهَآ أَوَّلَ مَرَّةٍۢ ۖ وَهُوَ بِكُلِّ خَلْقٍ عَلِيمٌ ٧٩](https://quran.com/36/78-79)
+* Allah SWT is aware of all ways of creation
+1. __Sabab + Sabab__ = Nar + Mada = Aulad
+2. __Tareeqa-e-Kun__: Make stone a Camel (Saleh AS Camel came out of Mountain; Ismail AS Sheep; Musa AS Stick (Snake))
+3. __Tareeqa-e-Amr__:
    * __Surah 11/73__: [قَالُوٓا۟ أَتَعْجَبِينَ مِنْ أَمْرِ ٱللَّهِ ۖ رَحْمَتُ ٱللَّهِ وَبَرَكَـٰتُهُۥ عَلَيْكُمْ أَهْلَ ٱلْبَيْتِ ۚ إِنَّهُۥ حَمِيدٌۭ مَّجِيدٌۭ ٧٣](https://quran.com/11/73)
    * __Surah 19/17__: [فَٱتَّخَذَتْ مِن دُونِهِمْ حِجَابًۭا فَأَرْسَلْنَآ إِلَيْهَا رُوحَنَا فَتَمَثَّلَ لَهَا بَشَرًۭا سَوِيًّۭا ١٧](https://quran.com/19/17)
    * __Surah 19/21__: [قَالَ كَذَٰلِكِ قَالَ رَبُّكِ هُوَ عَلَىَّ هَيِّنٌۭ ۖ وَلِنَجْعَلَهُۥٓ ءَايَةًۭ لِّلنَّاسِ وَرَحْمَةًۭ مِّنَّا ۚ وَكَانَ أَمْرًۭا مَّقْضِيًّۭا ٢١](https://quran.com/19/21)

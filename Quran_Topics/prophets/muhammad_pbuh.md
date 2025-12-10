@@ -519,11 +519,12 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 #### [Hazrat Fatima Ke Naam Ke Maani Kya Hain? | Allama Syed Muzaffar Shah Qadri](https://www.youtube.com/watch?v=MIRacv-xuac)
 * __Fatima__: Anqita, yani churana. Doar kar denay wali.
-* Razayat time, 2-years for feeding milk time for mother to kids. Futima sabeeh
-* Doar kar denay wali
-* Chura denay wali.
-* __Zahra (with Zabar)__: Kali yani Shugafa 
+  * Razayat time, 2-years for feeding milk time for mother to kids. Futima sabeeh
+  * Doar kar denay wali
+  * Chura (leave) denay wali.
+* __Zahra (with Zabar)__: Kali (Phool ki kali) yani Shugafa 
 * __Zohra (with Paish)__: Husan, Jamal, Roshan Chehra, Suraj
+  * __Surah Taha 20/131__: [وَلَا تَمُدَّنَّ عَيْنَيْكَ إِلَىٰ مَا مَتَّعْنَا بِهِۦٓ أَزْوَٰجًۭا مِّنْهُمْ زَهْرَةَ ٱلْحَيَوٰةِ ٱلدُّنْيَا لِنَفْتِنَهُمْ فِيهِ ۚ وَرِزْقُ رَبِّكَ خَيْرٌۭ وَأَبْقَىٰ](https://quran.com/20/131)
 * __Batool__: Kainat say katt kar rehnay-wali, mutaqqi,  perhaz ghar (Afifa), doar rehnay-wali
 * __Afifa__: 
 

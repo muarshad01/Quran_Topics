@@ -134,6 +134,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Surah 9/30 (Jews)__: [وَقَالَتِ ٱلْيَهُودُ عُزَيْرٌ ٱبْنُ ٱللَّهِ](https://quranwbw.com/9/30)
 * __Surah 9/30 (Christians)__: [وَقَالَتِ ٱلنَّصَـٰرَى ٱلْمَسِيحُ ٱبْنُ ٱللَّهِ ۖ](https://quranwbw.com/9/30)
 * __Surah 21/26__: [وَقَالُوا۟ ٱتَّخَذَ ٱلرَّحْمَـٰنُ وَلَدًۭا ۗ](https://quran.com/21/26)
+* __Surah Al-Kahf 18/4__: [وَيُنذِرَ ٱلَّذِينَ قَالُوا۟ ٱتَّخَذَ ٱللَّهُ وَلَدًۭا](https://quran.com/18/4)
 
 #### Miricles
 * Radd al-Shams

@@ -1,4 +1,5 @@
 #### [Makkah](https://www.youtube.com/shorts/GN64KFFSyTs)
+#### [Roza-e-Rasool](https://www.youtube.com/shorts/_eNmQhaLMsA)
 
 ***
 
@@ -39,8 +40,6 @@
 ***
 
 * __Surah Al-Imran 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)
-
-* https://www.youtube.com/shorts/_eNmQhaLMsA
 
 ***
 

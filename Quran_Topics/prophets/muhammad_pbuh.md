@@ -126,7 +126,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 ***
 
 #### [Shan-e-Risalat (SAW) | Allama Talib Jauhari](https://www.youtube.com/watch?v=JGeKW928Lyg)
-* __Surah__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ](https://quranwbw.com/18/110)
+* __Surah Al-Kahf 18/110__: [قُلْ إِنَّمَآ أَنَا۠ بَشَرٌۭ مِّثْلُكُمْ](https://quranwbw.com/18/110)
    * Mayn tum-jaisa bashar-honn...yeah nahi kaha...tum bhi merey jaisay hoo
    * This ayat came to protect Tauheed...
 

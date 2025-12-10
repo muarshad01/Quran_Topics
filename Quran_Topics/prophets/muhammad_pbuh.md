@@ -140,7 +140,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * Radd al-Shams
 * Moon was split: [ٱقْتَرَبَتِ ٱلسَّاعَةُ وَٱنشَقَّ ٱلْقَمَرُ...وَإِن يَرَوْا۟ ءَايَةًۭ يُعْرِضُوا۟ وَيَقُولُوا۟ سِحْرٌۭ مُّسْتَمِرٌّۭ](https://quranwbw.com/54/1-2)
 * Stars came down: [وَٱلنَّجْمِ إِذَا هَوَىٰ](https://quranwbw.com/53/1)
-* Trees-and-Rocks greeting the Prophet Muhammad PBUH with "salam".
+* Trees-and-Rocks greeting the Prophet Muhammad PBUH with "salam". (https://quran.com/55/6)
 * Mountains...
 
 #### Hadith

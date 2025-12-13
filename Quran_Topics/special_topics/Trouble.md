@@ -1,3 +1,11 @@
+#### [Allah Ki Raah Main Chalne Se Konsi 4 Azmaishein Ati Hain? | SSA Shah](https://www.youtube.com/watch?v=PlAJ-Jis9Ig)
+1. Financial Crunch
+2. Wife Issues
+3. Respect goes away
+4. Targheebah aur Lalich
+
+***
+
 * __Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it.__ -- Prof. ARA
 * __Surah 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
 

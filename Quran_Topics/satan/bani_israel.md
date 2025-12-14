@@ -297,12 +297,12 @@
 ***
 
 #### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
-* https://quranwbw.com/20/85-98
+* [](https://quranwbw.com/20/85-98)
 
 ***
 
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
-* https://quranwbw.com/2/50
+* [](https://quranwbw.com/2/50)
 
 ***
 

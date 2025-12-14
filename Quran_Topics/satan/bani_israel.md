@@ -232,26 +232,6 @@
 
 ***
 
-#### [Story of Bani Israel’s Cow | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
-
-***
-
-#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
-
-***
-
-#### [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
-
-***
-
-#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=117s)
-
-***
-
-#### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
-
-***
-
 #### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
 1. __When Moutain was lifted__ and then Allah brought it down, but they refused again. 
 2. __Sabath__ (Catching Fisth by Net)
@@ -268,20 +248,6 @@
 
 ***
 
-#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
-
-***
-
-#### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
-* https://quranwbw.com/20/85-98
-
-***
-
-#### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
-* https://quranwbw.com/2/50
-
-***
-
 #### [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
 * https://quranwbw.com/62/6
 * https://quranwbw.com/2/91
@@ -289,22 +255,9 @@
 
 ***
 
-#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon]()
-* 
-
-***
-
-#### [Yahudi Paighambaron Ko Qatal Kyun Karte? Asal Wajah Janiye 😢 |Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sk7v7wa1O9Q)
-
-***
-
 #### Muslims
 * You can't change a word in Quran
 * We have Imam of ALL Nabi
-
-***
-
-* [](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
 
 ***
 
@@ -327,5 +280,52 @@
 ***
 
 #### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa (23 min) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=118s)
+
+***
+
+* [](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
+
+***
+
+#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon]()
+* 
+
+***
+
+#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+
+***
+
+#### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
+* https://quranwbw.com/20/85-98
+
+***
+
+#### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
+* https://quranwbw.com/2/50
+
+***
+
+#### [Yahudi Paighambaron Ko Qatal Kyun Karte? Asal Wajah Janiye 😢 |Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sk7v7wa1O9Q)
+
+***
+
+#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+
+***
+
+#### [Bani Israel Se Allah Kyun Naraz Hua? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1HoH8_E1jKs)
+
+***
+
+#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=117s)
+
+***
+
+#### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
+
+***
+
+#### [Story of Bani Israel’s Cow | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
 
 ***

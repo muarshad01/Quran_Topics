@@ -46,7 +46,7 @@
 * __THREE categories of Satans__
 * __Surah Al-Anbya 21/82__: [وَمِنَ ٱلشَّيَـٰطِينِ مَن يَغُوصُونَ لَهُۥ وَيَعْمَلُونَ عَمَلًۭا دُونَ ذَٰلِكَ ۖ وَكُنَّا لَهُمْ حَـٰفِظِينَ](https://quran.com/21/82)
 * __Surah Saad 38/37 (Satans: Builders and Divers)__: [وَٱلشَّيَـٰطِينَ كُلَّ بَنَّآءٍۢ وَغَوَّاصٍۢ](https://quran.com/38/37)
-* __Surah Saad 38/38 (Satans: Bound together in chains)__: [وَءَاخَرِينَ مُقَرَّنِينَ فِى ٱلْأَصْفَادِ](https://quran.com/38/37)
+* __Surah Saad 38/38 (Satans: Bound together in chains)__: [وَءَاخَرِينَ مُقَرَّنِينَ فِى ٱلْأَصْفَادِ](https://quran.com/38/38)
 
 * __Surah Saad 38/34 (Trial:...وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ...جَسَدًۭا)__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا ثُمَّ أَنَابَ](https://quran.com/38/34)
 * __Jasad (Jism without Rooh)__: Rooh aur Ahsaan say aari...

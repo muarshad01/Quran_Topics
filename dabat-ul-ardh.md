@@ -49,10 +49,10 @@
 * __Surah Saad 38/38 (Satans: Bound together in chains)__: [وَءَاخَرِينَ مُقَرَّنِينَ فِى ٱلْأَصْفَادِ](https://quran.com/38/38)
 
 * __Surah Saad 38/34 (Trial:...وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ...جَسَدًۭا)__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا ثُمَّ أَنَابَ](https://quran.com/38/34)
-* __Jasad (Jism without Rooh)__: Rooh aur Ahsaan say aari...
-* Insaan
-* Jinn
-* Satan
-* Animal
+1. __Jasad (Jism without Rooh)__: Rooh aur Ahsaan say aari...
+2. Insaan
+3. Jinn
+4. Satan
+5. Animal
 
 ***

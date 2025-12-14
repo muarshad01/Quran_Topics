@@ -314,10 +314,6 @@
 
 ***
 
-#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=117s)
-
-***
-
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 * __Surah Al-Baqarah 2/55__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ](https://quranwbw.com/2/55-56)
 * __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quranwbw.com/2/55-56)
@@ -339,6 +335,10 @@
 * __Surah Al-Baqarah 2/72__: [وَإِذْ قَتَلْتُمْ نَفْسًۭا فَٱدَّٰرَْٰٔتُمْ فِيهَا ۖ وَٱللَّهُ مُخْرِجٌۭ مَّا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/72)
 
 * __Surah Al-Baqarah 2/73__: [فَقُلْنَا ٱضْرِبُوهُ بِبَعْضِهَا ۚ كَذَٰلِكَ يُحْىِ ٱللَّهُ ٱلْمَوْتَىٰ وَيُرِيكُمْ ءَايَـٰتِهِۦ لَعَلَّكُمْ تَعْقِلُونَ](https://quran.com/2/73)
+
+***
+
+#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=117s)
 
 ***
 

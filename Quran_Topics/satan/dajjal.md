@@ -1,3 +1,7 @@
+#### [When Dajjal was creating Israel, God was making Pakistan | Prof ARA](https://www.youtube.com/watch?v=y9BIMU2vwno)
+
+***
+
 #### [The Jews began preparations to welcome their Messiah](https://www.youtube.com/watch?v=49Pj92awx88)
 
 ***
@@ -11,10 +15,6 @@
 ***
 
 #### [Dajjal myth or reality! How will we know Imam Mahdi | Sahil Adeem](https://www.youtube.com/watch?v=wL_0peOcGag)
-
-***
-
-#### [When dajjal was creating Israel, God was making Pakistan | Prof ARA](https://www.youtube.com/watch?v=y9BIMU2vwno)
 
 ***
 

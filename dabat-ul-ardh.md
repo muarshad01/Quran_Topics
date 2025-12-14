@@ -1,6 +1,20 @@
 #### [The Mystery of Prophet Sulaiman’s (AS) Throne | Truth About Dabbat al-Ard | Dr Abdus Salam Analysis](https://www.youtube.com/watch?v=EH80V5TQxhg)
 
 * __Surah At-Tawbah 9/36__: [إِنَّ عِدَّةَ ٱلشُّهُورِ عِندَ ٱللَّهِ ٱثْنَا عَشَرَ شَهْرًۭا فِى كِتَـٰبِ ٱللَّهِ يَوْمَ خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ مِنْهَآ أَرْبَعَةٌ حُرُمٌۭ ۚ ذَٰلِكَ ٱلدِّينُ ٱلْقَيِّمُ ۚ فَلَا تَظْلِمُوا۟ فِيهِنَّ أَنفُسَكُمْ ۚ وَقَـٰتِلُوا۟ ٱلْمُشْرِكِينَ كَآفَّةًۭ كَمَا يُقَـٰتِلُونَكُمْ كَآفَّةًۭ ۚ وَٱعْلَمُوٓا۟ أَنَّ ٱللَّهَ مَعَ ٱلْمُتَّقِينَ](https://quran.com/9/36)
+* Total 12 months 
+* 04 months - (1-Muharran, 7- Rajab (Allah SWT Month) 11-Dhu al-Qidah, 12-Dhu al-Hijjah)
+1. Muharram,
+2. Safar,
+3. Rabi' al-Awwal,
+4. Rabi' al-Thani,
+5. Jumada al-Awwal,
+6. Jumada al-Thani,
+7. Rajab (Allah SWT Month)
+8. Sha'ban (My Month)
+9. Ramadan (Ummat Month)
+10. Shawwal,
+11 Dhu al-Qidah,
+12. Dhu al-Hijjah
 * __Surah At-Tawbah 9/37__: [إِنَّمَا ٱلنَّسِىٓءُ زِيَادَةٌۭ فِى ٱلْكُفْرِ ۖ يُضَلُّ بِهِ ٱلَّذِينَ كَفَرُوا۟ يُحِلُّونَهُۥ عَامًۭا وَيُحَرِّمُونَهُۥ عَامًۭا لِّيُوَاطِـُٔوا۟ عِدَّةَ مَا حَرَّمَ ٱللَّهُ فَيُحِلُّوا۟ مَا حَرَّمَ ٱللَّهُ ۚ زُيِّنَ لَهُمْ سُوٓءُ أَعْمَـٰلِهِمْ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلْكَـٰفِرِينَ](https://quran.com/9/37)
 
 ***

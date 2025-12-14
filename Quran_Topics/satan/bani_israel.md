@@ -1,4 +1,4 @@
-# [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
+## [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
 1. Ibrahim (Abraham) -- Ishaq (Issac) -- Yaqoob (Jacob) [Israel]-- Yusuf (Joseph)
 2. Musa (Moses) / Haroon (Aaron) AS -to- Issa AS = 1,400 years

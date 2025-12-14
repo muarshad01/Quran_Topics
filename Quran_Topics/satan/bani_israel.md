@@ -319,9 +319,9 @@
 ***
 
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
-* __Surah Al-Baqarah 2/55-56 (We want to see Allah SWT)__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ...ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quranwbw.com/2/55-56)
-* 70 peopel who saw Allah SWT and died?
-* 1,000's mentioned in another Ayat?
+* __Surah Al-Baqarah 2/55__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ](https://quranwbw.com/2/55-56)
+* __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quranwbw.com/2/55-56)
+* Who are 1,000's mentioned in another Ayat???
 
 ***
 

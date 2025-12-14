@@ -325,10 +325,11 @@
 
 ***
 
-#### [124,000 - 10 Prophets | Mufti Muneer Akhoon](https://www.youtube.com/shorts/tx68G3v2gE0)
+#### [Bani Israel Aur Gaaye Ka Waqia 🐄 | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
+* __Surah 2/67__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦٓ إِنَّ ٱللَّهَ يَأْمُرُكُمْ أَن تَذْبَحُوا۟ بَقَرَةًۭ ۖ قَالُوٓا۟ أَتَتَّخِذُنَا هُزُوًۭا ۖ قَالَ أَعُوذُ بِٱللَّهِ أَنْ أَكُونَ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/2/67)
 
 ***
 
-#### [Story of Bani Israel’s Cow | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
+#### [124,000 - 10 Prophets | Mufti Muneer Akhoon](https://www.youtube.com/shorts/tx68G3v2gE0)
 
 ***

@@ -43,3 +43,5 @@
 #### [Dajjal ki hukmarani Hazrat Salman (RA) Jaisi hogi? Dajjal khud ko kaise manwaye ga](https://www.youtube.com/watch?v=l1OHVJEwowk)
 
 ***
+
+#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)

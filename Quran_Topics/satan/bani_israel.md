@@ -283,11 +283,12 @@
 
 ***
 
-* [](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
+#### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
 
 ***
 
-#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon]()
+
+#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
 * 
 
 ***
@@ -310,7 +311,7 @@
 
 ***
 
-#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them. | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=rxeQd9gH77o)
 
 ***
 
@@ -322,7 +323,7 @@
 
 ***
 
-#### [124,000 - 10 Prophets](https://www.youtube.com/shorts/tx68G3v2gE0)
+#### [124,000 - 10 Prophets | Mufti Muneer Akhoon](https://www.youtube.com/shorts/tx68G3v2gE0)
 
 ***
 

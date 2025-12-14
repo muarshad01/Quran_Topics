@@ -249,9 +249,9 @@
 ***
 
 #### [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
-* https://quranwbw.com/62/6
-* https://quranwbw.com/2/91
-* 600,000 people of Bani Israel left with prophet Moses
+* __Surah 2/91__: [](https://quranwbw.com/2/91)
+* __Surah 62/6__: [](https://quranwbw.com/62/6)
+* 600,000 (600k) people of Bani Israel left with prophet Moses
 
 ***
 
@@ -280,30 +280,32 @@
 ***
 
 #### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa (23 min) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=118s)
+* __Surah__: []()
 
 ***
 
 #### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
+* __Surah__: []()
 
 ***
 
-
 #### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
-* 
+* __Surah__: []()
 
 ***
 
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
-
+* __Surah__: []()
+  
 ***
 
 #### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
-* [](https://quranwbw.com/20/85-98)
+* __Surah__: [](https://quranwbw.com/20/85-98)
 
 ***
 
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
-* [](https://quranwbw.com/2/50)
+* __Surah__: [](https://quranwbw.com/2/50)
 
 ***
 

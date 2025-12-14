@@ -313,3 +313,9 @@
 ***
 
 #### [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
+
+***
+
+#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa (23 min) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=118s)
+
+***

@@ -35,3 +35,9 @@
 ***
 
 #### [Dajjali System](https://www.youtube.com/shorts/59RooC99hBM)
+
+***
+
+#### [Dajjal ki hukmarani Hazrat Salman (RA) Jaisi hogi? Dajjal khud ko kaise manwaye ga](https://www.youtube.com/watch?v=l1OHVJEwowk)
+
+***

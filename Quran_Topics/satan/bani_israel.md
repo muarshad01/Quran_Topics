@@ -51,7 +51,7 @@
 
 * __2/64__: [Yet you turned away afterwards. Had it not been for Allah’s grace and mercy upon you, you would have certainly been of the losers.](https://quranwbw.com/2/64) 
 
-* __2/65 (Sabath ...Apes Despised)__: [You are already aware of those of you who broke the Sabbath. We said to them, “Be disgraced apes!”1](https://quranwbw.com/2/65)
+* __Surah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
 
 * __2/66 (Admonision for those who fear Allah)__: [So We made their fate an example to present and future generations, and a lesson to the God-fearing.](https://quranwbw.com/2/66) 
 
@@ -277,10 +277,6 @@
 
 ***
 
-#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
-
-***
-
 #### [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
 
 ***
@@ -289,13 +285,6 @@
 * __Surah__: []()
 
 ***
-
-#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
-* __Surah__: []()
-
-***
-
-
 
 #### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
 * __Surah__: [](https://quranwbw.com/20/85-98)
@@ -332,6 +321,11 @@
 3. 2 Ahad shikni
 4. 2 groups
 5. Their attitude with Prophet PBUH
+
+***
+
+#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
+* __Surah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
 
 ***
 

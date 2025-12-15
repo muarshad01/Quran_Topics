@@ -341,7 +341,7 @@
 ## Surah Taha
 
 #### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
-* __Surah__: [](https://quranwbw.com/20/85-98)
+* __Surah Taha 20/85-98__: [20/85-98](https://quran.com/20/85-98)
 
 ***
 

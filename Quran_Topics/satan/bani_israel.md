@@ -332,6 +332,11 @@
 
 ***
 
+#### [Samiri, Jibreel, and modern Technology | Sahil Adeem](https://www.youtube.com/watch?v=7BEahcfFTyo)
+* TODO
+  
+***
+
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
 * __Surah Al-Baqarah 2/49__: [وَإِذْ نَجَّيْنَـٰكُم مِّنْ ءَالِ فِرْعَوْنَ يَسُومُونَكُمْ سُوٓءَ ٱلْعَذَابِ يُذَبِّحُونَ أَبْنَآءَكُمْ وَيَسْتَحْيُونَ نِسَآءَكُمْ ۚ وَفِى ذَٰلِكُم بَلَآءٌۭ مِّن رَّبِّكُمْ عَظِيمٌۭ](https://quran.com/2/49)
 * __Surah Al-Baqarah 2/50__: [وَإِذْ فَرَقْنَا بِكُمُ ٱلْبَحْرَ فَأَنجَيْنَـٰكُمْ وَأَغْرَقْنَآ ءَالَ فِرْعَوْنَ وَأَنتُمْ تَنظُرُونَ](https://quran.com/2/50)

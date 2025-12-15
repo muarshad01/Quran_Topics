@@ -214,25 +214,25 @@
 
 ## Ad-Dukhaan (The Smoke)
 
-* __44/32__:[And indeed, We chose the Israelites knowingly above the others.](https://quranwbw.com/44/32)
+* __Surah Ad-Dukhaan 44/32__:[وَلَقَدِ ٱخْتَرْنَـٰهُمْ عَلَىٰ عِلْمٍ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/44/32)
 
-* __44/33__: [And We showed them signs in which there was a clear test.](https://quranwbw.com/44/33) 
+* __Surah Ad-Dukhaan 44/33__: [وَءَاتَيْنَـٰهُم مِّنَ ٱلْـَٔايَـٰتِ مَا فِيهِ بَلَـٰٓؤٌۭا۟ مُّبِينٌ](https://quran.com/44/33) 
 
-* __44/34__: [Indeed, these ˹Meccans˺ say,](https://quranwbw.com/44/34)
+* __Surah Ad-Dukhaan 44/34__: [إِنَّ هَـٰٓؤُلَآءِ لَيَقُولُونَ](https://quran.com/44/34)
 
-* __44/35__: [“There is nothing beyond our first death, and we will never be resurrected.](https://quranwbw.com/44/35)
+* __Surah Ad-Dukhaan 44/35 (وَمَا نَحْنُ بِمُنشَرِينَ)__: [إِنْ هِىَ إِلَّا مَوْتَتُنَا ٱلْأُولَىٰ وَمَا نَحْنُ بِمُنشَرِينَ](https://quran.com/44/35)
 
-* __44/36__: [Bring ˹back˺ our forefathers, if what you say is true.”](https://quranwbw.com/44/36)
+* __Surah Ad-Dukhaan 44/36__: [فَأْتُوا۟ بِـَٔابَآئِنَآ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/44/36)
 
-* __44/37__: [Are they superior to the people of Tubba’1 and those before them? We destroyed them ˹all˺, ˹for˺ they were truly wicked.](https://quranwbw.com/44/37) 
+* __Surah Ad-Dukhaan 44/37__: [أَهُمْ خَيْرٌ أَمْ قَوْمُ تُبَّعٍۢ وَٱلَّذِينَ مِن قَبْلِهِمْ ۚ أَهْلَكْنَـٰهُمْ ۖ إِنَّهُمْ كَانُوا۟ مُجْرِمِينَ](https://quran.com/44/37) 
 
 ***
 
-### 45. Al Jaathiya (Crouching)
+### 45. Al-Jaathiya (Crouching)
 
-* __45/16__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16) 
+* __Surah Al-Jaathiya 45/16 (إِسْرَٰٓءِيلَ ٱلْكِتَـٰبَ وَٱلْحُكْمَ وَٱلنُّبُوَّةَ...وَفَضَّلْنَـٰهُمْ عَلَى ٱلْعَـٰلَمِينَ)__: [وَلَقَدْ ءَاتَيْنَا بَنِىٓ إِسْرَٰٓءِيلَ ٱلْكِتَـٰبَ وَٱلْحُكْمَ وَٱلنُّبُوَّةَ وَرَزَقْنَـٰهُم مِّنَ ٱلطَّيِّبَـٰتِ وَفَضَّلْنَـٰهُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/45/16) 
 
-* __45/17__: [We ˹also˺ gave them clear commandments regarding ˹their˺ faith. But it was not until knowledge came to them that they differed out of mutual envy. Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quran.com/45/17)
+* __Surah Al-Jaathiya 45/17 (وَءَاتَيْنَـٰهُم بَيِّنَـٰتٍۢ مِّنَ ٱلْأَمْرِ ۖ)__: [وَءَاتَيْنَـٰهُم بَيِّنَـٰتٍۢ مِّنَ ٱلْأَمْرِ ۖ فَمَا ٱخْتَلَفُوٓا۟ إِلَّا مِنۢ بَعْدِ مَا جَآءَهُمُ ٱلْعِلْمُ بَغْيًۢا بَيْنَهُمْ ۚ إِنَّ رَبَّكَ يَقْضِى بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/45/17)
 
 ***
 

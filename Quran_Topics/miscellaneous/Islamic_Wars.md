@@ -20,7 +20,8 @@
 
 #### Jang-e-Ahud [625 CE (3 AH)]
 * [Battle of Ohad in detail | Allama Talib Johri](https://www.youtube.com/watch?v=FEYMWsLUzDc)
-* Ghazwa e Uhud, also known as the Battle of Uhud, was a significant military encounter in Islamic history, fought between the Muslims of Medina and the Meccan Quraysh in 625 CE (3 AH). It took place near Mount Uhud, north of Medina. The battle was a consequence of the Meccans' desire for revenge after their defeat at the Battle of Badr. 
+* Ghazwa e Uhud, also known as the Battle of Uhud, was a significant military encounter in Islamic history, fought between the Muslims of Medina and the Meccan Quraysh in 625 CE (3 AH). It took place near Mount Uhud, north of Medina. The battle was a consequence of the Meccans' desire for revenge after their defeat at the Battle of Badr.
+* [The Untold Story of Hazrat Abdullah Bin Haram | Sahil Adeem’s Powerful Explanation](https://www.youtube.com/watch?v=8dKDJ9NCRO8)
 
 #### Jang-e Hunayn [630 CE (8 AH)]
 * "Jang-e Hunayn," or the Battle of Hunayn, was a significant military engagement in Islamic history. It took place in 8 AH (around 630 CE) in the Hunayn valley, near Taif, after the conquest of Mecca. The battle was fought between the Muslim army led by the Prophet Muhammad and the Hawazin and Thaqif tribes. Despite an initial setback, the Muslims achieved a decisive victory. 

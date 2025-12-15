@@ -6,6 +6,10 @@
 
 ***
 
+#### [How Giving Brings More Blessings | اللہ کے راستے میں دینا… رزق کیسے بڑھتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=RLZ540wkKwA)
+
+***
+
 #### [What matters more: Hard work or Tawakkul? | SSA Shah](https://www.youtube.com/shorts/alc9APZdNjQ)
 
 ***

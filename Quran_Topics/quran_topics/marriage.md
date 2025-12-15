@@ -11,3 +11,5 @@
 
 
 * __Surah An-Naba 78/8__: [وَخَلَقْنَـٰكُمْ أَزْوَٰجًۭا](https://quran.com/78/8)
+
+https://www.youtube.com/shorts/_-X7AOLkTdw

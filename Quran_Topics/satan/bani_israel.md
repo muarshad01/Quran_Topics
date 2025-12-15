@@ -236,10 +236,9 @@
 
 ***
 
-#### [You fulfill you promise, I'll fulfill mine promise](https://www.youtube.com/shorts/3gFCKjh8FCE)
-* __2/40 (Fulfill My Covenant)__: [O children of Israel! Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
-* __Surah Al-Qasas 28/54 (Double Reward)__: [These ˹believers˺ will be given a double reward for their perseverance, responding to evil with good, and for donating from what We have provided for them.](https://quranwbw.com/28/54)
-* When Prophet PBUH will come, accept Him. I'll give you double reward!
+#### Muslims
+* You can't change a word in Quran
+* We have Imam of ALL Nabi
 
 ***
 
@@ -259,13 +258,10 @@
 
 ***
 
-#### Muslims
-* You can't change a word in Quran
-* We have Imam of ALL Nabi
-
-***
-
-#### [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
+#### [You fulfill you promise, I'll fulfill mine promise | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/3gFCKjh8FCE)
+* __Surah Al-Baqarah 2/40 (وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
+  * When Prophet PBUH will come, accept Him. I'll give you double reward!
+* __Surah Al-Qasas 28/54 (أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ)__: [أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ بِمَا صَبَرُوا۟ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/28/54)
 
 ***
 
@@ -294,6 +290,11 @@
 3. 2 Ahad shikni
 4. 2 groups
 5. Their attitude with Prophet PBUH
+
+***
+
+#### [Ek Bachray Ko Lekar 70-Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
+* __Surah Al-Baqarah2/63 (وَإِذْ أَخَذْنَا مِيثَـٰقَكُمْ وَرَفَعْنَا فَوْقَكُمُ ٱلطُّورَ)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَكُمْ وَرَفَعْنَا فَوْقَكُمُ ٱلطُّورَ خُذُوا۟ مَآ ءَاتَيْنَـٰكُم بِقُوَّةٍۢ وَٱذْكُرُوا۟ مَا فِيهِ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/63)
 
 ***
 

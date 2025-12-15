@@ -8,38 +8,6 @@
 
 ***
 
-#### [Shaitan vs Imam Razi R.A | 99 Dalilany | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ygzOwDjEqV0)
-
-***
-
-#### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
-
-***
-
-#### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
-
-***
-
-#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
-
-***
-
-#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
-
-***
-
-#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
-
-***
-
-#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
-
-***
-
-#### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
-
-***
-
 * __Surah Al-Baqarah 2/14__: [When they meet the believers they say, “We believe.” But when alone with their evil associates they say, “We are definitely with you; we were only mocking.”](https://quranwbw.com/2/14)
 * __Surah Al-Baqarah 2/34__: [And ˹remember˺ when We said to the angels, “Prostrate before Adam,”1 so they all did—but not Iblîs,2 who refused and acted arrogantly,3 becoming unfaithful.](https://quranwbw.com/2/34)
 * __Surah Al-Baqarah 2/36__: [But Satan deceived them—leading to their fall from the ˹blissful˺ state they were in,1 and We said, “Descend from the heavens ˹to the earth˺ as enemies to each other.2 You will find in the earth a residence and provision for your appointed stay.”](https://quranwbw.com/2/36)
@@ -302,6 +270,40 @@
 ***
 
 #### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
+
+***
+
+
+
+#### [Shaitan vs Imam Razi R.A | 99 Dalilany | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ygzOwDjEqV0)
+
+***
+
+#### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
+
+***
+
+#### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
+
+***
+
+#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
+
+***
+
+#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
+
+***
+
+#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
+
+***
+
+#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
+
+***
+
+#### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
 
 ***
 

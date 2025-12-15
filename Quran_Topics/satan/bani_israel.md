@@ -1,4 +1,5 @@
 #### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
+* Israel = Isra (Aseer; Slave) + el (Allah in Abrani) = In Arabic Abdullah
 * Suryani (or Syriac) refers to an Eastern Aramaic language
 * Israeil (إسرائيل) is same as Abdullah ( عَبْدُ اللّٰه) and is name of Hazrat Yaqub (Jacob) AS
 * Yaqub (Jacob) is from Aqub, which means that comes later. They were Twin brothers and Yaqub was born afterwards

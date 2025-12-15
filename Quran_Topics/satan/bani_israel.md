@@ -4,6 +4,11 @@
 
 *** 
 
+#### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
+* __Surah__: []()
+
+***
+
 ## [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
 1. Ibrahim (Abraham) -- Ishaq (Issac) -- Yaqoob (Jacob) [Israel]-- Yusuf (Joseph)
@@ -268,11 +273,6 @@
 ***
 
 #### [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
-
-***
-
-#### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
-* __Surah__: []()
 
 ***
 

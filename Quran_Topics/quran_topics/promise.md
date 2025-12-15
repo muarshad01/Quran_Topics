@@ -81,3 +81,9 @@
 
 * Ulul Azam: 5 [أُو۟لُوا۟ ٱلْعَزْمِ](https://quran.com/46/35)
 
+***
+
+#### [You fulfill you promise, I'll fulfill mine promise | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/3gFCKjh8FCE)
+* __Surah Al-Baqarah 2/40 (وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
+  * When Prophet PBUH will come, accept Him. I'll give you double reward!
+* __Surah Al-Qasas 28/54 (أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ)__: [أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ بِمَا صَبَرُوا۟ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/28/54)

@@ -6,15 +6,15 @@
 ***
 
 ## [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
-
-1. Ibrahim (Abraham) -- Ishaq (Issac) -- Yaqoob (Jacob) [Israel]-- Yusuf (Joseph)
-2. Musa (Moses) / Haroon (Aaron) AS -to- Issa AS = 1,400 years
-3. [248] Talut (Saul) -- Dawood (David) AS -- Sulayman (Soloman) - about 100 years
-4. Issa AS -to- Muhammad PBUH = 500 years
+1. Ibrahim (Abraham)
+2. Ishaq (Issac)
+3. Yaqoob (Jacob) [Israel]
+4. Yusuf (Joseph)
+* Musa (Moses) / Haroon (Aaron) to Issa (Jesue) = 1,400 years
+* [Ayat 248] Talut (Saul) -- Dawood (David) AS -- Sulayman (Soloman) - about 100 years
+* Issa (Jesus) to Muhammad PBUH = 500 years
 
 ***
-
-## Al-Baqarah
 
 * __Surah Al-Baqarah 2/40 (Fulfill My Covenant)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
 

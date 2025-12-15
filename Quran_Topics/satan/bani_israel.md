@@ -118,11 +118,9 @@
 
 ***
 
-## Surah Aal-i-Imran
+* __Surah Ale-Imran 3/93 (They made food unlawful to them)__: [۞ كُلُّ ٱلطَّعَامِ كَانَ حِلًّۭا لِّبَنِىٓ إِسْرَٰٓءِيلَ إِلَّا مَا حَرَّمَ إِسْرَٰٓءِيلُ عَلَىٰ نَفْسِهِۦ مِن قَبْلِ أَن تُنَزَّلَ ٱلتَّوْرَىٰةُ ۗ قُلْ فَأْتُوا۟ بِٱلتَّوْرَىٰةِ فَٱتْلُوهَآ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/3/93)
 
-* __3/93 (They made food unlawful to them)__: [All food was lawful for the children of Israel, except what Israel made unlawful for himself before the Torah was revealed. Say, ˹O Prophet,˺ “Bring the Torah and read it, if your claims are true.”](https://quranwbw.com/3/93)
-
-* __3/94__: [Then whoever still fabricates lies about Allah, they will be the ˹true˺ wrongdoers.](https://quranwbw.com/3/94)
+* __Surah Ale-Imran 3/94__: [فَمَنِ ٱفْتَرَىٰ عَلَى ٱللَّهِ ٱلْكَذِبَ مِنۢ بَعْدِ ذَٰلِكَ فَأُو۟لَـٰٓئِكَ هُمُ ٱلظَّـٰلِمُونَ](https://quran.com/3/94)
 
 ***
 

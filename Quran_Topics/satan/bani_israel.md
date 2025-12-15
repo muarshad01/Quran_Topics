@@ -1,3 +1,8 @@
+* Suryani (or Syriac) refers to an Eastern Aramaic language
+* Israeil (إسرائيل) is same as Abdullah ( عَبْدُ اللّٰه) and is name of Hazrat Yaqub (Jacob) AS
+* Yaqub (Jacob) is from Aqub, which means that comes later. They were Twin brothers and Yaqub was born afterwards
+
+*** 
 
 ## [Bani Israel](https://al-islam.org/alphabetical-index-holy-quran/bani-israel)
 
@@ -319,8 +324,14 @@
 #### [Yahudi Paighambaron Ko Qatal Kyun Karte? Asal Wajah Janiye 😢 |Mufti Muneer Akhoon](https://www.youtube.com/watch?v=sk7v7wa1O9Q)
 * __Surah Al-Baqarah 2/61 (وَيَقْتُلُونَ ٱلنَّبِيِّـۧنَ بِغَيْرِ ٱلْحَقِّ ۗ)__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نَّصْبِرَ عَلَىٰ طَعَامٍۢ وَٰحِدٍۢ فَٱدْعُ لَنَا رَبَّكَ يُخْرِجْ لَنَا مِمَّا تُنۢبِتُ ٱلْأَرْضُ مِنۢ بَقْلِهَا وَقِثَّآئِهَا وَفُومِهَا وَعَدَسِهَا وَبَصَلِهَا ۖ قَالَ أَتَسْتَبْدِلُونَ ٱلَّذِى هُوَ أَدْنَىٰ بِٱلَّذِى هُوَ خَيْرٌ ۚ ٱهْبِطُوا۟ مِصْرًۭا فَإِنَّ لَكُم مَّا سَأَلْتُمْ ۗ وَضُرِبَتْ عَلَيْهِمُ ٱلذِّلَّةُ وَٱلْمَسْكَنَةُ وَبَآءُو بِغَضَبٍۢ مِّنَ ٱللَّهِ ۗ ذَٰلِكَ بِأَنَّهُمْ كَانُوا۟ يَكْفُرُونَ بِـَٔايَـٰتِ ٱللَّهِ وَيَقْتُلُونَ ٱلنَّبِيِّـۧنَ بِغَيْرِ ٱلْحَقِّ ۗ ذَٰلِكَ بِمَا عَصَوا۟ وَّكَانُوا۟ يَعْتَدُونَ](https://quranwbw.com/2/61)
 * Suryani (or Syriac) refers to an Eastern Aramaic language
-* Israeil (إسرائيل) is same as Abdullah ( عَبْدُ اللّٰه) and name of Hazrat Yaqub (Jacob) AS
+* Israeil (إسرائيل) is same as Abdullah ( عَبْدُ اللّٰه) and is name of Hazrat Yaqub (Jacob) AS
 * Yaqub (Jacob) is from Aqub, which means that comes later. They were Twin brothers and Yaqub was born afterwards
+* __5 States__:
+1. 5 Inaam and 2 Punishments
+2. 3 Khabastain
+3. 2 Ahad shikni
+4. 2 groups
+5. Their attitude with Prophet PBUH
 
 ***
 
@@ -342,5 +353,11 @@
 ***
 
 #### [124,000 - 10 Prophets | Mufti Muneer Akhoon](https://www.youtube.com/shorts/tx68G3v2gE0)
+* Adam AS
+* Shees
+* Idris
+* Shoaib AS
+* Ayub AS
+* Muhammad AS
 
 ***

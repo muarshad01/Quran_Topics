@@ -184,3 +184,15 @@
 #### [Man's two biggest Mistakes | Prof ARA](https://www.youtube.com/watch?v=4OyeTQe9HCg)
 
 ***
+
+#### [The Spiritual Reason Behind Mood Changes | انسانی مزاج کی تبدیلی کی روحانی وجہ](https://www.youtube.com/watch?v=HVwA0eNJqUo)
+1. Fire (Anger - Ghusay ki shidat)
+2. Water (Narmi aur Shaistagi)
+3. Air (Taazi - hawa mayn talwarayn chalata phiray gaa)
+4. Soil (Himility / Aajzi aur Inkisaar)
+
+* Hearts were created 7,000 years before Insani Putla
+* Rooh were created 7,000 years before Insani Heart
+* Rooh -> Heart -> Insaan
+
+**** 

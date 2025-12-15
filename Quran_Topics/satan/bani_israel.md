@@ -267,16 +267,6 @@
 
 ***
 
-#### [Aakhir Samri Jadoogar Ka Bachhra Kaise Zinda Ho Gaya? | Mufti Muneer Ahmad](https://www.youtube.com/watch?v=-Vo4OqpmYg8)
-* Samri Jadugar name was also Musa
-* __Musa Samri__ was brought up through Angel Jibreel
-* Zindagi is like a __white Female-horse__
-* Death is like a Sheep
-* Maut-ko-bhi maut aa jai-ghee
-* Samri was a gold-smith
-
-***
-
 #### [Ek Bachray Ko Lekar 70 Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
 
 ***
@@ -358,5 +348,15 @@
 
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
 * __Surah__: [](https://quranwbw.com/2/50)
+
+***
+
+#### [Aakhir Samri Jadoogar Ka Bachhra Kaise Zinda Ho Gaya? | Mufti Muneer Ahmad](https://www.youtube.com/watch?v=-Vo4OqpmYg8)
+* Samri Jadugar name was also Musa
+* __Musa Samri__ was brought up through Angel Jibreel
+* Zindagi is like a __white Female-horse__
+* Death is like a Sheep
+* Maut-ko-bhi maut aa jai-ghee
+* Samri was a gold-smith
 
 ***

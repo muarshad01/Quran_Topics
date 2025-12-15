@@ -346,10 +346,11 @@
 ***
 
 #### [Aakhir Samri Jadoogar Ka Bachhra Kaise Zinda Ho Gaya? | Mufti Muneer Ahmad](https://www.youtube.com/watch?v=-Vo4OqpmYg8)
-* Samri Jadugar name was also Musa
-* __Musa Samri__ was brought up through Angel Jibreel
+* __Musa ibn Imran__
+* __Musa Samri__ Jadugar name was also Musa
+* __Musa Samri__ was brought up by Angel Jibreel
 * Zindagi is like a __white Female-horse__
-* Death is like a Sheep
+* Death is like a __Sheep__
 * Maut-ko-bhi maut aa jai-ghee
 * Samri was a gold-smith
 

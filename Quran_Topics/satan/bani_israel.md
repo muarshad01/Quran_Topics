@@ -126,16 +126,13 @@
 
 ***
 
-## Surah An-Nisaa
+* __Surah An-Nisa 4/153 (Bring us in Writing from Allah SWT)__: [يَسْـَٔلُكَ أَهْلُ ٱلْكِتَـٰبِ أَن تُنَزِّلَ عَلَيْهِمْ كِتَـٰبًۭا مِّنَ ٱلسَّمَآءِ ۚ فَقَدْ سَأَلُوا۟ مُوسَىٰٓ أَكْبَرَ مِن ذَٰلِكَ فَقَالُوٓا۟ أَرِنَا ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْهُمُ ٱلصَّـٰعِقَةُ بِظُلْمِهِمْ ۚ ثُمَّ ٱتَّخَذُوا۟ ٱلْعِجْلَ مِنۢ بَعْدِ مَا جَآءَتْهُمُ ٱلْبَيِّنَـٰتُ فَعَفَوْنَا عَن ذَٰلِكَ ۚ وَءَاتَيْنَا مُوسَىٰ سُلْطَـٰنًۭا مُّبِينًۭا](https://quran.com/4/153)
 
-### Wanted to See Allah SWT
-* __4/153 (Bring us in Writing from Allah SWT)__: [The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.](https://quranwbw.com/4/153)
+* __Surah An-Nisa 4/154 (Raised Mountain)__: [وَرَفَعْنَا فَوْقَهُمُ ٱلطُّورَ بِمِيثَـٰقِهِمْ وَقُلْنَا لَهُمُ ٱدْخُلُوا۟ ٱلْبَابَ سُجَّدًۭا وَقُلْنَا لَهُمْ لَا تَعْدُوا۟ فِى ٱلسَّبْتِ وَأَخَذْنَا مِنْهُم مِّيثَـٰقًا غَلِيظًۭا](https://quran.com/4/154)
 
-* __4/154 (Raised Mountain )__: [We raised the Mount over them ˹as a warning˺ for ˹breaking˺ their covenant and said, “Enter the gate ˹of Jerusalem˺ with humility.” We also warned them, “Do not break the Sabbath,” and took from them a firm covenant.](https://quranwbw.com/4/153)
+* __Surah An-Nisa 4/155 (Kill the Prophets)__: [فَبِمَا نَقْضِهِم مِّيثَـٰقَهُمْ وَكُفْرِهِم بِـَٔايَـٰتِ ٱللَّهِ وَقَتْلِهِمُ ٱلْأَنۢبِيَآءَ بِغَيْرِ حَقٍّۢ وَقَوْلِهِمْ قُلُوبُنَا غُلْفٌۢ ۚ بَلْ طَبَعَ ٱللَّهُ عَلَيْهَا بِكُفْرِهِمْ فَلَا يُؤْمِنُونَ إِلَّا قَلِيلًۭا](https://quran.com/4/155)
 
-* __4/155 (Kill the Prophets)__: [˹They were condemned˺ for breaking their covenant, rejecting Allah’s signs, killing the prophets unjustly, and for saying, “Our hearts are unreceptive!”—it is Allah Who has sealed their hearts for their disbelief, so they do not believe except for a few—](https://quranwbw.com/4/154)
-
-* __4/156__: [and for their denial and outrageous accusation against Mary,](https://quranwbw.com/4/155)
+* __Surah An-Nisa 4/156__: [وَبِكُفْرِهِمْ وَقَوْلِهِمْ عَلَىٰ مَرْيَمَ بُهْتَـٰنًا عَظِيمًۭا](https://quran.com/4/156)
 
 ***
 

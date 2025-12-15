@@ -24,95 +24,92 @@
 
 * __Surah Al-Baqarah 2/44-46 (Preach Righteousness)__: [۞ أَتَأْمُرُونَ ٱلنَّاسَ بِٱلْبِرِّ وَتَنسَوْنَ أَنفُسَكُمْ وَأَنتُمْ تَتْلُونَ ٱلْكِتَـٰبَ ۚ أَفَلَا تَعْقِلُونَ...وَٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ وَإِنَّهَا لَكَبِيرَةٌ إِلَّا عَلَى ٱلْخَـٰشِعِينَ...ٱلَّذِينَ يَظُنُّونَ أَنَّهُم مُّلَـٰقُوا۟ رَبِّهِمْ وَأَنَّهُمْ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/44-46)
 
-* __2/47 (Remember My favours)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَنِّى فَضَّلْتُكُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/47) 
+* __Surah Al-Baqarah 2/47 (Remember My favours)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَنِّى فَضَّلْتُكُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/47) 
 
 ***
 
-* __2/49 (We delivered you from the people of Pharaoh)__: [˹Remember˺ how We delivered you from the people of Pharaoh, who afflicted you with dreadful torment, slaughtering your sons and keeping your women. That was a severe test from your Lord.](https://quranwbw.com/2/49) 
+* __Surah Al-Baqarah 2/49 (We delivered you from the people of Pharaoh)__: [وَإِذْ نَجَّيْنَـٰكُم مِّنْ ءَالِ فِرْعَوْنَ يَسُومُونَكُمْ سُوٓءَ ٱلْعَذَابِ يُذَبِّحُونَ أَبْنَآءَكُمْ وَيَسْتَحْيُونَ نِسَآءَكُمْ ۚ وَفِى ذَٰلِكُم بَلَآءٌۭ مِّن رَّبِّكُمْ عَظِيمٌۭ](https://quran.com/2/49) 
 
-* __2/50 (We parted the sea, rescued you)__: [And ˹remember˺ when We parted the sea, rescued you, and drowned Pharaoh’s people before your very eyes.](https://quranwbw.com/2/50) 
+* __Surah Al-Baqarah 2/50 (We parted the sea, rescued you)__: [وَإِذْ فَرَقْنَا بِكُمُ ٱلْبَحْرَ فَأَنجَيْنَـٰكُمْ وَأَغْرَقْنَآ ءَالَ فِرْعَوْنَ وَأَنتُمْ تَنظُرُونَ](https://quran.com/2/50) 
 
-* __2/51 (We appointed forty nights for Moses)__: [And ˹remember˺ when We appointed forty nights for Moses, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/51) 
+* __Surah Al-Baqarah 2/51 (We appointed 40-nights for Moses)__: [وَإِذْ وَٰعَدْنَا مُوسَىٰٓ أَرْبَعِينَ لَيْلَةًۭ ثُمَّ ٱتَّخَذْتُمُ ٱلْعِجْلَ مِنۢ بَعْدِهِۦ وَأَنتُمْ ظَـٰلِمُونَ](https://quran.com/2/51) 
 
-* __2/52__: [Even then We ˹still˺ forgave you so perhaps you would be grateful.](https://quranwbw.com/2/52) 
+* __Surah Al-Baqarah 2/52__: [ثُمَّ عَفَوْنَا عَنكُم مِّنۢ بَعْدِ ذَٰلِكَ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/2/52) 
 
 ***
 
-* __2/55-56 (We want to see Allah SWT)__: [Then We brought you back to life after your death, so that perhaps you would be grateful.](https://quranwbw.com/2/55-56)
-  * 70 peopel who saw Allah SWT and died?
-  * 1,000's mentioned in another Ayat? 
+* __Surah Al-Baqarah 2/55-56 (We want to see Allah SWT)__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ...ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/2/55-56)
   
-* __2/57 (Manna and Quails; Cloud made shade)__: [And ˹remember when˺ We shaded you with clouds and sent down to you manna and quails, ˹saying˺, “Eat from the good things We have provided for you.” The evildoers ˹certainly˺ did not wrong Us, but wronged themselves.](https://quranwbw.com/2/57)
+* __Surah Al-Baqarah 2/57 (Manna and Quails; Cloud made shade)__: [وَظَلَّلْنَا عَلَيْكُمُ ٱلْغَمَامَ وَأَنزَلْنَا عَلَيْكُمُ ٱلْمَنَّ وَٱلسَّلْوَىٰ ۖ كُلُوا۟ مِن طَيِّبَـٰتِ مَا رَزَقْنَـٰكُمْ ۖ وَمَا ظَلَمُونَا وَلَـٰكِن كَانُوٓا۟ أَنفُسَهُمْ يَظْلِمُونَ](https://quran.com/2/57)
 
-* __2/58 (Enter this city Humbly and saying Hittatun)__: [And ˹remember˺ when We said, “Enter this city and eat freely from wherever you please; enter the gate with humility, saying, ‘Absolve us.’ We will forgive your sins and multiply the reward for the good-doers.”](https://quranwbw.com/2/58) 
+* __Surah Al-Baqarah 2/58 (Enter this city Humbly and saying Hittatun)__: [وَإِذْ قُلْنَا ٱدْخُلُوا۟ هَـٰذِهِ ٱلْقَرْيَةَ فَكُلُوا۟ مِنْهَا حَيْثُ شِئْتُمْ رَغَدًۭا وَٱدْخُلُوا۟ ٱلْبَابَ سُجَّدًۭا وَقُولُوا۟ حِطَّةٌۭ نَّغْفِرْ لَكُمْ خَطَـٰيَـٰكُمْ ۚ وَسَنَزِيدُ ٱلْمُحْسِنِينَ](https://quran.com/2/58) 
 
-* __2/59 (The changed the Words)__: [But the wrongdoers changed the words they were commanded to say. So We sent down a punishment from the heavens upon them for their rebelliousness.](https://quranwbw.com/2/59) 
+* __Surah Al-Baqarah 2/59 (The changed the Words)__: [فَبَدَّلَ ٱلَّذِينَ ظَلَمُوا۟ قَوْلًا غَيْرَ ٱلَّذِى قِيلَ لَهُمْ فَأَنزَلْنَا عَلَى ٱلَّذِينَ ظَلَمُوا۟ رِجْزًۭا مِّنَ ٱلسَّمَآءِ بِمَا كَانُوا۟ يَفْسُقُونَ](https://quran.com/2/59) 
 
-* __2/60 (Twelve Springs)__:[And ˹remember˺ when Moses prayed for water for his people, We said, “Strike the rock with your staff.” Then twelve springs gushed out, ˹and˺ each tribe knew its drinking place. ˹We then said,˺ “Eat and drink of Allah’s provisions, and do not go about spreading corruption in the land.”](https://quranwbw.com/2/60)
+* __Surah Al-Baqarah 2/60 (Twelve Springs)__:[۞ وَإِذِ ٱسْتَسْقَىٰ مُوسَىٰ لِقَوْمِهِۦ فَقُلْنَا ٱضْرِب بِّعَصَاكَ ٱلْحَجَرَ ۖ فَٱنفَجَرَتْ مِنْهُ ٱثْنَتَا عَشْرَةَ عَيْنًۭا ۖ قَدْ عَلِمَ كُلُّ أُنَاسٍۢ مَّشْرَبَهُمْ ۖ كُلُوا۟ وَٱشْرَبُوا۟ مِن رِّزْقِ ٱللَّهِ وَلَا تَعْثَوْا۟ فِى ٱلْأَرْضِ مُفْسِدِينَ](https://quran.com/2/60)
 
-* __2/61 (More food Types...They invited the displeasure of Allah SWT)__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نَّصْبِرَ عَلَىٰ طَعَامٍۢ وَٰحِدٍۢ فَٱدْعُ لَنَا رَبَّكَ يُخْرِجْ لَنَا مِمَّا تُنۢبِتُ ٱلْأَرْضُ مِنۢ بَقْلِهَا وَقِثَّآئِهَا وَفُومِهَا وَعَدَسِهَا وَبَصَلِهَا ۖ قَالَ أَتَسْتَبْدِلُونَ ٱلَّذِى هُوَ أَدْنَىٰ بِٱلَّذِى هُوَ خَيْرٌ ۚ ٱهْبِطُوا۟ مِصْرًۭا فَإِنَّ لَكُم مَّا سَأَلْتُمْ ۗ وَضُرِبَتْ عَلَيْهِمُ ٱلذِّلَّةُ وَٱلْمَسْكَنَةُ وَبَآءُو بِغَضَبٍۢ مِّنَ ٱللَّهِ ۗ ذَٰلِكَ بِأَنَّهُمْ كَانُوا۟ يَكْفُرُونَ بِـَٔايَـٰتِ ٱللَّهِ وَيَقْتُلُونَ ٱلنَّبِيِّـۧنَ بِغَيْرِ ٱلْحَقِّ ۗ ذَٰلِكَ بِمَا عَصَوا۟ وَّكَانُوا۟ يَعْتَدُونَ](https://quranwbw.com/2/61)
+* __Surah Al-Baqarah 2/61 (More food Types...They invited the displeasure of Allah SWT)__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نَّصْبِرَ عَلَىٰ طَعَامٍۢ وَٰحِدٍۢ فَٱدْعُ لَنَا رَبَّكَ يُخْرِجْ لَنَا مِمَّا تُنۢبِتُ ٱلْأَرْضُ مِنۢ بَقْلِهَا وَقِثَّآئِهَا وَفُومِهَا وَعَدَسِهَا وَبَصَلِهَا ۖ قَالَ أَتَسْتَبْدِلُونَ ٱلَّذِى هُوَ أَدْنَىٰ بِٱلَّذِى هُوَ خَيْرٌ ۚ ٱهْبِطُوا۟ مِصْرًۭا فَإِنَّ لَكُم مَّا سَأَلْتُمْ ۗ وَضُرِبَتْ عَلَيْهِمُ ٱلذِّلَّةُ وَٱلْمَسْكَنَةُ وَبَآءُو بِغَضَبٍۢ مِّنَ ٱللَّهِ ۗ ذَٰلِكَ بِأَنَّهُمْ كَانُوا۟ يَكْفُرُونَ بِـَٔايَـٰتِ ٱللَّهِ وَيَقْتُلُونَ ٱلنَّبِيِّـۧنَ بِغَيْرِ ٱلْحَقِّ ۗ ذَٰلِكَ بِمَا عَصَوا۟ وَّكَانُوا۟ يَعْتَدُونَ](https://quranwbw.com/2/61)
 
-* __2/63 (Mountain Toor was Raised)__: [And ˹remember˺ when We took a covenant from you and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”](https://quranwbw.com/2/63)
+* __Surah Al-Baqarah 2/63 (Mountain Toor was Raised)__: [And ˹remember˺ when We took a covenant from you and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”](https://quranwbw.com/2/63)
 
-* __2/64__: [Yet you turned away afterwards. Had it not been for Allah’s grace and mercy upon you, you would have certainly been of the losers.](https://quranwbw.com/2/64) 
+* __Surah Al-Baqarah 2/64__: [Yet you turned away afterwards. Had it not been for Allah’s grace and mercy upon you, you would have certainly been of the losers.](https://quranwbw.com/2/64) 
 
-* __Surah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
+* __Surah Al-Baqarah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
 
-* __2/66 (Admonision for those who fear Allah)__: [So We made their fate an example to present and future generations, and a lesson to the God-fearing.](https://quranwbw.com/2/66) 
+* __Surah Al-Baqarah 2/66 (Admonision for those who fear Allah)__: [So We made their fate an example to present and future generations, and a lesson to the God-fearing.](https://quranwbw.com/2/66) 
 
 ***
 
 #### Cow
-* __2/67 (a'oozu billaahi an akoona minal jaahileen)__: [And ˹remember˺ when Moses said to his people, “Allah commands you to sacrifice a cow.”1 They replied, “Are you mocking us?” Moses responded, “I seek refuge in Allah from acting foolishly!”](https://quranwbw.com/2/67)
+* __Surah Al-Baqarah 2/67 (a'oozu billaahi an akoona minal jaahileen)__: [And ˹remember˺ when Moses said to his people, “Allah commands you to sacrifice a cow.”1 They replied, “Are you mocking us?” Moses responded, “I seek refuge in Allah from acting foolishly!”](https://quranwbw.com/2/67)
 
-* __2/68__: [They said, “Call upon your Lord to clarify for us what type ˹of cow˺ it should be!” He replied, “Allah says, ‘The cow should neither be old nor young but in between. So do as you are commanded!’”](https://quranwbw.com/2/68) 
+* __Surah Al-Baqarah 2/68__: [They said, “Call upon your Lord to clarify for us what type ˹of cow˺ it should be!” He replied, “Allah says, ‘The cow should neither be old nor young but in between. So do as you are commanded!’”](https://quranwbw.com/2/68) 
 
-* __2/69__: [They said, “Call upon your Lord to specify for us its colour.” He replied, “Allah says, ‘It should be a bright yellow cow—pleasant to see.’”](https://quranwbw.com/2/69) 
+* __Surah Al-Baqarah 2/69__: [They said, “Call upon your Lord to specify for us its colour.” He replied, “Allah says, ‘It should be a bright yellow cow—pleasant to see.’”](https://quranwbw.com/2/69) 
 
-* __2/70__: [Again they said, “Call upon your Lord so that He may make clear to us which cow, for all cows look the same to us. Then, Allah willing, we will be guided ˹to the right one˺.”](https://quranwbw.com/2/70) 
+* __Surah Al-Baqarah 2/70__: [Again they said, “Call upon your Lord so that He may make clear to us which cow, for all cows look the same to us. Then, Allah willing, we will be guided ˹to the right one˺.”](https://quranwbw.com/2/70) 
 
-* __2/71__: [He replied, “Allah says, ‘It should have been used neither to till the soil nor water the fields; wholesome and without blemish.’” They said, “Now you have come with the truth.” Yet they still slaughtered it hesitantly!](https://quranwbw.com/2/71) 
+* __Surah Al-Baqarah 2/71__: [He replied, “Allah says, ‘It should have been used neither to till the soil nor water the fields; wholesome and without blemish.’” They said, “Now you have come with the truth.” Yet they still slaughtered it hesitantly!](https://quranwbw.com/2/71) 
 
-* __2/72__: [˹This is˺ when a man was killed and you disputed who the killer was, but Allah revealed what you concealed.
+* __Surah Al-Baqarah 2/72__: [˹This is˺ when a man was killed and you disputed who the killer was, but Allah revealed what you concealed.
 ](https://quranwbw.com/2/72)
 
-* __2/73__: [So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.
-](https://quranwbw.com/2/73)
+* __Surah Al-Baqarah 2/73__: [So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.](https://quranwbw.com/2/73)
 
 ***
 
-* __2/74 (Your HEARTS become like Stones)__: [Even then your hearts became hardened like a rock or even harder, for some rocks gush rivers; others split, spilling water; while others are humbled in awe of Allah. And Allah is never unaware of what you do.](https://quranwbw.com/2/74) 
+* __Surah Al-Baqarah 2/74 (Your HEARTS become like Stones)__: [Even then your hearts became hardened like a rock or even harder, for some rocks gush rivers; others split, spilling water; while others are humbled in awe of Allah. And Allah is never unaware of what you do.](https://quranwbw.com/2/74) 
 
-* __2/75__: [Do you ˹believers still˺ expect them to be true to you, though a group of them would hear the word of Allah then knowingly corrupt it after understanding it?](https://quranwbw.com/2/75) 
+* __Surah Al-Baqarah 2/75__: [Do you ˹believers still˺ expect them to be true to you, though a group of them would hear the word of Allah then knowingly corrupt it after understanding it?](https://quranwbw.com/2/75) 
 
-* __2/83__: [And ˹remember˺ when We took a covenant from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.](https://quranwbw.com/2/83) 
+* __Surah Al-Baqarah 2/83__: [And ˹remember˺ when We took a covenant from the children of Israel ˹stating˺, “Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax.” But you ˹Israelites˺ turned away—except for a few of you—and were indifferent.](https://quranwbw.com/2/83) 
 
-* __2/84__: [And ˹remember˺ when We took your covenant that you would neither shed each other’s blood nor expel each other from their homes, you gave your pledge and bore witness.](https://quranwbw.com/2/84) 
+* __Surah Al-Baqarah 2/84__: [And ˹remember˺ when We took your covenant that you would neither shed each other’s blood nor expel each other from their homes, you gave your pledge and bore witness.](https://quranwbw.com/2/84) 
 
-* __2/85__: [But here you are, killing each other and expelling some of your people from their homes, aiding one another in sin and aggression; and when those ˹expelled˺ come to you as captives, you still ransom them—though expelling them was unlawful for you.1 Do you believe in some of the Scripture and reject the rest? Is there any reward for those who do so among you other than disgrace in this worldly life and being subjected to the harshest punishment on the Day of Judgment? For Allah is never unaware of what you do.](https://quranwbw.com/2/85) 
+* __Surah Al-Baqarah 2/85__: [But here you are, killing each other and expelling some of your people from their homes, aiding one another in sin and aggression; and when those ˹expelled˺ come to you as captives, you still ransom them—though expelling them was unlawful for you.1 Do you believe in some of the Scripture and reject the rest? Is there any reward for those who do so among you other than disgrace in this worldly life and being subjected to the harshest punishment on the Day of Judgment? For Allah is never unaware of what you do.](https://quranwbw.com/2/85) 
 
-* __2/92__: [Indeed, Moses came to you with clear proofs, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/92) 
+* __Surah Al-Baqarah 2/92__: [Indeed, Moses came to you with clear proofs, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/92) 
 
-* __2/93__: [And when We took your covenant and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and obey,” they answered, “We hear and disobey.” The love of the calf was rooted in their hearts because of their disbelief. Say, ˹O Prophet,˺ “How evil is what your ˹so-called˺ belief prompts you to do, if you ˹actually˺ believe ˹in the Torah˺!”](https://quranwbw.com/2/93) 
+* __Surah Al-Baqarah 2/93__: [And when We took your covenant and raised the mountain above you ˹saying˺, “Hold firmly to that ˹Scripture˺ which We have given you and obey,” they answered, “We hear and disobey.” The love of the calf was rooted in their hearts because of their disbelief. Say, ˹O Prophet,˺ “How evil is what your ˹so-called˺ belief prompts you to do, if you ˹actually˺ believe ˹in the Torah˺!”](https://quranwbw.com/2/93) 
 
-* __2/94 (Ask them to Wish for Death)__: [Say, ˹O Prophet,˺ “If the ˹eternal˺ Home of the Hereafter with Allah is exclusively for you ˹Israelites˺ out of all humanity, then wish for death if what you say is true!”](https://quranwbw.com/2/94) 
+* __Surah Al-Baqarah 2/94 (Ask them to Wish for Death)__: [Say, ˹O Prophet,˺ “If the ˹eternal˺ Home of the Hereafter with Allah is exclusively for you ˹Israelites˺ out of all humanity, then wish for death if what you say is true!”](https://quranwbw.com/2/94) 
 
-* __2/95 (They'll never Wish for Death)__: [But they will never wish for that because of what their hands have done.1 And Allah has ˹perfect˺ knowledge of the wrongdoers.](https://quranwbw.com/2/95) 
+* __Surah Al-Baqarah 2/95 (They'll never Wish for Death)__: [But they will never wish for that because of what their hands have done.1 And Allah has ˹perfect˺ knowledge of the wrongdoers.](https://quranwbw.com/2/95) 
 
-* __2/96 (Wish to live 1,000 years)__: [You will surely find them clinging to life more eagerly than any other people, even more than polytheists. Each one of them wishes to live a thousand years. But even if they were to live that long, it would not save them from the punishment. And Allah is All-Seeing of what they do.](https://quranwbw.com/2/96) 
+* __Surah Al-Baqarah 2/96 (Wish to live 1,000 years)__: [You will surely find them clinging to life more eagerly than any other people, even more than polytheists. Each one of them wishes to live a thousand years. But even if they were to live that long, it would not save them from the punishment. And Allah is All-Seeing of what they do.](https://quranwbw.com/2/96) 
 
-* __2/111 (claim only Jews and Christins with enter Paradise)__: [The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.”](https://quranwbw.com/2/111)
+* __Surah Al-Baqarah 2/111 (claim only Jews and Christins with enter Paradise)__: [The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.”](https://quranwbw.com/2/111)
   
-* __2/122__: [O Children of Israel! Remember My favours upon you and how I honoured you above the others.](https://quranwbw.com/2/122)
+* __Surah Al-Baqarah 2/122__: [O Children of Israel! Remember My favours upon you and how I honoured you above the others.](https://quranwbw.com/2/122)
 
-* __2/211 (How many clear signs We have given them?)__: [Ask the Children of Israel how many clear signs We have given them. And whoever trades Allah’s favour—after receiving it—˹for disbelief˺ should know that Allah is indeed severe in punishment.](https://quranwbw.com/2/211)
+* __Surah Al-Baqarah 2/211 (How many clear signs We have given them?)__: [Ask the Children of Israel how many clear signs We have given them. And whoever trades Allah’s favour—after receiving it—˹for disbelief˺ should know that Allah is indeed severe in punishment.](https://quranwbw.com/2/211)
 
-* __2/243 (Die!!! Which Incident is this???)__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death? Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
+* __Surah Al-Baqarah 2/243 (Die!!! Which Incident is this???)__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death? Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
 
 ***
 
 ### Talut (Saul) and Jalut (Goliath)
-* __2/247-252__: [...](https://quran.com/2/247-252)
+* __Surah Al-Baqarah 2/247-252__: [...](https://quran.com/2/247-252)
   * Ark of the Covenant (Taboot-e-Sakina)
   * Relices from Prophet Mosa and Haroon AS
 

@@ -61,20 +61,19 @@
 ***
 
 #### Cow
-* __Surah Al-Baqarah 2/67 (a'oozu billaahi an akoona minal jaahileen)__: [And ˹remember˺ when Moses said to his people, “Allah commands you to sacrifice a cow.”1 They replied, “Are you mocking us?” Moses responded, “I seek refuge in Allah from acting foolishly!”](https://quranwbw.com/2/67)
+* __Surah Al-Baqarah 2/67 (a'oozu billaahi an akoona minal jaahileen)__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦٓ إِنَّ ٱللَّهَ يَأْمُرُكُمْ أَن تَذْبَحُوا۟ بَقَرَةًۭ ۖ قَالُوٓا۟ أَتَتَّخِذُنَا هُزُوًۭا ۖ قَالَ أَعُوذُ بِٱللَّهِ أَنْ أَكُونَ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/2/67)
 
-* __Surah Al-Baqarah 2/68__: [They said, “Call upon your Lord to clarify for us what type ˹of cow˺ it should be!” He replied, “Allah says, ‘The cow should neither be old nor young but in between. So do as you are commanded!’”](https://quranwbw.com/2/68) 
+* __Surah Al-Baqarah 2/68__: [قَالُوا۟ ٱدْعُ لَنَا رَبَّكَ يُبَيِّن لَّنَا مَا هِىَ ۚ قَالَ إِنَّهُۥ يَقُولُ إِنَّهَا بَقَرَةٌۭ لَّا فَارِضٌۭ وَلَا بِكْرٌ عَوَانٌۢ بَيْنَ ذَٰلِكَ ۖ فَٱفْعَلُوا۟ مَا تُؤْمَرُونَ](https://quran.com/2/68) 
 
-* __Surah Al-Baqarah 2/69__: [They said, “Call upon your Lord to specify for us its colour.” He replied, “Allah says, ‘It should be a bright yellow cow—pleasant to see.’”](https://quranwbw.com/2/69) 
+* __Surah Al-Baqarah 2/69__: [قَالُوا۟ ٱدْعُ لَنَا رَبَّكَ يُبَيِّن لَّنَا مَا لَوْنُهَا ۚ قَالَ إِنَّهُۥ يَقُولُ إِنَّهَا بَقَرَةٌۭ صَفْرَآءُ فَاقِعٌۭ لَّوْنُهَا تَسُرُّ ٱلنَّـٰظِرِينَ](https://quran.com/2/69) 
 
-* __Surah Al-Baqarah 2/70__: [Again they said, “Call upon your Lord so that He may make clear to us which cow, for all cows look the same to us. Then, Allah willing, we will be guided ˹to the right one˺.”](https://quranwbw.com/2/70) 
+* __Surah Al-Baqarah 2/70__: [قَالُوا۟ ٱدْعُ لَنَا رَبَّكَ يُبَيِّن لَّنَا مَا هِىَ إِنَّ ٱلْبَقَرَ تَشَـٰبَهَ عَلَيْنَا وَإِنَّآ إِن شَآءَ ٱللَّهُ لَمُهْتَدُونَ](https://quran.com/2/70) 
 
-* __Surah Al-Baqarah 2/71__: [He replied, “Allah says, ‘It should have been used neither to till the soil nor water the fields; wholesome and without blemish.’” They said, “Now you have come with the truth.” Yet they still slaughtered it hesitantly!](https://quranwbw.com/2/71) 
+* __Surah Al-Baqarah 2/71__: [قَالَ إِنَّهُۥ يَقُولُ إِنَّهَا بَقَرَةٌۭ لَّا ذَلُولٌۭ تُثِيرُ ٱلْأَرْضَ وَلَا تَسْقِى ٱلْحَرْثَ مُسَلَّمَةٌۭ لَّا شِيَةَ فِيهَا ۚ قَالُوا۟ ٱلْـَٔـٰنَ جِئْتَ بِٱلْحَقِّ ۚ فَذَبَحُوهَا وَمَا كَادُوا۟ يَفْعَلُونَ](https://quran.com/2/71) 
 
-* __Surah Al-Baqarah 2/72__: [˹This is˺ when a man was killed and you disputed who the killer was, but Allah revealed what you concealed.
-](https://quranwbw.com/2/72)
+* __Surah Al-Baqarah 2/72__: [وَإِذْ قَتَلْتُمْ نَفْسًۭا فَٱدَّٰرَْٰٔتُمْ فِيهَا ۖ وَٱللَّهُ مُخْرِجٌۭ مَّا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/72)
 
-* __Surah Al-Baqarah 2/73__: [So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.](https://quranwbw.com/2/73)
+* __Surah Al-Baqarah 2/73__: [فَقُلْنَا ٱضْرِبُوهُ بِبَعْضِهَا ۚ كَذَٰلِكَ يُحْىِ ٱللَّهُ ٱلْمَوْتَىٰ وَيُرِيكُمْ ءَايَـٰتِهِۦ لَعَلَّكُمْ تَعْقِلُونَ](https://quran.com/2/73)
 
 ***
 

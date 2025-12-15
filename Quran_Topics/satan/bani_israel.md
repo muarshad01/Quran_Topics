@@ -20,11 +20,11 @@
 
 ## Al-Baqarah
 
-* __2/40 (Fulfill My Covenant)__: [O children of Israel! Remember My favours upon you. Fulfil your covenant and I will fulfil Mine, and stand in awe of Me ˹alone˺.](https://quranwbw.com/2/40) 
+* __Surah Al-Baqarah 2/40 (Fulfill My Covenant)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
 
-* __2/44-46 (Preach Righteousness)__:[](https://quranwbw.com/2/44-46)
+* __Surah Al-Baqarah 2/44-46 (Preach Righteousness)__: [۞ أَتَأْمُرُونَ ٱلنَّاسَ بِٱلْبِرِّ وَتَنسَوْنَ أَنفُسَكُمْ وَأَنتُمْ تَتْلُونَ ٱلْكِتَـٰبَ ۚ أَفَلَا تَعْقِلُونَ...وَٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ وَإِنَّهَا لَكَبِيرَةٌ إِلَّا عَلَى ٱلْخَـٰشِعِينَ...ٱلَّذِينَ يَظُنُّونَ أَنَّهُم مُّلَـٰقُوا۟ رَبِّهِمْ وَأَنَّهُمْ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/44-46)
 
-* __2/47 (Remember My favours)__: [O Children of Israel! Remember ˹all˺ the favours I granted you and how I honoured you above the others.](https://quranwbw.com/2/47) 
+* __2/47 (Remember My favours)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَنِّى فَضَّلْتُكُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/47) 
 
 ***
 

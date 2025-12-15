@@ -236,12 +236,6 @@
 
 ***
 
-#### Muslims
-* You can't change a word in Quran
-* We have Imam of ALL Nabi
-
-***
-
 #### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
 * 1. __When Moutain was lifted__ and then Allah brought it down, but they refused again. 
   * __Surah Al-Baqarah 2/64 (ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ)__: [ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ ۖ فَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَكُنتُم مِّنَ ٱلْخَـٰسِرِينَ](https://quran.com/2/64)
@@ -257,6 +251,8 @@
 * 6 tribes fought against 6 other tribes
 * Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
 * __Surah Al-Qasas 28/15 (Musa AS Killed a man)__: [وَدَخَلَ ٱلْمَدِينَةَ عَلَىٰ حِينِ غَفْلَةٍۢ مِّنْ أَهْلِهَا فَوَجَدَ فِيهَا رَجُلَيْنِ يَقْتَتِلَانِ هَـٰذَا مِن شِيعَتِهِۦ وَهَـٰذَا مِنْ عَدُوِّهِۦ ۖ فَٱسْتَغَـٰثَهُ ٱلَّذِى مِن شِيعَتِهِۦ عَلَى ٱلَّذِى مِنْ عَدُوِّهِۦ فَوَكَزَهُۥ مُوسَىٰ فَقَضَىٰ عَلَيْهِ ۖ قَالَ هَـٰذَا مِنْ عَمَلِ ٱلشَّيْطَـٰنِ ۖ إِنَّهُۥ عَدُوٌّۭ مُّضِلٌّۭ مُّبِينٌۭ](https://quran.com/28/15)
+* You can't change a word in Quran
+* We have Imam of ALL Nabi (Khatam ul Nabeen wa Imam al Mursaleen)
 
 ***
 

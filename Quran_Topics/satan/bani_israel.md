@@ -279,11 +279,6 @@
 
 ***
 
-#### [Bani Israel Ki Gae Ajeeb-o-Gareeb Qissa (23 min) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=N9aJQ9XzYlE&t=118s)
-* __Surah__: []()
-
-***
-
 #### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
 * __Surah__: []()
 

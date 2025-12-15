@@ -326,6 +326,7 @@
 
 #### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
 * __Surah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
+* Saturday is for Ibadah and no Business
 
 ***
 

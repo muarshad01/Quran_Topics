@@ -249,6 +249,22 @@
 
 ***
 
+#### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
+
+***
+
+#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
+
+***
+
+#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
+
+***
+
+#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
+
+***
+
 #### [Sajday Ka Hukm To Farishton Ko Tha Phir Iblees Ko Kyun Nikala? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0KOYJHscBdU)
 * __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
   * Angels are in majority there...
@@ -264,6 +280,16 @@
 
 ***
 
+#### [Iblees Ki Adam (A.S) aur Hawwa (A.S) Ko Hamesha Zinda Rehnay Ki Offer | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=2oMkoepWNn8)
+* __Surah 2/35__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ وَكُلَا مِنْهَا رَغَدًا حَيْثُ شِئْتُمَا وَلَا تَقْرَبَا هَـٰذِهِ ٱلشَّجَرَةَ فَتَكُونَا مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/2/35)
+
+***
+
+#### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
+
+***
+
+
 #### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
 * Hazrat Issa AS and his mother Maryam AS
 
@@ -273,46 +299,11 @@
 
 ***
 
-
-
 #### [Shaitan vs Imam Razi R.A | 99 Dalilany | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ygzOwDjEqV0)
 
 ***
 
 #### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
-
-***
-
-#### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
-
-***
-
-#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
-
-***
-
-#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
-
-***
-
-#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
-
-***
-
-#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
-
-***
-
-#### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
-
-***
-
-#### [Iblees Ki Adam (A.S) aur Hawwa (A.S) Ko Hamesha Zinda Rehnay Ki Offer | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=2oMkoepWNn8)
-* __Surah 2/35__: [وَقُلْنَا يَـٰٓـَٔادَمُ ٱسْكُنْ أَنتَ وَزَوْجُكَ ٱلْجَنَّةَ وَكُلَا مِنْهَا رَغَدًا حَيْثُ شِئْتُمَا وَلَا تَقْرَبَا هَـٰذِهِ ٱلشَّجَرَةَ فَتَكُونَا مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/2/35)
-
-***
-
-#### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
 
 ***
 
@@ -324,6 +315,14 @@
 
 ***
 
+#### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
+
+***
+
+#### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=TS5pmz8Sc3s)
+
+***
+
 #### [Was IBLEES Really Commanded to Prostrate | ابلیس کو سجدے کا حکم نہیں ہوا ؟ | By Javed Ahmad Ghamidi](https://www.youtube.com/watch?v=2FnYTas1nnc)
 
 ***
@@ -332,7 +331,7 @@
 
 ***
 
-#### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=TS5pmz8Sc3s)
+#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
 
 ***
 

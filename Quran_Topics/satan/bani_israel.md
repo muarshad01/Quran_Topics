@@ -161,42 +161,33 @@
 
 ***
 
-## Al Araaf (The Heights)
+* __Surah Al-Araf 7/163 (Sabbath)__: [وَسْـَٔلْهُمْ عَنِ ٱلْقَرْيَةِ ٱلَّتِى كَانَتْ حَاضِرَةَ ٱلْبَحْرِ إِذْ يَعْدُونَ فِى ٱلسَّبْتِ إِذْ تَأْتِيهِمْ حِيتَانُهُمْ يَوْمَ سَبْتِهِمْ شُرَّعًۭا وَيَوْمَ لَا يَسْبِتُونَ ۙ لَا تَأْتِيهِمْ ۚ كَذَٰلِكَ نَبْلُوهُم بِمَا كَانُوا۟ يَفْسُقُونَ](https://quran.com/7/163)
 
-* __7/163 (Sabbath)__: [Ask them ˹O Prophet˺ about ˹the people of˺ the town which was by the sea, who broke the Sabbath.1 During the Sabbath, ˹abundant˺ fish would come to them clearly visible, but on other days the fish were never seen. In this way We tested them for their rebelliousness.](https://quranwbw.com/7/163)
+* __Surah Al-Araf 7/164__: [وَإِذْ قَالَتْ أُمَّةٌۭ مِّنْهُمْ لِمَ تَعِظُونَ قَوْمًا ۙ ٱللَّهُ مُهْلِكُهُمْ أَوْ مُعَذِّبُهُمْ عَذَابًۭا شَدِيدًۭا ۖ قَالُوا۟ مَعْذِرَةً إِلَىٰ رَبِّكُمْ وَلَعَلَّهُمْ يَتَّقُونَ](https://quran.com/7/164)
 
-* __7/164__: [When some of ˹the righteous among˺ them questioned ˹their fellow Sabbath-keepers˺, “Why do you ˹bother to˺ warn those ˹Sabbath-breakers˺ who will either be destroyed or severely punished by Allah?” They replied, “Just to be free from your Lord’s blame, and so perhaps they may abstain.”](https://quranwbw.com/7/164)
+* __Surah Al-Araf 7/165__: [فَلَمَّا نَسُوا۟ مَا ذُكِّرُوا۟ بِهِۦٓ أَنجَيْنَا ٱلَّذِينَ يَنْهَوْنَ عَنِ ٱلسُّوٓءِ وَأَخَذْنَا ٱلَّذِينَ ظَلَمُوا۟ بِعَذَابٍۭ بَـِٔيسٍۭ بِمَا كَانُوا۟ يَفْسُقُونَ](https://quran.com/7/165)
 
-* __7/165__: [When they ignored the warning they were given, We rescued those who used to warn against evil and overtook the wrongdoers with a dreadful punishment for their rebelliousness.
-](https://quranwbw.com/7/165)
+* __Surah Al-Araf 7/166 (Apes Despised)__: [فَلَمَّا عَتَوْا۟ عَن مَّا نُهُوا۟ عَنْهُ قُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/7/166)
 
-* __7/166 (Apes Despised)__: [But when they stubbornly persisted in violation, We said to them, “Be disgraced apes!”](https://quranwbw.com/7/166)
+* __Surah Al-Araf 7/167__: [وَإِذْ تَأَذَّنَ رَبُّكَ لَيَبْعَثَنَّ عَلَيْهِمْ إِلَىٰ يَوْمِ ٱلْقِيَـٰمَةِ مَن يَسُومُهُمْ سُوٓءَ ٱلْعَذَابِ ۗ إِنَّ رَبَّكَ لَسَرِيعُ ٱلْعِقَابِ ۖ وَإِنَّهُۥ لَغَفُورٌۭ رَّحِيمٌۭ](https://quran.com/7/167)
 
-* __7/167__: [And ˹remember, O  Prophet,˺ when your Lord declared that He would send against them others who would make them suffer terribly until the Day of Judgment. Indeed, your Lord is swift in punishment, but He is certainly All-Forgiving, Most Merciful.](https://quranwbw.com/7/167)
+* __Surah Al-Araf 7/168__: [وَقَطَّعْنَـٰهُمْ فِى ٱلْأَرْضِ أُمَمًۭا ۖ مِّنْهُمُ ٱلصَّـٰلِحُونَ وَمِنْهُمْ دُونَ ذَٰلِكَ ۖ وَبَلَوْنَـٰهُم بِٱلْحَسَنَـٰتِ وَٱلسَّيِّـَٔاتِ لَعَلَّهُمْ يَرْجِعُونَ](https://quran.com/7/168)
 
-* __7/168__: [We dispersed them through the land in groups—some were righteous, others were less so. We tested them with prosperity and adversity, so perhaps they would return ˹to the Right Path˺.
-](https://quranwbw.com/7/168)
+* __Surah Al-Araf 7/169__: [فَخَلَفَ مِنۢ بَعْدِهِمْ خَلْفٌۭ وَرِثُوا۟ ٱلْكِتَـٰبَ يَأْخُذُونَ عَرَضَ هَـٰذَا ٱلْأَدْنَىٰ وَيَقُولُونَ سَيُغْفَرُ لَنَا وَإِن يَأْتِهِمْ عَرَضٌۭ مِّثْلُهُۥ يَأْخُذُوهُ ۚ أَلَمْ يُؤْخَذْ عَلَيْهِم مِّيثَـٰقُ ٱلْكِتَـٰبِ أَن لَّا يَقُولُوا۟ عَلَى ٱللَّهِ إِلَّا ٱلْحَقَّ وَدَرَسُوا۟ مَا فِيهِ ۗ وَٱلدَّارُ ٱلْـَٔاخِرَةُ خَيْرٌۭ لِّلَّذِينَ يَتَّقُونَ ۗ أَفَلَا تَعْقِلُونَ](https://quran.com/7/169)
 
-* __7/169__: [Then they were succeeded by other generations who inherited the Scripture. They indulged in unlawful gains, claiming, “We will be forgiven ˹after all˺.” And if similar gain came their way, they would seize it. Was a covenant not taken from them in the Scripture that they would not say anything about Allah except the truth? And they were already well-versed in its teachings. But the ˹eternal˺ Home of the Hereafter is far better for those mindful ˹of Allah˺. Will you not then understand?
-](https://quranwbw.com/7/169)
+* __Surah Al-Araf 7/170__: [وَٱلَّذِينَ يُمَسِّكُونَ بِٱلْكِتَـٰبِ وَأَقَامُوا۟ ٱلصَّلَوٰةَ إِنَّا لَا نُضِيعُ أَجْرَ ٱلْمُصْلِحِينَ](https://quran.com/7/170)
 
-* __7/170__: [As for those who firmly abide by the Scripture and establish prayer—surely We never discount the reward of those acting righteously.](https://quranwbw.com/7/170)
-
-* __7/171 (Raised the Mountain)__: [And ˹remember˺ when We raised the mountain over them as if it were a cloud and they thought it would fall on them.1 ˹We said,˺ “Hold firmly to that ˹Scripture˺ which We have given you and observe its teachings so perhaps you will become mindful ˹of Allah˺.”](https://quranwbw.com/7/171)
+* __Surah Al-Araf 7/171 (Raised the Mountain: وَإِذْ نَتَقْنَا ٱلْجَبَلَ فَوْقَهُمْ)__: [۞ وَإِذْ نَتَقْنَا ٱلْجَبَلَ فَوْقَهُمْ كَأَنَّهُۥ ظُلَّةٌۭ وَظَنُّوٓا۟ أَنَّهُۥ وَاقِعٌۢ بِهِمْ خُذُوا۟ مَآ ءَاتَيْنَـٰكُم بِقُوَّةٍۢ وَٱذْكُرُوا۟ مَا فِيهِ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/7/171)
 
 ***
 
-## Yunus (Jonas)
-* __10/93__: [Indeed, We settled the Children of Israel in a blessed land, and granted them good, lawful provisions. They did not differ until knowledge came to them.2 Surely your Lord will judge between them on the Day of Judgment regarding their differences.](https://quranwbw.com/10/93)
+* __Surah Yunus (Jonas) 10/93__: [وَلَقَدْ بَوَّأْنَا بَنِىٓ إِسْرَٰٓءِيلَ مُبَوَّأَ صِدْقٍۢ وَرَزَقْنَـٰهُم مِّنَ ٱلطَّيِّبَـٰتِ فَمَا ٱخْتَلَفُوا۟ حَتَّىٰ جَآءَهُمُ ٱلْعِلْمُ ۚ إِنَّ رَبَّكَ يَقْضِى بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/10/93)
 
 ***
 
-## An-Nahl (The Bee)
-* __16/124 (Sabbath)__: [˹Honouring˺ the Sabbath was ordained only for those who disputed about Abraham.1 And surely your Lord will judge between them on the Day of Judgment regarding their disputes.](https://quranwbw.com/16/124)
+* __Surah An-Nahl 16/124 (Sabbath)__: [إِنَّمَا جُعِلَ ٱلسَّبْتُ عَلَى ٱلَّذِينَ ٱخْتَلَفُوا۟ فِيهِ ۚ وَإِنَّ رَبَّكَ لَيَحْكُمُ بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/16/124)
 
 ***
-
-## Al-Israa (The Night Journey)
 
 * __Surah Al-Israa 17/3 (عَبْدًۭا شَكُورًۭا)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3) 
 
@@ -212,8 +203,6 @@
 
 ***
 
-## Ad-Dukhaan (The Smoke)
-
 * __Surah Ad-Dukhaan 44/32__:[وَلَقَدِ ٱخْتَرْنَـٰهُمْ عَلَىٰ عِلْمٍ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/44/32)
 
 * __Surah Ad-Dukhaan 44/33__: [وَءَاتَيْنَـٰهُم مِّنَ ٱلْـَٔايَـٰتِ مَا فِيهِ بَلَـٰٓؤٌۭا۟ مُّبِينٌ](https://quran.com/44/33) 
@@ -227,8 +216,6 @@
 * __Surah Ad-Dukhaan 44/37__: [أَهُمْ خَيْرٌ أَمْ قَوْمُ تُبَّعٍۢ وَٱلَّذِينَ مِن قَبْلِهِمْ ۚ أَهْلَكْنَـٰهُمْ ۖ إِنَّهُمْ كَانُوا۟ مُجْرِمِينَ](https://quran.com/44/37) 
 
 ***
-
-### 45. Al-Jaathiya (Crouching)
 
 * __Surah Al-Jaathiya 45/16 (إِسْرَٰٓءِيلَ ٱلْكِتَـٰبَ وَٱلْحُكْمَ وَٱلنُّبُوَّةَ...وَفَضَّلْنَـٰهُمْ عَلَى ٱلْعَـٰلَمِينَ)__: [وَلَقَدْ ءَاتَيْنَا بَنِىٓ إِسْرَٰٓءِيلَ ٱلْكِتَـٰبَ وَٱلْحُكْمَ وَٱلنُّبُوَّةَ وَرَزَقْنَـٰهُم مِّنَ ٱلطَّيِّبَـٰتِ وَفَضَّلْنَـٰهُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/45/16) 
 
@@ -298,6 +285,7 @@
 
 #### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
 * __Surah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
+* __Surah An-Nahl 16/124 (Sabbath)__: [إِنَّمَا جُعِلَ ٱلسَّبْتُ عَلَى ٱلَّذِينَ ٱخْتَلَفُوا۟ فِيهِ ۚ وَإِنَّ رَبَّكَ لَيَحْكُمُ بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/16/124)
 * Saturday is for Ibadah and no Business
 * Old people became Pigs
 * Young people became Monkeys

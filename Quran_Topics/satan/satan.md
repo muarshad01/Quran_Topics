@@ -235,6 +235,8 @@
 
 ***
 
+## SSA Shah
+
 #### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
 
 ***
@@ -242,6 +244,8 @@
 #### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
 
 ***
+
+## Mufti Muneer Akhoon
 
 #### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
 
@@ -258,7 +262,7 @@
 
 ***
 
-#### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer](https://www.youtube.com/watch?v=_OdMnvi-XWw)
+#### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=_OdMnvi-XWw)
 * __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
 * __Li-aadama__: Laam is like Ila.
   * Adam-ko-nahi balkay adam-ki-taraf
@@ -306,11 +310,13 @@
 
 ***
 
+## Allama Talib Johri
+
 #### [Iblees kis vja sy nikala gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
 
 ***
 
-#### [039 | Ghair Allah Ko Sajda علامہ طالب جوہری۔](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
+#### [039 | Ghair Allah Ko Sajda علامہ طالب جوہری۔ | Allama Talib Johri](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
 
 ***
 
@@ -322,9 +328,13 @@
 
 ***
 
+## Irfan ul Haq
+
 #### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
 
 ***
+
+## Javed Ahmed Ghamidi
 
 #### [Was IBLEES Really Commanded to Prostrate | ابلیس کو سجدے کا حکم نہیں ہوا ؟ | By Javed Ahmad Ghamidi](https://www.youtube.com/watch?v=2FnYTas1nnc)
 

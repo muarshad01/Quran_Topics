@@ -230,24 +230,6 @@
 
 ***
 
-#### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer](https://www.youtube.com/watch?v=_OdMnvi-XWw)
-* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
-* __Li-aadama__: Laam is like Ila.
-  * Adam-ko-nahi balkay adam-ki-taraf
-* Bait-ullah ki-taraf Sajdah karo (direction), but in-fact Sajdah is to Allah SWT.
-* 1 - Adam is like a Qibla-o-Kabba, but in-fact Sajdah is to Allah SWT.
-* 2 - It was __Sajdah-e-Tazeem__ and not __Sajdah-e-Ibadah__
-  * Hazrat Yusuf AS ko Sajdah by his father-and-brothers
-
-***
-
-#### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
-* Faristoon ka mudariss
-* __Surah 2/33__: [قَالَ يَـٰٓـَٔادَمُ أَنۢبِئْهُم بِأَسْمَآئِهِمْ ۖ فَلَمَّآ أَنۢبَأَهُم بِأَسْمَآئِهِمْ قَالَ أَلَمْ أَقُل لَّكُمْ إِنِّىٓ أَعْلَمُ غَيْبَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَأَعْلَمُ مَا تُبْدُونَ وَمَا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/33)
-* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
-
-
-***
 
 #### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
 
@@ -276,6 +258,24 @@
 
 ***
 
+#### [Ghair-Allah Ko-Sajda Shirk-Hai Phir Adam (A.S) Ko Sajda Kyun-Karwaya? | Mufti Muneer](https://www.youtube.com/watch?v=_OdMnvi-XWw)
+* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+* __Li-aadama__: Laam is like Ila.
+  * Adam-ko-nahi balkay adam-ki-taraf
+* Bait-ullah ki-taraf Sajdah karo (direction), but in-fact Sajdah is to Allah SWT.
+* 1 - Adam is like a Qibla-o-Kabba, but in-fact Sajdah is to Allah SWT.
+* 2 - It was __Sajdah-e-Tazeem__ and not __Sajdah-e-Ibadah__
+  * Hazrat Yusuf AS ko Sajdah by his father-and-brothers
+
+***
+
+#### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
+* Faristoon ka mudariss
+* __Surah 2/33__: [قَالَ يَـٰٓـَٔادَمُ أَنۢبِئْهُم بِأَسْمَآئِهِمْ ۖ فَلَمَّآ أَنۢبَأَهُم بِأَسْمَآئِهِمْ قَالَ أَلَمْ أَقُل لَّكُمْ إِنِّىٓ أَعْلَمُ غَيْبَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَأَعْلَمُ مَا تُبْدُونَ وَمَا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/33)
+* __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+
+
+***
 #### [Shaitan Ne Jab Apna Bacha Hawwa (A.S) Ke Paas Chhoda | Adam (A.S) Ne Usay Kyun Qatal Kiya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0ZMPOh_-QaI)
 
 ***
@@ -288,7 +288,6 @@
 #### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
 
 ***
-
 
 #### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
 * Hazrat Issa AS and his mother Maryam AS
@@ -323,6 +322,10 @@
 
 ***
 
+#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
+
+***
+
 #### [Was IBLEES Really Commanded to Prostrate | ابلیس کو سجدے کا حکم نہیں ہوا ؟ | By Javed Ahmad Ghamidi](https://www.youtube.com/watch?v=2FnYTas1nnc)
 
 ***
@@ -331,8 +334,6 @@
 
 ***
 
-#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
+* __Surah Al-Araf 7/16__: [قَالَ فَبِمَآ أَغْوَيْتَنِى لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ ](https://quran.com/7/16)
 
 ***
-
-* __Surah Al-Araf 7/16__: [قَالَ فَبِمَآ أَغْوَيْتَنِى لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ ](https://quran.com/7/16)

@@ -286,16 +286,6 @@
 
 ***
 
-#### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
-* __Surah__: [](https://quranwbw.com/20/85-98)
-
-***
-
-#### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
-* __Surah__: [](https://quranwbw.com/2/50)
-
-***
-
 #### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
 * __Surah Al-Baqarah 2/55__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ](https://quranwbw.com/2/55-56)
 * __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quranwbw.com/2/55-56)
@@ -356,5 +346,17 @@
 * Shoaib AS
 * Ayub AS
 * Muhammad AS
+
+***
+
+## Surah Taha
+
+#### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
+* __Surah__: [](https://quranwbw.com/20/85-98)
+
+***
+
+#### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
+* __Surah__: [](https://quranwbw.com/2/50)
 
 ***

@@ -198,17 +198,17 @@
 
 ## Al-Israa (The Night Journey)
 
-* __17/3__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3) 
+* __Surah Al-Israa 17/3 (عَبْدًۭا شَكُورًۭا)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3) 
 
-* __17/4__: [And We warned the Children of Israel in the Scripture, “You will certainly cause corruption in the land twice, and you will become extremely arrogant.](https://quranwbw.com/17/4) 
+* __Surah Al-Israa 17/4 (ٱلْكِتَـٰبِ لَتُفْسِدُنَّ فِى ٱلْأَرْضِ مَرَّتَيْنِ وَلَتَعْلُنَّ عُلُوًّۭا كَبِيرًۭا ٤)__: [وَقَضَيْنَآ إِلَىٰ بَنِىٓ إِسْرَٰٓءِيلَ فِى ٱلْكِتَـٰبِ لَتُفْسِدُنَّ فِى ٱلْأَرْضِ مَرَّتَيْنِ وَلَتَعْلُنَّ عُلُوًّۭا كَبِيرًۭا](https://quran.com/17/4) 
 
-* __17/5__: [When the first of the two warnings would come to pass, We would send against you some of Our servants of great might, who would ravage your homes. This would be a warning fulfilled.](https://quranwbw.com/17/5) 
+* __Surah Al-Israa 17/5__: [فَإِذَا جَآءَ وَعْدُ أُولَىٰهُمَا بَعَثْنَا عَلَيْكُمْ عِبَادًۭا لَّنَآ أُو۟لِى بَأْسٍۢ شَدِيدٍۢ فَجَاسُوا۟ خِلَـٰلَ ٱلدِّيَارِ ۚ وَكَانَ وَعْدًۭا مَّفْعُولًۭا](https://quran.com/17/5) 
 
-* __17/6__: [Then ˹after your repentance˺ We would give you the upper hand over them and aid you with wealth and offspring, causing you to outnumber them.](https://quranwbw.com/17/6) 
+* __Surah Al-Israa 17/6__: [ثُمَّ رَدَدْنَا لَكُمُ ٱلْكَرَّةَ عَلَيْهِمْ وَأَمْدَدْنَـٰكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَجَعَلْنَـٰكُمْ أَكْثَرَ نَفِيرًا](https://quran.com/17/6) 
 
-* __17/7__: [If you act rightly, it is for your own good, but if you do wrong, it is to your own loss. “And when the second warning would come to pass, your enemies would ˹be left to˺ totally disgrace you and enter that place of worship as they entered it the first time, and utterly destroy whatever would fall into their hands.](https://quranwbw.com/17/7) 
+* __Surah Al-Israa 17/7 (إِنْ أَحْسَنتُمْ أَحْسَنتُمْ لِأَنفُسِكُمْ ۖ)__: [إِنْ أَحْسَنتُمْ أَحْسَنتُمْ لِأَنفُسِكُمْ ۖ وَإِنْ أَسَأْتُمْ فَلَهَا ۚ فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ لِيَسُـۥٓـُٔوا۟ وُجُوهَكُمْ وَلِيَدْخُلُوا۟ ٱلْمَسْجِدَ كَمَا دَخَلُوهُ أَوَّلَ مَرَّةٍۢ وَلِيُتَبِّرُوا۟ مَا عَلَوْا۟ تَتْبِيرًا](https://quran.com/17/7) 
 
-* __17/8__: [Perhaps your Lord will have mercy on you ˹if you repent˺, but if you return ˹to sin˺, We will return ˹to punishment˺. And We have made Hell a ˹permanent˺ confinement for the disbelievers.”](https://quranwbw.com/17/8) 
+* __Surah Al-Israa 17/8__: [عَسَىٰ رَبُّكُمْ أَن يَرْحَمَكُمْ ۚ وَإِنْ عُدتُّمْ عُدْنَا ۘ وَجَعَلْنَا جَهَنَّمَ لِلْكَـٰفِرِينَ حَصِيرًا](https://quran.com/17/8) 
 
 ***
 

@@ -1,5 +1,5 @@
 ## Nul AS
-* __Surah Al Israa 17/3__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3)
+* __Surah Al-Israa 17/3 (عَبْدًۭا شَكُورًۭا)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3) 
 
 ***
 
@@ -10,7 +10,7 @@
 *  2 - Idris (Enoch): https://quranwbw.com/21/85
 *  3 - _Nuh (Noah)__
    *  [Nuh Alaihi Salam ki Qabar](https://www.youtube.com/watch?v=0Fu2gj8-8Rg)
-   *  __Surah__: [˹O˺ descendants of those We carried with Noah ˹in the Ark˺! He was indeed a grateful servant.”](https://quranwbw.com/17/3)
+   *  * __Surah Al-Israa 17/3 (عَبْدًۭا شَكُورًۭا)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3) 
    *__Surah__: [And ˹remember˺ when Noah had cried out to Us earlier, so We responded to him and delivered him and his family1 from the great distress.](https://quranwbw.com/21/76)
    * __Surah Al-Anbiyaa 16/43__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/16/43)
    * __Surah An-Nahl 21/7__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/21/7)

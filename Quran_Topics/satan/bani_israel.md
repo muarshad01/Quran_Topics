@@ -359,5 +359,7 @@
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
 * __Surah Al-Baqarah 2/49__: [وَإِذْ نَجَّيْنَـٰكُم مِّنْ ءَالِ فِرْعَوْنَ يَسُومُونَكُمْ سُوٓءَ ٱلْعَذَابِ يُذَبِّحُونَ أَبْنَآءَكُمْ وَيَسْتَحْيُونَ نِسَآءَكُمْ ۚ وَفِى ذَٰلِكُم بَلَآءٌۭ مِّن رَّبِّكُمْ عَظِيمٌۭ](https://quran.com/2/49)
 * __Surah Al-Baqarah 2/50__: [وَإِذْ فَرَقْنَا بِكُمُ ٱلْبَحْرَ فَأَنجَيْنَـٰكُمْ وَأَغْرَقْنَآ ءَالَ فِرْعَوْنَ وَأَنتُمْ تَنظُرُونَ](https://quran.com/2/50)
+* 600,000 (600k) people of Bani Israel left with prophet Moses
+* __Surah Ash Shuara 26/62__: [قَالَ كَلَّآ ۖ إِنَّ مَعِىَ رَبِّى سَيَهْدِينِ](https://quran.com/26/62)
 
 ***

@@ -96,15 +96,15 @@
 
 * __Surah Al-Baqarah 2/95 (They'll never Wish for Death)__: [But they will never wish for that because of what their hands have done.1 And Allah has ˹perfect˺ knowledge of the wrongdoers.](https://quranwbw.com/2/95) 
 
-* __Surah Al-Baqarah 2/96 (Wish to live 1,000 years)__: [You will surely find them clinging to life more eagerly than any other people, even more than polytheists. Each one of them wishes to live a thousand years. But even if they were to live that long, it would not save them from the punishment. And Allah is All-Seeing of what they do.](https://quranwbw.com/2/96) 
+* __Surah Al-Baqarah 2/96 (Wish to live 1,000 years)__: [وَلَتَجِدَنَّهُمْ أَحْرَصَ ٱلنَّاسِ عَلَىٰ حَيَوٰةٍۢ وَمِنَ ٱلَّذِينَ أَشْرَكُوا۟ ۚ يَوَدُّ أَحَدُهُمْ لَوْ يُعَمَّرُ أَلْفَ سَنَةٍۢ وَمَا هُوَ بِمُزَحْزِحِهِۦ مِنَ ٱلْعَذَابِ أَن يُعَمَّرَ ۗ وَٱللَّهُ بَصِيرٌۢ بِمَا يَعْمَلُونَ](https://quran.com/2/96) 
 
-* __Surah Al-Baqarah 2/111 (claim only Jews and Christins with enter Paradise)__: [The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.”](https://quranwbw.com/2/111)
+* __Surah Al-Baqarah 2/111 (Claim only Jews and Christins with enter Paradise)__: [وَقَالُوا۟ لَن يَدْخُلَ ٱلْجَنَّةَ إِلَّا مَن كَانَ هُودًا أَوْ نَصَـٰرَىٰ ۗ تِلْكَ أَمَانِيُّهُمْ ۗ قُلْ هَاتُوا۟ بُرْهَـٰنَكُمْ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/2/111)
   
-* __Surah Al-Baqarah 2/122__: [O Children of Israel! Remember My favours upon you and how I honoured you above the others.](https://quranwbw.com/2/122)
+* __Surah Al-Baqarah 2/122__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَنِّى فَضَّلْتُكُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/122)
 
-* __Surah Al-Baqarah 2/211 (How many clear signs We have given them?)__: [Ask the Children of Israel how many clear signs We have given them. And whoever trades Allah’s favour—after receiving it—˹for disbelief˺ should know that Allah is indeed severe in punishment.](https://quranwbw.com/2/211)
+* __Surah Al-Baqarah 2/211 (How many clear signs We have given them?)__: [سَلْ بَنِىٓ إِسْرَٰٓءِيلَ كَمْ ءَاتَيْنَـٰهُم مِّنْ ءَايَةٍۭ بَيِّنَةٍۢ ۗ وَمَن يُبَدِّلْ نِعْمَةَ ٱللَّهِ مِنۢ بَعْدِ مَا جَآءَتْهُ فَإِنَّ ٱللَّهَ شَدِيدُ ٱلْعِقَابِ](https://quran.com/2/211)
 
-* __Surah Al-Baqarah 2/243 (Die!!! Which Incident is this???)__: [Have you ˹O Prophet˺ not seen those who fled their homes in the thousands for fear of death? Allah said to them, “Die!” then He gave them life. Surely Allah is ever Bountiful to humanity, but most people are ungrateful.](https://quranwbw.com/2/243)
+* __Surah Al-Baqarah 2/243 (Die!!! Which Incident is this???)__: [۞ أَلَمْ تَرَ إِلَى ٱلَّذِينَ خَرَجُوا۟ مِن دِيَـٰرِهِمْ وَهُمْ أُلُوفٌ حَذَرَ ٱلْمَوْتِ فَقَالَ لَهُمُ ٱللَّهُ مُوتُوا۟ ثُمَّ أَحْيَـٰهُمْ ۚ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quran.com/2/243)
 
 ***
 

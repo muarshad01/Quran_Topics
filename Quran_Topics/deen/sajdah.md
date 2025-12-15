@@ -68,3 +68,5 @@
 * __kaa-naa (Thaa) verses saa-raa (Hoah-gaya)__
 
 ***
+
+#### [Wo Musalman Jin Ki Rooh Arsh Elahi K Nechy Sajda Karti Hai | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=E6_C1fawm_s)

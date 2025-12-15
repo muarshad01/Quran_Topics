@@ -19,3 +19,7 @@
 #### [Khabees Urtean Khabees Mardoun Ke liye ...| Sahil Adeem](https://www.youtube.com/watch?v=vZoUaFHrTSw)
 
 ***
+
+#### [Face Veil in Islam: Mandatory or Not? | چہرہ چھپانا فرض ہے یا نہیں؟](https://www.youtube.com/watch?v=0riK1A0_tO8)
+
+***

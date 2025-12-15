@@ -259,13 +259,6 @@
 
 ***
 
-#### [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
-* __Surah 2/91__: [](https://quranwbw.com/2/91)
-* __Surah 62/6__: [](https://quranwbw.com/62/6)
-* 600,000 (600k) people of Bani Israel left with prophet Moses
-
-***
-
 #### Muslims
 * You can't change a word in Quran
 * We have Imam of ALL Nabi
@@ -326,6 +319,13 @@
 * __Surah Al-Baqarah 2/72__: [وَإِذْ قَتَلْتُمْ نَفْسًۭا فَٱدَّٰرَْٰٔتُمْ فِيهَا ۖ وَٱللَّهُ مُخْرِجٌۭ مَّا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/72)
 
 * __Surah Al-Baqarah 2/73__: [فَقُلْنَا ٱضْرِبُوهُ بِبَعْضِهَا ۚ كَذَٰلِكَ يُحْىِ ٱللَّهُ ٱلْمَوْتَىٰ وَيُرِيكُمْ ءَايَـٰتِهِۦ لَعَلَّكُمْ تَعْقِلُونَ](https://quran.com/2/73)
+
+***
+
+#### [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
+* __Surah Al-Baqarah 2/91__: [وَإِذَا قِيلَ لَهُمْ ءَامِنُوا۟ بِمَآ أَنزَلَ ٱللَّهُ قَالُوا۟ نُؤْمِنُ بِمَآ أُنزِلَ عَلَيْنَا وَيَكْفُرُونَ بِمَا وَرَآءَهُۥ وَهُوَ ٱلْحَقُّ مُصَدِّقًۭا لِّمَا مَعَهُمْ ۗ قُلْ فَلِمَ تَقْتُلُونَ أَنۢبِيَآءَ ٱللَّهِ مِن قَبْلُ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/2/91)
+* __Surah Al-Jumuah 62/6__: [قُلْ يَـٰٓأَيُّهَا ٱلَّذِينَ هَادُوٓا۟ إِن زَعَمْتُمْ أَنَّكُمْ أَوْلِيَآءُ لِلَّهِ مِن دُونِ ٱلنَّاسِ فَتَمَنَّوُا۟ ٱلْمَوْتَ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/62/6)
+* 600,000 (600k) people of Bani Israel left with prophet Moses
 
 ***
 

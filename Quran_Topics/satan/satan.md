@@ -156,26 +156,24 @@
 
 ***
 
-* __Surah Al-Ankabut 29/38__: [And the people of ’Ȃd and Thamûd ˹met a similar fate˺, which must be clear to you ˹Meccans˺ from their ruins.1 Satan made their ˹evil˺ deeds appealing to them, hindering them from the ˹Right˺ Way, although they were capable of reasoning.](https://quranwbw.com/29/38)
+* __Surah Al-Ankabut 29/38__: [وَعَادًۭا وَثَمُودَا۟ وَقَد تَّبَيَّنَ لَكُم مِّن مَّسَـٰكِنِهِمْ ۖ وَزَيَّنَ لَهُمُ ٱلشَّيْطَـٰنُ أَعْمَـٰلَهُمْ فَصَدَّهُمْ عَنِ ٱلسَّبِيلِ وَكَانُوا۟ مُسْتَبْصِرِينَ](https://quran.com/29/38)
 
 ***
 
-* __Surah Luqman 31/21__: [When it is said to them, “Follow what Allah has revealed,” they reply, “No! We ˹only˺ follow what we found our forefathers practicing.” ˹Would they still do so˺ even if Satan is inviting them to the torment of the Blaze?](https://quranwbw.com/31/21)
+* __Surah Luqman 31/21__: [وَإِذَا قِيلَ لَهُمُ ٱتَّبِعُوا۟ مَآ أَنزَلَ ٱللَّهُ قَالُوا۟ بَلْ نَتَّبِعُ مَا وَجَدْنَا عَلَيْهِ ءَابَآءَنَآ ۚ أَوَلَوْ كَانَ ٱلشَّيْطَـٰنُ يَدْعُوهُمْ إِلَىٰ عَذَابِ ٱلسَّعِيرِ](https://quran.com/31/21)
 
 ***
 
-### The Originator
-* __Surah Fatir 35/6__: [Surely Satan is an enemy to you, so take him as an enemy. He only invites his followers to become inmates of the Blaze.](https://quranwbw.com/35/6)
+* __Surah Fatir 35/6__: [إِنَّ ٱلشَّيْطَـٰنَ لَكُمْ عَدُوٌّۭ فَٱتَّخِذُوهُ عَدُوًّا ۚ إِنَّمَا يَدْعُوا۟ حِزْبَهُۥ لِيَكُونُوا۟ مِنْ أَصْحَـٰبِ ٱلسَّعِيرِ](https://quran.com/35/6)
 
 ***
 
-* __Surah Ya-Sin 36/60__: [Did I not command you, O  Children of Adam, not to follow Satan, for he is truly your sworn enemy,](https://quranwbw.com/36/60)
+* __Surah Ya-Sin 36/60__: [۞ أَلَمْ أَعْهَدْ إِلَيْكُمْ يَـٰبَنِىٓ ءَادَمَ أَن لَّا تَعْبُدُوا۟ ٱلشَّيْطَـٰنَ ۖ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/36/60)
 
 ***
 
-### Those  drwan up in Ranks
-* __Surah As-Saffat 37/7__: [and ˹for˺ protection from every rebellious devil.](https://quranwbw.com/37/7)
-* __Surah As-Saffat 37/65__: [bearing fruit like devils’ heads.](https://quranwbw.com/37/65)
+* __Surah As-Saffat 37/7__: [وَحِفْظًۭا مِّن كُلِّ شَيْطَـٰنٍۢ مَّارِدٍۢ](https://quranwbw.com/37/7)
+* __Surah As-Saffat 37/65__: x[طَلْعُهَا كَأَنَّهُۥ رُءُوسُ ٱلشَّيَـٰطِينِ](https://quran.com/37/65)
 
 *** 
 
@@ -186,8 +184,8 @@
 
 *** 
 
-* __Surah Fussilat 41/25__: [We placed at their disposal ˹evil˺ associates who made their past and future ˹misdeeds˺ appealing to them.1 ˹So˺ the fate of earlier communities of jinn and humans has been justified against them ˹as well˺, ˹for˺ they were truly losers.](https://quran.com/41/25)
-* __Surah Fussilat 41/36__: [And if you are tempted by Satan, then seek refuge with Allah. Indeed, He ˹alone˺ is the All-Hearing, All-Knowing.](https://quran.com/41/36)
+* __Surah Fussilat 41/25__: [۞ وَقَيَّضْنَا لَهُمْ قُرَنَآءَ فَزَيَّنُوا۟ لَهُم مَّا بَيْنَ أَيْدِيهِمْ وَمَا خَلْفَهُمْ وَحَقَّ عَلَيْهِمُ ٱلْقَوْلُ فِىٓ أُمَمٍۢ قَدْ خَلَتْ مِن قَبْلِهِم مِّنَ ٱلْجِنِّ وَٱلْإِنسِ ۖ إِنَّهُمْ كَانُوا۟ خَـٰسِرِينَ](https://quran.com/41/25)
+* __Surah Fussilat 41/36__: [وَإِمَّا يَنزَغَنَّكَ مِنَ ٱلشَّيْطَـٰنِ نَزْغٌۭ فَٱسْتَعِذْ بِٱللَّهِ ۖ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/41/36)
 
 *** 
 
@@ -202,7 +200,7 @@
 
 *** 
 
-* __Surah Qaaf 50/23__: [وَقَالَ قَرِينُهُۥ هَـٰذَا مَا لَدَىَّ عَتِيدٌ](https://quran.com/50/23]
+* __Surah Qaaf 50/23__: [وَقَالَ قَرِينُهُۥ هَـٰذَا مَا لَدَىَّ عَتِيدٌ](https://quran.com/50/23)
 * __Surah Qaaf 50/27-29 (۞ قَالَ قَرِينُهُۥ رَبَّنَا مَآ أَطْغَيْتُهُۥ وَلَـٰكِن كَانَ فِى ضَلَـٰلٍۭ بَعِيدٍۢ)__: [۞ قَالَ قَرِينُهُۥ رَبَّنَا مَآ أَطْغَيْتُهُۥ وَلَـٰكِن كَانَ فِى ضَلَـٰلٍۭ بَعِيدٍۢ...قَالَ لَا تَخْتَصِمُوا۟ لَدَىَّ وَقَدْ قَدَّمْتُ إِلَيْكُم بِٱلْوَعِيدِ...مَا يُبَدَّلُ ٱلْقَوْلُ لَدَىَّ وَمَآ أَنَا۠ بِظَلَّـٰمٍۢ لِّلْعَبِيدِ](https://quran.com/50/27-29)
 
 *** 

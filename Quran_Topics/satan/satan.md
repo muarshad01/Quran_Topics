@@ -35,8 +35,8 @@
 
 ***
 
-* __Surah Al-Ma'idah 5/90__: [O believers! Intoxicants, gambling, idols, and drawing lots for decisions1 are all evil of Satan’s handiwork. So shun them so you may be successful.](https://quranwbw.com/5/90)
-* __Surah Al-Ma'idah 5/91__: [Satan’s plan is to stir up hostility and hatred between you with intoxicants and gambling and to prevent you from remembering Allah and praying. Will you not then abstain?](https://quranwbw.com/5/91)
+* __Surah Al-Ma'idah 5/90__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوٓا۟ إِنَّمَا ٱلْخَمْرُ وَٱلْمَيْسِرُ وَٱلْأَنصَابُ وَٱلْأَزْلَـٰمُ رِجْسٌۭ مِّنْ عَمَلِ ٱلشَّيْطَـٰنِ فَٱجْتَنِبُوهُ لَعَلَّكُمْ تُفْلِحُونَ](https://quran.com/5/90)
+* __Surah Al-Ma'idah 5/91__: [إِنَّمَا يُرِيدُ ٱلشَّيْطَـٰنُ أَن يُوقِعَ بَيْنَكُمُ ٱلْعَدَٰوَةَ وَٱلْبَغْضَآءَ فِى ٱلْخَمْرِ وَٱلْمَيْسِرِ وَيَصُدَّكُمْ عَن ذِكْرِ ٱللَّهِ وَعَنِ ٱلصَّلَوٰةِ ۖ فَهَلْ أَنتُم مُّنتَهُونَ ٩١](https://quran.com/5/91)
 
 ***
 
@@ -77,14 +77,13 @@
 
 ***
 
-* __Surah Ibrahim 14/22__: [And Satan will say ˹to his followers˺ after the judgment has been passed, “Indeed, Allah has made you a true promise. I too made you a promise, but I failed you. I did not have any authority over you. I only called you, and you responded to me. So do not blame me; blame yourselves. I cannot save you, nor can you save me. Indeed, I denounce your previous association of me with Allah ˹in loyalty˺. Surely the wrongdoers will suffer a painful punishment.”](https://quranwbw.com/14/22)
+* __Surah Ibrahim 14/22__: [وَقَالَ ٱلشَّيْطَـٰنُ لَمَّا قُضِىَ ٱلْأَمْرُ إِنَّ ٱللَّهَ وَعَدَكُمْ وَعْدَ ٱلْحَقِّ وَوَعَدتُّكُمْ فَأَخْلَفْتُكُمْ ۖ وَمَا كَانَ لِىَ عَلَيْكُم مِّن سُلْطَـٰنٍ إِلَّآ أَن دَعَوْتُكُمْ فَٱسْتَجَبْتُمْ لِى ۖ فَلَا تَلُومُونِى وَلُومُوٓا۟ أَنفُسَكُم ۖ مَّآ أَنَا۠ بِمُصْرِخِكُمْ وَمَآ أَنتُم بِمُصْرِخِىَّ ۖ إِنِّى كَفَرْتُ بِمَآ أَشْرَكْتُمُونِ مِن قَبْلُ ۗ إِنَّ ٱلظَّـٰلِمِينَ لَهُمْ عَذَابٌ أَلِيمٌۭ](https://quran.com/14/22)
 
 ***
 
-### The Rock
-* __Surah Al-Hijr 15/17__: [And We protected it from every accursed devil,](https://quranwbw.com/15/17)
-* __Surah Al-Hijr 15/14-15__: [And even if We opened for them a gate to heaven, through which they continued to ascend,](https://quranwbw.com/15/14-15)
-* __Surah Al-Hijr 15/40-42 (Al-mukh'lasina)__: [(40) Except Your chosen servants among them.” (41) Allah said, “This is the Way, binding on Me: (42) you will certainly have no authority over My servants, except the deviant who follow you,](https://quranwbw.com/15/40-42)
+* __Surah Al-Hijr 15/17__: [وَحَفِظْنَـٰهَا مِن كُلِّ شَيْطَـٰنٍۢ رَّجِيمٍ](https://quran.com/15/17)
+* __Surah Al-Hijr 15/14-15__: [وَلَوْ فَتَحْنَا عَلَيْهِم بَابًۭا مِّنَ ٱلسَّمَآءِ فَظَلُّوا۟ فِيهِ يَعْرُجُونَ...لَقَالُوٓا۟ إِنَّمَا سُكِّرَتْ أَبْصَـٰرُنَا بَلْ نَحْنُ قَوْمٌۭ مَّسْحُورُونَ ١٥](https://quran.com/15/14-15)
+* __Surah Al-Hijr 15/40-42 (إِلَّا عِبَادَكَ مِنْهُمُ ٱلْمُخْلَصِينَ)__: [إِلَّا عِبَادَكَ مِنْهُمُ ٱلْمُخْلَصِينَ...قَالَ هَـٰذَا صِرَٰطٌ عَلَىَّ مُسْتَقِيمٌ...إِنَّ عِبَادِى لَيْسَ لَكَ عَلَيْهِمْ سُلْطَـٰنٌ إِلَّا مَنِ ٱتَّبَعَكَ مِنَ ٱلْغَاوِينَ](https://quran.com/15/40-42)
 
 ***
 

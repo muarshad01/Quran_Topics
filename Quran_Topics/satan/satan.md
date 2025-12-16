@@ -40,13 +40,13 @@
 
 ***
 
-* __Surah Al-Anam 6/43__: [Why did they not humble themselves when We made them suffer? Instead, their hearts were hardened, and Satan made their misdeeds appealing to them.](https://quran.com/6/43)
-* __Surah Al-Anam 6/68__: [And when you come across those who ridicule Our revelations, do not sit with them unless they engage in a different topic. Should Satan make you forget, then once you remember, do not ˹continue to˺ sit with the wrongdoing people.](https://quran.com/6/68)
-* __Surah Al-Anam 6/71__: [Ask ˹them, O  Prophet˺, “Should we invoke, other than Allah, those ˹idols˺ which cannot benefit or harm us, and turn back to disbelief after Allah has guided us? ˹If we do so, we will be˺ like those disoriented by devils in the wilderness, while their companions call them to guidance, ˹saying˺, ‘Come to us!’ Say, ˹O Prophet,˺ “Allah’s guidance is the ˹only˺ true guidance. And we are commanded to submit to the Lord of all worlds,](https://quran.com/6/71)
-* __Surah Al-Anam 6/112__: [And so We have made for every prophet enemies—devilish humans and jinn—whispering to one another with elegant words of deception. Had it been your Lord’s Will, they would not have done such a thing. So leave them and their deceit,](https://quran.com/6/112)
-* __Surah Al-Anam 6/121__: [Do not eat of what is not slaughtered in Allah’s Name. For that would certainly be ˹an act of˺ disobedience. Surely the devils whisper to their ˹human˺ associates to argue with you.1 If you were to obey them, then you ˹too˺ would be polytheists.](https://quran.com/6/121)
-* __Surah Al-Anam 6/142__: [Some cattle are fit for labour, others are too small.1 Eat of what Allah has provided for you and do not follow Satan’s footsteps. Certainly, he is your sworn enemy.](https://quran.com/6/142)
-* __Surah Al-Anam 6/22-24__: [˹Consider˺ the Day We will gather them all together then ask those who associated others ˹with Allah in worship˺, “Where are those gods you used to claim?”](https://quran.com/6/22-24)
+* __Surah Al-Anam 6/43__: [فَلَوْلَآ إِذْ جَآءَهُم بَأْسُنَا تَضَرَّعُوا۟ وَلَـٰكِن قَسَتْ قُلُوبُهُمْ وَزَيَّنَ لَهُمُ ٱلشَّيْطَـٰنُ مَا كَانُوا۟ يَعْمَلُونَ ٤٣](https://quran.com/6/43)
+* __Surah Al-Anam 6/68__: [وَإِذَا رَأَيْتَ ٱلَّذِينَ يَخُوضُونَ فِىٓ ءَايَـٰتِنَا فَأَعْرِضْ عَنْهُمْ حَتَّىٰ يَخُوضُوا۟ فِى حَدِيثٍ غَيْرِهِۦ ۚ وَإِمَّا يُنسِيَنَّكَ ٱلشَّيْطَـٰنُ فَلَا تَقْعُدْ بَعْدَ ٱلذِّكْرَىٰ مَعَ ٱلْقَوْمِ ٱلظَّـٰلِمِينَ ٦٨](https://quran.com/6/68)
+* __Surah Al-Anam 6/71__: [قُلْ أَنَدْعُوا۟ مِن دُونِ ٱللَّهِ مَا لَا يَنفَعُنَا وَلَا يَضُرُّنَا وَنُرَدُّ عَلَىٰٓ أَعْقَابِنَا بَعْدَ إِذْ هَدَىٰنَا ٱللَّهُ كَٱلَّذِى ٱسْتَهْوَتْهُ ٱلشَّيَـٰطِينُ فِى ٱلْأَرْضِ حَيْرَانَ لَهُۥٓ أَصْحَـٰبٌۭ يَدْعُونَهُۥٓ إِلَى ٱلْهُدَى ٱئْتِنَا ۗ قُلْ إِنَّ هُدَى ٱللَّهِ هُوَ ٱلْهُدَىٰ ۖ وَأُمِرْنَا لِنُسْلِمَ لِرَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/6/71)
+* __Surah Al-Anam 6/112__: [وَكَذَٰلِكَ جَعَلْنَا لِكُلِّ نَبِىٍّ عَدُوًّۭا شَيَـٰطِينَ ٱلْإِنسِ وَٱلْجِنِّ يُوحِى بَعْضُهُمْ إِلَىٰ بَعْضٍۢ زُخْرُفَ ٱلْقَوْلِ غُرُورًۭا ۚ وَلَوْ شَآءَ رَبُّكَ مَا فَعَلُوهُ ۖ فَذَرْهُمْ وَمَا يَفْتَرُونَ](https://quran.com/6/112)
+* __Surah Al-Anam 6/121__: [وَلَا تَأْكُلُوا۟ مِمَّا لَمْ يُذْكَرِ ٱسْمُ ٱللَّهِ عَلَيْهِ وَإِنَّهُۥ لَفِسْقٌۭ ۗ وَإِنَّ ٱلشَّيَـٰطِينَ لَيُوحُونَ إِلَىٰٓ أَوْلِيَآئِهِمْ لِيُجَـٰدِلُوكُمْ ۖ وَإِنْ أَطَعْتُمُوهُمْ إِنَّكُمْ لَمُشْرِكُونَ](https://quran.com/6/121)
+* __Surah Al-Anam 6/142__: [وَمِنَ ٱلْأَنْعَـٰمِ حَمُولَةًۭ وَفَرْشًۭا ۚ كُلُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ وَلَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/6/142)
+* __Surah Al-Anam 6/22-24__: [وَيَوْمَ نَحْشُرُهُمْ جَمِيعًۭا ثُمَّ نَقُولُ لِلَّذِينَ أَشْرَكُوٓا۟ أَيْنَ شُرَكَآؤُكُمُ ٱلَّذِينَ كُنتُمْ تَزْعُمُونَ...ثُمَّ لَمْ تَكُن فِتْنَتُهُمْ إِلَّآ أَن قَالُوا۟ وَٱللَّهِ رَبِّنَا مَا كُنَّا مُشْرِكِينَ...ٱنظُرْ كَيْفَ كَذَبُوا۟ عَلَىٰٓ أَنفُسِهِمْ ۚ وَضَلَّ عَنْهُم مَّا كَانُوا۟ يَفْتَرُونَ](https://quran.com/6/22-24)
 
 ***
 

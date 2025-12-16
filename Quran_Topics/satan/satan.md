@@ -213,10 +213,9 @@
 
 *** 
 
-###  Al-Mujadila: The Pleading Woman
-* __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quranwbw.com/58/10)
+* __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quran.com/58/10)
     * Najwa in Arabic means to talk with someone in private.
-* __Surah Al-Mujadila 58/19 (Satan made them forget)__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quranwbw.com/58/19)
+* __Surah Al-Mujadila 58/19 (Satan made them forget)__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quran.com/58/19)
     * "is'tahwadha", is related to the Arabic word istawa (استوى),
     * meaning subjugating or taking control over, particularly in the context of Allah's control over His creation.  
 
@@ -226,7 +225,7 @@
 
 *** 
 
-* __Surah Al-Mulk 67/5__: [وَلَقَدْ زَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا بِمَصَـٰبِيحَ وَجَعَلْنَـٰهَا رُجُومًۭا لِّلشَّيَـٰطِينِ ۖ وَأَعْتَدْنَا لَهُمْ عَذَابَ ٱلسَّعِيرِ](https://quranwbw.com/67/5)
+* __Surah Al-Mulk 67/5__: [وَلَقَدْ زَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا بِمَصَـٰبِيحَ وَجَعَلْنَـٰهَا رُجُومًۭا لِّلشَّيَـٰطِينِ ۖ وَأَعْتَدْنَا لَهُمْ عَذَابَ ٱلسَّعِيرِ](https://quran.com/67/5)
 
 ***
 

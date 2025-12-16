@@ -5,3 +5,5 @@
 #### [Hazrat Saleh (AS) ne apni qaum ko Allah ka hukm](https://www.youtube.com/watch?v=bQ1ywzakTz0)
 
 ***
+
+* __Surah Al-Ankabut 29/38__: [وَعَادًۭا وَثَمُودَا۟ وَقَد تَّبَيَّنَ لَكُم مِّن مَّسَـٰكِنِهِمْ ۖ وَزَيَّنَ لَهُمُ ٱلشَّيْطَـٰنُ أَعْمَـٰلَهُمْ فَصَدَّهُمْ عَنِ ٱلسَّبِيلِ وَكَانُوا۟ مُسْتَبْصِرِينَ](https://quran.com/29/38)

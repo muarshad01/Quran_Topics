@@ -123,31 +123,28 @@
 
 ***
 
-* __Surah Al-Mu'minun 23/97__: [And say, “My Lord! I seek refuge in You from the temptations of the devils.](https://quranwbw.com/23/97)
+* __Surah Al-Mu'minun 23/97__: [وَقُل رَّبِّ أَعُوذُ بِكَ مِنْ هَمَزَٰتِ ٱلشَّيَـٰطِينِ](https://quran.com/23/97)
 
 ***
 
-* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
+* __Surah An-Nur 24/21__: [۞ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ وَمَن يَتَّبِعْ خُطُوَٰتِ ٱلشَّيْطَـٰنِ فَإِنَّهُۥ يَأْمُرُ بِٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۚ وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ مَا زَكَىٰ مِنكُم مِّنْ أَحَدٍ أَبَدًۭا وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ وَٱللَّهُ سَمِيعٌ عَلِيمٌۭ](https://quran.com/24/21)
 
 ***
 
-* __Surah Al-Furqan 25/29__: [It was he who truly made me stray from the Reminder after it had reached me.” And Satan has always betrayed humanity.](https://quranwbw.com/25/29)
+* __Surah Al-Furqan 25/29__: [لَّقَدْ أَضَلَّنِى عَنِ ٱلذِّكْرِ بَعْدَ إِذْ جَآءَنِى ۗ وَكَانَ ٱلشَّيْطَـٰنُ لِلْإِنسَـٰنِ خَذُولًۭا](https://quran.com/25/29)
 
 ***
 
-### The Poets
-* __Surah Ash-Shu'ara 26/210__: [It was not the devils who brought this ˹Quran˺ down:](https://quranwbw.com/26/210)
-* __Surah Ash-Shu'ara Ayat 221__: [Shall I inform you of whom the devils ˹actually˺ descend upon?](https://quranwbw.com/26/221)
+* __Surah Ash-Shu'ara 26/210__: [وَمَا تَنَزَّلَتْ بِهِ ٱلشَّيَـٰطِينُ](https://quran.com/26/210)
+* __Surah Ash-Shu'ara 26/221__: [هَلْ أُنَبِّئُكُمْ عَلَىٰ مَن تَنَزَّلُ ٱلشَّيَـٰطِينُ](https://quran.com/26/221)
 
 ***
 
-### The Ant
-* __Surah An-Naml 27/24__: [I found her and her people prostrating to the sun instead of Allah. For Satan has made their deeds appealing to them—hindering them from the ˹Right˺ Way and leaving them unguided—](https://quranwbw.com/27/24)
+* __Surah An-Naml 27/24__: [وَجَدتُّهَا وَقَوْمَهَا يَسْجُدُونَ لِلشَّمْسِ مِن دُونِ ٱللَّهِ وَزَيَّنَ لَهُمُ ٱلشَّيْطَـٰنُ أَعْمَـٰلَهُمْ فَصَدَّهُمْ عَنِ ٱلسَّبِيلِ فَهُمْ لَا يَهْتَدُونَ](https://quran.com/27/24)
 
 ***
 
-### Murder by Prophet Musa AS
-* __Surah Al-Qasas (The Stories) 28/15__: [˹One day˺ he entered the city unnoticed by its people.1 There he found two men fighting: one of his own people, and the other of his enemies. The man from his people called to him for help against his foe. So Moses punched him, causing his death. Moses cried, “This is from Satan’s handiwork. He is certainly a sworn, misleading enemy.”](https://quranwbw.com/28/15)
+* __Surah Al-Qasas (The Stories) 28/15__: [وَدَخَلَ ٱلْمَدِينَةَ عَلَىٰ حِينِ غَفْلَةٍۢ مِّنْ أَهْلِهَا فَوَجَدَ فِيهَا رَجُلَيْنِ يَقْتَتِلَانِ هَـٰذَا مِن شِيعَتِهِۦ وَهَـٰذَا مِنْ عَدُوِّهِۦ ۖ فَٱسْتَغَـٰثَهُ ٱلَّذِى مِن شِيعَتِهِۦ عَلَى ٱلَّذِى مِنْ عَدُوِّهِۦ فَوَكَزَهُۥ مُوسَىٰ فَقَضَىٰ عَلَيْهِ ۖ قَالَ هَـٰذَا مِنْ عَمَلِ ٱلشَّيْطَـٰنِ ۖ إِنَّهُۥ عَدُوٌّۭ مُّضِلٌّۭ مُّبِينٌۭ](https://quran.com/28/15)
 
 ***
 

@@ -85,33 +85,31 @@
 
 ***
 
-### The Bee
-* __Surah An-Nahl 16/63__: [By Allah! We have surely sent messengers to communities before you ˹O Prophet˺, but Satan made their misdeeds appealing to them. So he is their patron today, and they will suffer a painful punishment.](https://quranwbw.com/16/63)
+* __Surah An-Nahl 16/63__: [تَٱللَّهِ لَقَدْ أَرْسَلْنَآ إِلَىٰٓ أُمَمٍۢ مِّن قَبْلِكَ فَزَيَّنَ لَهُمُ ٱلشَّيْطَـٰنُ أَعْمَـٰلَهُمْ فَهُوَ وَلِيُّهُمُ ٱلْيَوْمَ وَلَهُمْ عَذَابٌ أَلِيمٌۭ](https://quran.com/16/63)
  
-* __Surah An-Nahl 16/98 (Fasta'iz billaahi minashh Shai-taanir rajeem)__: [When you recite the Quran, seek refuge with Allah from Satan, the accursed.](https://quranwbw.com/16/98)
+* __Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ ٩٨](https://quran.com/16/98)
 
 ***
 
-### The Nigh Journey
-* __Surah Al-Isra 17/27__: [Surely the wasteful are ˹like˺ brothers to the devils. And the Devil is ever ungrateful to his Lord.](https://quranwbw.com/17/27)
-* __Surah Al-Isra 17/53__: [Tell My ˹believing˺ servants to say only what is best. Satan certainly seeks to sow discord among them. Satan is indeed a sworn enemy to humankind.](https://quranwbw.com/17/53)
-* __Surah Al-Isra 17/64 (Delusion as a Promise)__: [And incite whoever you can of them with your voice, mobilize against them all your cavalry and infantry, manipulate them in their wealth and children, and make them promises.” But Satan promises them nothing but delusion.](https://quranwbw.com/17/64)
+* __Surah Al-Isra 17/27__: [إِنَّ ٱلْمُبَذِّرِينَ كَانُوٓا۟ إِخْوَٰنَ ٱلشَّيَـٰطِينِ ۖ وَكَانَ ٱلشَّيْطَـٰنُ لِرَبِّهِۦ كَفُورًۭا](https://quran.com/17/27)
+* __Surah Al-Isra 17/53__: [وَقُل لِّعِبَادِى يَقُولُوا۟ ٱلَّتِى هِىَ أَحْسَنُ ۚ إِنَّ ٱلشَّيْطَـٰنَ يَنزَغُ بَيْنَهُمْ ۚ إِنَّ ٱلشَّيْطَـٰنَ كَانَ لِلْإِنسَـٰنِ عَدُوًّۭا مُّبِينًۭا](https://quran.com/17/53)
+* __Surah Al-Isra 17/64 (وَمَا يَعِدُهُمُ ٱلشَّيْطَـٰنُ إِلَّا غُرُورًا)__: [وَٱسْتَفْزِزْ مَنِ ٱسْتَطَعْتَ مِنْهُم بِصَوْتِكَ وَأَجْلِبْ عَلَيْهِم بِخَيْلِكَ وَرَجِلِكَ وَشَارِكْهُمْ فِى ٱلْأَمْوَٰلِ وَٱلْأَوْلَـٰدِ وَعِدْهُمْ ۚ وَمَا يَعِدُهُمُ ٱلشَّيْطَـٰنُ إِلَّا غُرُورًا](https://quran.com/17/64)
 
 ***
 
-* __Surah Al-Kahf 18/63__: [He replied, “Do you remember when we rested by the rock? ˹That is when˺ I forgot the fish. None made me forget to mention this except Satan. And the fish made its way into the sea miraculously.”](https://quranwbw.com/18/63)
-* __Surah Al-Kahf 18/50-51__: [(50) And ˹remember˺ when We said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs,1 who was one of the jinn, but he rebelled against the command of his Lord. Would you then take him and his descendants as patrons instead of Me, although they are your enemy? What an evil alternative for the wrongdoers ˹to choose˺! (51) I never called them to witness the creation of the heavens and the earth or ˹even˺ their own creation, nor would I take the misleaders as helpers.](https://quranwbw.com/18/50-51)
+* __Surah Al-Kahf 18/63__: [قَالَ أَرَءَيْتَ إِذْ أَوَيْنَآ إِلَى ٱلصَّخْرَةِ فَإِنِّى نَسِيتُ ٱلْحُوتَ وَمَآ أَنسَىٰنِيهُ إِلَّا ٱلشَّيْطَـٰنُ أَنْ أَذْكُرَهُۥ ۚ وَٱتَّخَذَ سَبِيلَهُۥ فِى ٱلْبَحْرِ عَجَبًۭا](https://quran.com/18/63)
+* __Surah Al-Kahf 18/50-51__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ كَانَ مِنَ ٱلْجِنِّ فَفَسَقَ عَنْ أَمْرِ رَبِّهِۦٓ ۗ أَفَتَتَّخِذُونَهُۥ وَذُرِّيَّتَهُۥٓ أَوْلِيَآءَ مِن دُونِى وَهُمْ لَكُمْ عَدُوٌّۢ ۚ بِئْسَ لِلظَّـٰلِمِينَ بَدَلًۭا...۞ مَّآ أَشْهَدتُّهُمْ خَلْقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَلَا خَلْقَ أَنفُسِهِمْ وَمَا كُنتُ مُتَّخِذَ ٱلْمُضِلِّينَ عَضُدًۭا](https://quran.com/18/50-51)
 
 ***
 
-* __Surah Maryam 19/44__: [O  dear father! Do not worship Satan. Surely Satan is ever rebellious against the Most Compassionate.](https://quran.com/19/44)
-* __Surah Maryam 19/45__: [O  dear father! I truly fear that you will be touched by a torment from the Most Compassionate, and become Satan’s companion ˹in Hell˺.”](https://quran.com/19/45)
-* __Surah Maryam 19/68__: [By your Lord ˹O Prophet˺! We will surely gather them along with the devils, and then set them around Hell on their knees.](https://quran.com/19/68)
-* __Surah Maryam 19/83__: [Do you ˹O Prophet˺ not see that We have sent the devils against the disbelievers, constantly inciting them?](https://quran.com/19/83)
+* __Surah Maryam 19/44__: [يَـٰٓأَبَتِ لَا تَعْبُدِ ٱلشَّيْطَـٰنَ ۖ إِنَّ ٱلشَّيْطَـٰنَ كَانَ لِلرَّحْمَـٰنِ عَصِيًّۭا](https://quran.com/19/44)
+* __Surah Maryam 19/45__: [يَـٰٓأَبَتِ إِنِّىٓ أَخَافُ أَن يَمَسَّكَ عَذَابٌۭ مِّنَ ٱلرَّحْمَـٰنِ فَتَكُونَ لِلشَّيْطَـٰنِ وَلِيًّۭا](https://quran.com/19/45)
+* __Surah Maryam 19/68__: [فَوَرَبِّكَ لَنَحْشُرَنَّهُمْ وَٱلشَّيَـٰطِينَ ثُمَّ لَنُحْضِرَنَّهُمْ حَوْلَ جَهَنَّمَ جِثِيًّۭا](https://quran.com/19/68)
+* __Surah Maryam 19/83__: [أَلَمْ تَرَ أَنَّآ أَرْسَلْنَا ٱلشَّيَـٰطِينَ عَلَى ٱلْكَـٰفِرِينَ تَؤُزُّهُمْ أَزًّۭا](https://quran.com/19/83)
 
 ***
 
-* __Surah Ta-Ha 20/120__: [But Satan whispered to him, saying, “O Adam! Shall I show you the Tree of Immortality and a kingdom that does not fade away?”](https://quranwbw.com/20/120)
+* __Surah Ta-Ha 20/120__: [فَوَسْوَسَ إِلَيْهِ ٱلشَّيْطَـٰنُ قَالَ يَـٰٓـَٔادَمُ هَلْ أَدُلُّكَ عَلَىٰ شَجَرَةِ ٱلْخُلْدِ وَمُلْكٍۢ لَّا يَبْلَىٰ](https://quran.com/20/120)
 
 ***
 

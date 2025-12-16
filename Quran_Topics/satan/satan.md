@@ -113,7 +113,7 @@
 
 ***
 
-* __Surah Al-Anbiya 21/82__: [And ˹We subjected˺ some jinn1 that dived for him,2 and performed other duties. It is We Who kept them in check.](https://quranwbw.com/21/82)
+* __Surah Al-Anbiya 21/82__: [وَمِنَ ٱلشَّيَـٰطِينِ مَن يَغُوصُونَ لَهُۥ وَيَعْمَلُونَ عَمَلًۭا دُونَ ذَٰلِكَ ۖ وَكُنَّا لَهُمْ حَـٰفِظِينَ](https://quran.com/21/82)
 
 ***
 
@@ -181,9 +181,9 @@
 
 *** 
 
-* __Surah Az-Zukhruf 43/36__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quran.com/43/36)
-* __Surah Az-Zukhruf 43/62__: [And do not let Satan hinder you, ˹for˺ he is certainly your sworn enemy.](https://quran.com/43/62)
-* __Surah Az-Zukhruf 43/37-38__: [(38) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (39) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quran.com/43/37-38)
+* __Surah Az-Zukhruf 43/36__: [وَمَن يَعْشُ عَن ذِكْرِ ٱلرَّحْمَـٰنِ نُقَيِّضْ لَهُۥ شَيْطَـٰنًۭا فَهُوَ لَهُۥ قَرِينٌۭ](https://quran.com/43/36)
+* __Surah Az-Zukhruf 43/62__: [وَلَا يَصُدَّنَّكُمُ ٱلشَّيْطَـٰنُ ۖ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/43/62)
+* __Surah Az-Zukhruf 43/37-38__: [وَإِنَّهُمْ لَيَصُدُّونَهُمْ عَنِ ٱلسَّبِيلِ وَيَحْسَبُونَ أَنَّهُم مُّهْتَدُونَ...حَتَّىٰٓ إِذَا جَآءَنَا قَالَ يَـٰلَيْتَ بَيْنِى وَبَيْنَكَ بُعْدَ ٱلْمَشْرِقَيْنِ فَبِئْسَ ٱلْقَرِينُ](https://quran.com/43/37-38)
 
 *** 
 

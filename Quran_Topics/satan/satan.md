@@ -8,6 +8,14 @@
 
 ***
 
+#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
+
+***
+
+#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
+
+***
+
 * __Surah Al-Baqarah 2/14__: [وَإِذَا لَقُوا۟ ٱلَّذِينَ ءَامَنُوا۟ قَالُوٓا۟ ءَامَنَّا وَإِذَا خَلَوْا۟ إِلَىٰ شَيَـٰطِينِهِمْ قَالُوٓا۟ إِنَّا مَعَكُمْ إِنَّمَا نَحْنُ مُسْتَهْزِءُونَ](https://quran.com/2/14)
 * __Surah Al-Baqarah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
 * __Surah Al-Baqarah 2/36__: [فَأَزَلَّهُمَا ٱلشَّيْطَـٰنُ عَنْهَا فَأَخْرَجَهُمَا مِمَّا كَانَا فِيهِ ۖ وَقُلْنَا ٱهْبِطُوا۟ بَعْضُكُمْ لِبَعْضٍ عَدُوٌّۭ ۖ وَلَكُمْ فِى ٱلْأَرْضِ مُسْتَقَرٌّۭ وَمَتَـٰعٌ إِلَىٰ حِينٍۢ](https://quran.com/2/36)
@@ -219,16 +227,6 @@
 
 
 #### [Qur'an verses on shataan](https://myislam.org/quran-verses/shaitan/)
-
-***
-
-## SSA Shah
-
-#### [How-to-shield your deeds from Shataan? | SSA Shah](https://www.youtube.com/shorts/ZvCFMMSwVPI)
-
-***
-
-#### [Shataan can't Mislead You | SSA Shah](https://www.youtube.com/watch?v=hPJkoHOnIBg)
 
 ***
 

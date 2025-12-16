@@ -179,43 +179,41 @@
 
 *** 
 
-* __Surah Sad 38/37__: [And ˹We subjected to him˺ every builder and diver1 of the jinn,](https://quran.com/38/37)
-* __Surah Sad 38/41__: [And remember Our servant Job, when he cried out to his Lord, “Satan has afflicted me with distress and suffering.”](https://quran.com/38/41)
-* __Surah Sad 38/74-75__: [but not Iblîs, who acted arrogantly,2 becoming unfaithful.](https://quran.com/38/74-75)
-* __Surah Sad 38/82-83 (Satan Challenge)__: [Satan said, “By Your Glory! I will certainly mislead them all,](https://quran.com/38/82-83)
+* __Surah Saad 38/37__: [وَٱلشَّيَـٰطِينَ كُلَّ بَنَّآءٍۢ وَغَوَّاصٍۢ](https://quran.com/38/37)
+* __Surah Saad 38/41 (Ayub AS dua)__: [وَٱذْكُرْ عَبْدَنَآ أَيُّوبَ إِذْ نَادَىٰ رَبَّهُۥٓ أَنِّى مَسَّنِىَ ٱلشَّيْطَـٰنُ بِنُصْبٍۢ وَعَذَابٍ](https://quran.com/38/41)
+* __Surah Saad 38/74-75 (Satan Sajda: يَـٰٓإِبْلِيسُ مَا مَنَعَكَ أَن تَسْجُدَ)__: [إِلَّآ إِبْلِيسَ ٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ...قَالَ يَـٰٓإِبْلِيسُ مَا مَنَعَكَ أَن تَسْجُدَ لِمَا خَلَقْتُ بِيَدَىَّ ۖ أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ](https://quran.com/38/74-75)
+* __Surah Saad 38/82-83 (Satan Challenge)__: [قَالَ فَبِعِزَّتِكَ لَأُغْوِيَنَّهُمْ أَجْمَعِينَ...إِلَّا عِبَادَكَ مِنْهُمُ ٱلْمُخْلَصِينَ](https://quran.com/38/82-83)
 
 *** 
 
-### Explained in Detail
-* __Surah Fussilat 41/25__: [We placed at their disposal ˹evil˺ associates who made their past and future ˹misdeeds˺ appealing to them.1 ˹So˺ the fate of earlier communities of jinn and humans has been justified against them ˹as well˺, ˹for˺ they were truly losers.](https://quranwbw.com/41/25)
-* __Surah Fussilat 41/36__: [And if you are tempted by Satan, then seek refuge with Allah. Indeed, He ˹alone˺ is the All-Hearing, All-Knowing.](https://quranwbw.com/41/36)
+* __Surah Fussilat 41/25__: [We placed at their disposal ˹evil˺ associates who made their past and future ˹misdeeds˺ appealing to them.1 ˹So˺ the fate of earlier communities of jinn and humans has been justified against them ˹as well˺, ˹for˺ they were truly losers.](https://quran.com/41/25)
+* __Surah Fussilat 41/36__: [And if you are tempted by Satan, then seek refuge with Allah. Indeed, He ˹alone˺ is the All-Hearing, All-Knowing.](https://quran.com/41/36)
 
 *** 
 
-### Ornaments of Gold
-* __Surah Az-Zukhruf 43/36__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quranwbw.com/43/36)
-* __Surah Az-Zukhruf 43/62__: [And do not let Satan hinder you, ˹for˺ he is certainly your sworn enemy.](https://quranwbw.com/43/62)
-* __Surah Az-Zukhruf 43/37-38__: [(38) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (39) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quranwbw.com/43/37-38)
+* __Surah Az-Zukhruf 43/36__: [And whoever turns a blind eye to the Reminder of the Most Compassionate, We place at the disposal of each a devilish one as their close associate,](https://quran.com/43/36)
+* __Surah Az-Zukhruf 43/62__: [And do not let Satan hinder you, ˹for˺ he is certainly your sworn enemy.](https://quran.com/43/62)
+* __Surah Az-Zukhruf 43/37-38__: [(38) who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided. (39) But when such a person comes to Us, one will say ˹to their associate˺, “I wish you were as distant from me as the east is from the west! What an evil associate ˹you were˺!”](https://quran.com/43/37-38)
 
 *** 
 
-* __Surah Muhammad 47/ 25__: [Indeed, those who relapse ˹into disbelief˺ after ˹true˺ guidance has become clear to them, ˹it is˺ Satan ˹that˺ has tempted them, luring them with false hopes.](https://quranwbw.com/47/25)
+* __Surah Muhammad 47/ 25__: [إِنَّ ٱلَّذِينَ ٱرْتَدُّوا۟ عَلَىٰٓ أَدْبَـٰرِهِم مِّنۢ بَعْدِ مَا تَبَيَّنَ لَهُمُ ٱلْهُدَى ۙ ٱلشَّيْطَـٰنُ سَوَّلَ لَهُمْ وَأَمْلَىٰ لَهُمْ](https://quran.com/47/25)
     * "Sawwala" (سَوَّلَ) in Arabic is a verb form II (also known as "form II") that can mean "to make something seem attractive or desirable to someone," "to flatter," or "to incite."
 
 *** 
 
-* __Surah Qaf 50/23__: [](https://quranwbw.com/50/23]
-* __Surah Qaf 50/27-29__: [(27) One’s ˹devilish˺ associate will say, “Our Lord! I did not make them transgress. Rather, they were far astray ˹on their own˺.” (28) Allah will respond, “Do not dispute in My presence, since I had already given you a warning. (29) My Word cannot be changed, nor am I unjust to ˹My˺ creation.”](https://quranwbw.com/50/27-29)
+* __Surah Qaaf 50/23__: [وَقَالَ قَرِينُهُۥ هَـٰذَا مَا لَدَىَّ عَتِيدٌ](https://quran.com/50/23]
+* __Surah Qaaf 50/27-29 (۞ قَالَ قَرِينُهُۥ رَبَّنَا مَآ أَطْغَيْتُهُۥ وَلَـٰكِن كَانَ فِى ضَلَـٰلٍۭ بَعِيدٍۢ)__: [۞ قَالَ قَرِينُهُۥ رَبَّنَا مَآ أَطْغَيْتُهُۥ وَلَـٰكِن كَانَ فِى ضَلَـٰلٍۭ بَعِيدٍۢ...قَالَ لَا تَخْتَصِمُوا۟ لَدَىَّ وَقَدْ قَدَّمْتُ إِلَيْكُم بِٱلْوَعِيدِ...مَا يُبَدَّلُ ٱلْقَوْلُ لَدَىَّ وَمَآ أَنَا۠ بِظَلَّـٰمٍۢ لِّلْعَبِيدِ](https://quran.com/50/27-29)
 
 *** 
 
-* __Surah An-Najm Ayat 19–20__: [Now, have you considered ˹the idols of˺ Lât and ’Uzza, and the third one, Manât, as well?](https://quranwbw.com/53/19-20)
+* __Surah An-Najm Ayat 19–20__: [أَفَرَءَيْتُمُ ٱللَّـٰتَ وَٱلْعُزَّىٰ...وَمَنَوٰةَ ٱلثَّالِثَةَ ٱلْأُخْرَىٰٓ](https://quran.com/53/19-20)
 
 *** 
 
-* __Surah Al-Mujadila 58/10__: [Secret talks are only inspired by Satan to grieve the believers. Yet he cannot harm them whatsoever except by Allah’s Will. So in Allah let the believers put their trust.](https://quran.com/58/10)
+* __Surah Al-Mujadila 58/10 (وَلَيْسَ بِضَآرِّهِمْ شَيْـًٔا إِلَّا بِإِذْنِ ٱللَّهِ ۚ)__: [إِنَّمَا ٱلنَّجْوَىٰ مِنَ ٱلشَّيْطَـٰنِ لِيَحْزُنَ ٱلَّذِينَ ءَامَنُوا۟ وَلَيْسَ بِضَآرِّهِمْ شَيْـًٔا إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quran.com/58/10)
     * Najwa in Arabic means to talk with someone in private.
-* __Surah Al-Mujadila 58/19 (Satan made them forget)__: [Satan has taken hold of them, causing them to forget the remembrance of Allah. They are the party of Satan. Surely Satan’s party is bound to lose.](https://quran.com/58/19)
+* __Surah Al-Mujadila 58/19 (ٱسْتَحْوَذَ عَلَيْهِمُ ٱلشَّيْطَـٰنُ فَأَنسَىٰهُمْ ذِكْرَ ٱللَّهِ ۚ)__: [ٱسْتَحْوَذَ عَلَيْهِمُ ٱلشَّيْطَـٰنُ فَأَنسَىٰهُمْ ذِكْرَ ٱللَّهِ ۚ أُو۟لَـٰٓئِكَ حِزْبُ ٱلشَّيْطَـٰنِ ۚ أَلَآ إِنَّ حِزْبَ ٱلشَّيْطَـٰنِ هُمُ ٱلْخَـٰسِرُونَ](https://quran.com/58/19)
     * "is'tahwadha", is related to the Arabic word istawa (استوى),
     * meaning subjugating or taking control over, particularly in the context of Allah's control over His creation.  
 

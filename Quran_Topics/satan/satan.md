@@ -50,30 +50,28 @@
 
 ***
 
-* __Surah Al-A'raf 7/11__: [Surely We created you,1 then shaped you, then said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs,2 who refused to prostrate with the others.](https://quranwbw.com/7/11)
-* __Surah Al-A'raf 7/12-13__: [Allah asked, “What prevented you from prostrating when I commanded you?” He replied, “I am better than he is: You created me from fire and him from clay.”](https://quranwbw.com/7/12-13)
-* __Surah Al-A'raf 7/17 (All 4-sides)__: [I will approach them from their front, their back, their right, their left, and then You will find most of them ungrateful.”
-](https://quranwbw.com/7/17)
-* __Surah Al-A'raf 7/20__: [Then Satan tempted them in order to expose what was hidden of their nakedness. He said, “Your Lord has forbidden this tree to you only to prevent you from becoming angels or immortals.”](https://quranwbw.com/7/20)
-* __Surah Al-A'raf 7/22__: [So he brought about their fall through deception. And when they tasted of the tree, their nakedness was exposed to them, prompting them to cover themselves with leaves from Paradise. Then their Lord called out to them, “Did I not forbid you from that tree and ˹did I not˺ tell you that Satan is your sworn enemy?”](https://quranwbw.com/7/22)
-* __Surah Al-A'raf 7/27 (Satan sees you from where you can't see them)__: [O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.](https://quranwbw.com/7/27)
-* __Surah Al-A'raf 7/30__: [He has guided some, while others are destined to stray. They have taken devils as their masters instead of Allah—thinking they are ˹rightly˺ guided.](https://quranwbw.com/7/30)
-* __Surah Al-A'raf 7/175__: [And relate to them ˹O Prophet˺ the story of the one to whom We gave Our signs, but he abandoned them, so Satan took hold of him, and he became a deviant.1](https://quranwbw.com/7/175)
-* __Surah Al-A'raf 7/179__: [Indeed, We have destined many jinn and humans for Hell. They have hearts they do not understand with, eyes they do not see with, and ears they do not hear with. They are like cattle. In fact, they are even less guided! Such ˹people˺ are ˹entirely˺ heedless.](https://quranwbw.com/7/179)
-* __Surah Al-A'raf 7/200__: [If you are tempted by Satan, then seek refuge with Allah. Surely He is All-Hearing, All-Knowing.](https://quranwbw.com/7/200)
-* __Surah Al-A'raf 7/201__: [Indeed, when Satan whispers to those mindful ˹of Allah˺, they remember ˹their Lord˺ then they start to see ˹things˺ clearly.](https://quranwbw.com/7/201)
+* __Surah Al-A'raf 7/11__: [وَلَقَدْ خَلَقْنَـٰكُمْ ثُمَّ صَوَّرْنَـٰكُمْ ثُمَّ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ لَمْ يَكُن مِّنَ ٱلسَّـٰجِدِينَ](https://quran.com/7/11)
+* __Surah Al-A'raf 7/12-13__: [قَالَ مَا مَنَعَكَ أَلَّا تَسْجُدَ إِذْ أَمَرْتُكَ ۖ قَالَ أَنَا۠ خَيْرٌۭ مِّنْهُ خَلَقْتَنِى مِن نَّارٍۢ وَخَلَقْتَهُۥ مِن طِينٍۢ...قَالَ فَٱهْبِطْ مِنْهَا فَمَا يَكُونُ لَكَ أَن تَتَكَبَّرَ فِيهَا فَٱخْرُجْ إِنَّكَ مِنَ ٱلصَّـٰغِرِينَ](https://quran.com/7/12-13)
+* __Surah Al-A'raf 7/17 (All 4-sides)__: [ثُمَّ لَـَٔاتِيَنَّهُم مِّنۢ بَيْنِ أَيْدِيهِمْ وَمِنْ خَلْفِهِمْ وَعَنْ أَيْمَـٰنِهِمْ وَعَن شَمَآئِلِهِمْ ۖ وَلَا تَجِدُ أَكْثَرَهُمْ شَـٰكِرِينَ](https://quran.com/7/17)
+* __Surah Al-A'raf 7/20__: [فَوَسْوَسَ لَهُمَا ٱلشَّيْطَـٰنُ لِيُبْدِىَ لَهُمَا مَا وُۥرِىَ عَنْهُمَا مِن سَوْءَٰتِهِمَا وَقَالَ مَا نَهَىٰكُمَا رَبُّكُمَا عَنْ هَـٰذِهِ ٱلشَّجَرَةِ إِلَّآ أَن تَكُونَا مَلَكَيْنِ أَوْ تَكُونَا مِنَ ٱلْخَـٰلِدِينَ](https://quran.com/7/20)
+* __Surah Al-A'raf 7/22__: [فَدَلَّىٰهُمَا بِغُرُورٍۢ ۚ فَلَمَّا ذَاقَا ٱلشَّجَرَةَ بَدَتْ لَهُمَا سَوْءَٰتُهُمَا وَطَفِقَا يَخْصِفَانِ عَلَيْهِمَا مِن وَرَقِ ٱلْجَنَّةِ ۖ وَنَادَىٰهُمَا رَبُّهُمَآ أَلَمْ أَنْهَكُمَا عَن تِلْكُمَا ٱلشَّجَرَةِ وَأَقُل لَّكُمَآ إِنَّ ٱلشَّيْطَـٰنَ لَكُمَا عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/7/22)
+* __Surah Al-A'raf 7/27 (Satan sees you from where you can't see them)__: [يَـٰبَنِىٓ ءَادَمَ لَا يَفْتِنَنَّكُمُ ٱلشَّيْطَـٰنُ كَمَآ أَخْرَجَ أَبَوَيْكُم مِّنَ ٱلْجَنَّةِ يَنزِعُ عَنْهُمَا لِبَاسَهُمَا لِيُرِيَهُمَا سَوْءَٰتِهِمَآ ۗ إِنَّهُۥ يَرَىٰكُمْ هُوَ وَقَبِيلُهُۥ مِنْ حَيْثُ لَا تَرَوْنَهُمْ ۗ إِنَّا جَعَلْنَا ٱلشَّيَـٰطِينَ أَوْلِيَآءَ لِلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/7/27)
+* __Surah Al-A'raf 7/30__: [فَرِيقًا هَدَىٰ وَفَرِيقًا حَقَّ عَلَيْهِمُ ٱلضَّلَـٰلَةُ ۗ إِنَّهُمُ ٱتَّخَذُوا۟ ٱلشَّيَـٰطِينَ أَوْلِيَآءَ مِن دُونِ ٱللَّهِ وَيَحْسَبُونَ أَنَّهُم مُّهْتَدُونَ](https://quran.com/7/30)
+* __Surah Al-A'raf 7/175__: [وَٱتْلُ عَلَيْهِمْ نَبَأَ ٱلَّذِىٓ ءَاتَيْنَـٰهُ ءَايَـٰتِنَا فَٱنسَلَخَ مِنْهَا فَأَتْبَعَهُ ٱلشَّيْطَـٰنُ فَكَانَ مِنَ ٱلْغَاوِينَ](https://quran.com/7/175)
+* __Surah Al-A'raf 7/179__: [وَلَقَدْ ذَرَأْنَا لِجَهَنَّمَ كَثِيرًۭا مِّنَ ٱلْجِنِّ وَٱلْإِنسِ ۖ لَهُمْ قُلُوبٌۭ لَّا يَفْقَهُونَ بِهَا وَلَهُمْ أَعْيُنٌۭ لَّا يُبْصِرُونَ بِهَا وَلَهُمْ ءَاذَانٌۭ لَّا يَسْمَعُونَ بِهَآ ۚ أُو۟لَـٰٓئِكَ كَٱلْأَنْعَـٰمِ بَلْ هُمْ أَضَلُّ ۚ أُو۟لَـٰٓئِكَ هُمُ ٱلْغَـٰفِلُونَ](https://quran.com/7/179)
+* __Surah Al-A'raf 7/200__: [وَإِمَّا يَنزَغَنَّكَ مِنَ ٱلشَّيْطَـٰنِ نَزْغٌۭ فَٱسْتَعِذْ بِٱللَّهِ ۚ إِنَّهُۥ سَمِيعٌ عَلِيمٌ](https://quran.com/7/200)
+* __Surah Al-A'raf 7/201__: [إِنَّ ٱلَّذِينَ ٱتَّقَوْا۟ إِذَا مَسَّهُمْ طَـٰٓئِفٌۭ مِّنَ ٱلشَّيْطَـٰنِ تَذَكَّرُوا۟ فَإِذَا هُم مُّبْصِرُونَ](https://quran.com/7/201)
 
 ***
 
-### The Spoils of War
-* __Surah Al-Anfal 8/11__: [˹Remember˺ when He caused drowsiness to overcome you, giving you serenity.1 And He sent down rain from the sky to purify you, free you from Satan’s whispers, strengthen your hearts, and make ˹your˺ steps firm.](https://quranwbw.com/8/11)
-* __Surah Al-Anfal Ayat 8/48__: [And ˹remember˺ when Satan made their ˹evil˺ deeds appealing to them, and said, “No one can overcome you today. I am surely by your side.” But when the two forces faced off, he cowered and said, “I have absolutely nothing to do with you. I certainly see what you do not see. I truly fear Allah, for Allah is severe in punishment.”](https://quranwbw.com/8/48)
+* __Surah Al-Anfal 8/11__: [إِذْ يُغَشِّيكُمُ ٱلنُّعَاسَ أَمَنَةًۭ مِّنْهُ وَيُنَزِّلُ عَلَيْكُم مِّنَ ٱلسَّمَآءِ مَآءًۭ لِّيُطَهِّرَكُم بِهِۦ وَيُذْهِبَ عَنكُمْ رِجْزَ ٱلشَّيْطَـٰنِ وَلِيَرْبِطَ عَلَىٰ قُلُوبِكُمْ وَيُثَبِّتَ بِهِ ٱلْأَقْدَامَ](https://quran.com/8/11)
+* __Surah Al-Anfal Ayat 8/48__: [وَإِذْ زَيَّنَ لَهُمُ ٱلشَّيْطَـٰنُ أَعْمَـٰلَهُمْ وَقَالَ لَا غَالِبَ لَكُمُ ٱلْيَوْمَ مِنَ ٱلنَّاسِ وَإِنِّى جَارٌۭ لَّكُمْ ۖ فَلَمَّا تَرَآءَتِ ٱلْفِئَتَانِ نَكَصَ عَلَىٰ عَقِبَيْهِ وَقَالَ إِنِّى بَرِىٓءٌۭ مِّنكُمْ إِنِّىٓ أَرَىٰ مَا لَا تَرَوْنَ إِنِّىٓ أَخَافُ ٱللَّهَ ۚ وَٱللَّهُ شَدِيدُ ٱلْعِقَابِ](https://quran.com/8/48)
 
 ***
 
-* __Surah Yusuf Ayat 5__: [He replied, “O my dear son! Do not relate your vision to your brothers, or they will devise a plot against you. Surely Satan is a sworn enemy to humankind.](https://quran.com/12/5)
-* __Surah Yusuf Ayat 42__: [Then he said to the one he knew would survive, “Mention me in the presence of your master.1” But Satan made him forget to mention Joseph to his master, so he remained in prison for several years.](https://quran.com/12/42)
-* __Surah Yusuf Ayat 100__: [Then he raised his parents to the throne, and they all fell down in prostration to Joseph,1 who then said, “O my dear father! This is the interpretation of my old dream. My Lord has made it come true. He was truly kind to me when He freed me from prison, and brought you all from the desert after Satan had ignited rivalry between me and my siblings.2 Indeed my Lord is subtle in fulfilling what He wills. Surely He ˹alone˺ is the All-Knowing, All-Wise.”](https://quran.com/12/100)
+* __Surah Yusuf 12/5__: [قَالَ يَـٰبُنَىَّ لَا تَقْصُصْ رُءْيَاكَ عَلَىٰٓ إِخْوَتِكَ فَيَكِيدُوا۟ لَكَ كَيْدًا ۖ إِنَّ ٱلشَّيْطَـٰنَ لِلْإِنسَـٰنِ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/12/5)
+* __Surah Yusuf 12/42__: [وَقَالَ لِلَّذِى ظَنَّ أَنَّهُۥ نَاجٍۢ مِّنْهُمَا ٱذْكُرْنِى عِندَ رَبِّكَ فَأَنسَىٰهُ ٱلشَّيْطَـٰنُ ذِكْرَ رَبِّهِۦ فَلَبِثَ فِى ٱلسِّجْنِ بِضْعَ سِنِينَ](https://quran.com/12/42)
+* __Surah Yusuf 12/100__: [وَرَفَعَ أَبَوَيْهِ عَلَى ٱلْعَرْشِ وَخَرُّوا۟ لَهُۥ سُجَّدًۭا ۖ وَقَالَ يَـٰٓأَبَتِ هَـٰذَا تَأْوِيلُ رُءْيَـٰىَ مِن قَبْلُ قَدْ جَعَلَهَا رَبِّى حَقًّۭا ۖ وَقَدْ أَحْسَنَ بِىٓ إِذْ أَخْرَجَنِى مِنَ ٱلسِّجْنِ وَجَآءَ بِكُم مِّنَ ٱلْبَدْوِ مِنۢ بَعْدِ أَن نَّزَغَ ٱلشَّيْطَـٰنُ بَيْنِى وَبَيْنَ إِخْوَتِىٓ ۚ إِنَّ رَبِّى لَطِيفٌۭ لِّمَا يَشَآءُ ۚ إِنَّهُۥ هُوَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/12/100)
 
 ***
 

@@ -117,9 +117,9 @@
 
 ***
 
-* __Surah Al-Hajj 22/3__: [˹Still˺ there are some who dispute about Allah without knowledge, and follow every rebellious devil.](https://quranwbw.com/22/3)
-* __Surah Al-Hajj 22/52__: [Whenever We sent a messenger or a prophet before you ˹O Prophet˺ and he recited ˹Our revelations˺, Satan would influence ˹people’s understanding of˺ his recitation. But ˹eventually˺ Allah would eliminate Satan’s influence. Then Allah would ˹firmly˺ establish His revelations. And Allah is All-Knowing, All-Wise.](https://quranwbw.com/22/52)
-* __Surah Al-Hajj 22/53__: [All that so He may make Satan’s influence a trial for those ˹hypocrites˺ whose hearts are sick and those ˹disbelievers˺ whose hearts are hardened. Surely the wrongdoers are totally engrossed in opposition.](https://quranwbw.com/22/53)
+* __Surah Al-Hajj 22/3__: [وَمِنَ ٱلنَّاسِ مَن يُجَـٰدِلُ فِى ٱللَّهِ بِغَيْرِ عِلْمٍۢ وَيَتَّبِعُ كُلَّ شَيْطَـٰنٍۢ مَّرِيدٍۢ](https://quran.com/22/3)
+* __Surah Al-Hajj 22/52__: [وَمَآ أَرْسَلْنَا مِن قَبْلِكَ مِن رَّسُولٍۢ وَلَا نَبِىٍّ إِلَّآ إِذَا تَمَنَّىٰٓ أَلْقَى ٱلشَّيْطَـٰنُ فِىٓ أُمْنِيَّتِهِۦ فَيَنسَخُ ٱللَّهُ مَا يُلْقِى ٱلشَّيْطَـٰنُ ثُمَّ يُحْكِمُ ٱللَّهُ ءَايَـٰتِهِۦ ۗ وَٱللَّهُ عَلِيمٌ حَكِيمٌۭ](https://quran.com/22/52)
+* __Surah Al-Hajj 22/53__: [لِّيَجْعَلَ مَا يُلْقِى ٱلشَّيْطَـٰنُ فِتْنَةًۭ لِّلَّذِينَ فِى قُلُوبِهِم مَّرَضٌۭ وَٱلْقَاسِيَةِ قُلُوبُهُمْ ۗ وَإِنَّ ٱلظَّـٰلِمِينَ لَفِى شِقَاقٍۭ بَعِيدٍۢ](https://quran.com/22/53)
 
 ***
 

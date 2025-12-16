@@ -232,10 +232,6 @@
 
 ## Mufti Muneer Akhoon
 
-#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
-
-***
-
 #### [Sajday Ka Hukm To Farishton Ko Tha Phir Iblees Ko Kyun Nikala? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0KOYJHscBdU)
 * __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
   * Angels are in majority there...
@@ -263,10 +259,6 @@
 * __Surah 2/33__: [قَالَ يَـٰٓـَٔادَمُ أَنۢبِئْهُم بِأَسْمَآئِهِمْ ۖ فَلَمَّآ أَنۢبَأَهُم بِأَسْمَآئِهِمْ قَالَ أَلَمْ أَقُل لَّكُمْ إِنِّىٓ أَعْلَمُ غَيْبَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَأَعْلَمُ مَا تُبْدُونَ وَمَا كُنتُمْ تَكْتُمُونَ](https://quran.com/2/33)
 * __Surah 2/34__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
 
-
-***
-#### [Shaitan Ne Jab Apna Bacha Hawwa (A.S) Ke Paas Chhoda | Adam (A.S) Ne Usay Kyun Qatal Kiya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0ZMPOh_-QaI)
-
 ***
 
 #### [Iblees Ki Adam (A.S) aur Hawwa (A.S) Ko Hamesha Zinda Rehnay Ki Offer | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=2oMkoepWNn8)
@@ -274,12 +266,20 @@
 
 ***
 
-#### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
+#### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
+* Hazrat Issa AS and his mother Maryam AS
 
 ***
 
-#### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
-* Hazrat Issa AS and his mother Maryam AS
+#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
+
+***
+
+#### [Shaitan Ne Jab Apna Bacha Hawwa (A.S) Ke Paas Chhoda | Adam (A.S) Ne Usay Kyun Qatal Kiya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0ZMPOh_-QaI)
+
+***
+
+#### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
 
 ***
 

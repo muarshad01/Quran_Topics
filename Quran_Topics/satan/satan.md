@@ -333,6 +333,10 @@
 
 ***
 
+#### [Shaitan Ibadat Guzar Nahi Tha | Javed Ahmed Ghamidi](https://www.youtube.com/watch?v=XU5RjAtrAYY)
+
+***
+
 * __Surah Al-Araf 7/16__: [قَالَ فَبِمَآ أَغْوَيْتَنِى لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ ](https://quran.com/7/16)
 
 ***

@@ -9,6 +9,10 @@ The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter ex
 
 ## Sahil Adeem 
 
+#### [How to Protect Yourself from Dajjal? | Sahil Adeem](https://www.youtube.com/watch?v=5xKt_nZK5EY)
+
+***
+
 #### [How Will Dajjal Reach Every Home? | Sahil Adeem](https://www.youtube.com/watch?v=KrXdqKzzRmQ)
 * When Dajjal comes, go towards mountains...
 * Mountains: First wahi, Last wahi (Issa AS at Toor); Ishab-e-kahf
@@ -16,14 +20,7 @@ The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter ex
 ***
 
 #### [When Will Imam Mahdi Come? Islamic Prophecy Explained | Sahil Adeem](https://www.youtube.com/watch?v=VUsgisMDc5o)
-
-***
-
-#### [NABI SAW saw Dajjal with Hazrat Isa AS - English Captions - Sahil Adeem - ‪@thewayshorts‬](https://www.youtube.com/watch?v=W6AR3_Xe5Zc)
-
-***
-
-#### [The Jews began preparations to welcome their Messiah | Mubasher Lucman Official | Sahil Adeem](https://www.youtube.com/watch?v=49Pj92awx88)
+* Done
 
 ***
 
@@ -31,7 +28,17 @@ The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter ex
 
 ***
 
-#### [How to Protect Yourself from Dajjal? | Sahil Adeem](https://www.youtube.com/watch?v=5xKt_nZK5EY)
+#### [Nabi SAW saw Dajjal with Hazrat Issa AS | Sahil Adeem‬](https://www.youtube.com/watch?v=W6AR3_Xe5Zc)
+1. The garden of Jorden
+2. The water of reiver Euphrates
+3. The adornment of prophet PBUH (announcement of prophethood)
+* __Surah 70__: [](https://quran.com/70)
+* Has that path opened?
+* The last-time angel Jibraeel will come for a prophet?
+
+***
+
+#### [The Jews began preparations to welcome their Messiah | Sahil Adeem](https://www.youtube.com/watch?v=49Pj92awx88)
 
 ***
 

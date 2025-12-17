@@ -15,6 +15,8 @@ Grade: Muttafaqun Alayhi (authenticity agreed upon) according to Al-Bukhari and 
 ```
 ***
 
+#### [Forty Rules of Love | Irfan-ul-Haq](https://www.youtube.com/watch?v=PgEgW_8ojY0)
+
 #### [Quranic Values in Action: Attributes of becoming a Momin](https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/)
 #### [Attributes of True Believers (Momin)](https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/)
 #### [15 Traits of a Momin According to the Quran](https://islamicmentors.com/15-traits-of-a-momin/)

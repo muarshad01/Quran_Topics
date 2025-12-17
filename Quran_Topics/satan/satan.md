@@ -334,6 +334,14 @@
 ***
 
 #### [Shaitan Ibadat Guzar Nahi Tha | Javed Ahmed Ghamidi](https://www.youtube.com/watch?v=XU5RjAtrAYY)
+* Satan is adjactive (Jinn or Insaan)
+* Satan - Iblis (Jinn)
+  * __Surah Al-Kahf 18/50 ( إِبْلِيسَ كَانَ مِنَ ٱلْجِنّ)__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ كَانَ مِنَ ٱلْجِنِّ فَفَسَقَ عَنْ أَمْرِ رَبِّهِۦٓ ۗ أَفَتَتَّخِذُونَهُۥ وَذُرِّيَّتَهُۥٓ أَوْلِيَآءَ مِن دُونِى وَهُمْ لَكُمْ عَدُوٌّۢ ۚ بِئْسَ لِلظَّـٰلِمِينَ بَدَلًۭا](https://quran.com/18/50)
+* Adam - Targheeb (Hayat-e-Jawadan)
+* __Surah 20/120 (شَجَرَةِ ٱلْخُلْدِ وَمُلْكٍۢ لَّا يَبْلَىٰ)__: [فَوَسْوَسَ إِلَيْهِ ٱلشَّيْطَـٰنُ قَالَ يَـٰٓـَٔادَمُ هَلْ أَدُلُّكَ عَلَىٰ شَجَرَةِ ٱلْخُلْدِ وَمُلْكٍۢ لَّا يَبْلَىٰ](https://quran.com/20/120)
+* Satan - Ananiyat aur Takabar / Sharkashi. I'm made with fire and Adam is made with Soil). I've done it right and i'll stand by it and till Qayamat i'll lead astray the human beings.
+* __Surah Al-Baqarah 2/34 (إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ)__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+* __Surah 7/12__: [قَالَ مَا مَنَعَكَ أَلَّا تَسْجُدَ إِذْ أَمَرْتُكَ ۖ قَالَ أَنَا۠ خَيْرٌۭ مِّنْهُ خَلَقْتَنِى مِن نَّارٍۢ وَخَلَقْتَهُۥ مِن طِينٍۢ](https://quran.com/7/12)
 
 ***
 

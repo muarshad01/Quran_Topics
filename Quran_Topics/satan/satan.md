@@ -266,32 +266,8 @@
 
 ***
 
-#### [Isa (A.S) Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
+#### [Issa AS Ki Paidaish Par Shaitan Unke Qareeb Kyun Nahin Aaya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ngOlxUcQbA4)
 * Hazrat Issa AS and his mother Maryam AS
-
-***
-
-#### [The laughter-of-devil and the answer-of-Allah-SWT | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=DJj4jw_oLkE)
-
-***
-
-#### [Shaitan Ne Jab Apna Bacha Hawwa (A.S) Ke Paas Chhoda | Adam (A.S) Ne Usay Kyun Qatal Kiya? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=0ZMPOh_-QaI)
-
-***
-
-#### [Iblees Jannat Se Nikala Gaya Phir Wapas Kaise Gaya? Haqeeqat Janiye | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=m9jz061xEQg)
-
-***
-
-#### [Rasool SAW Allah Ko Shaitan Ne Kachuka Kyn Mara? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GtFm6JbQA9M)
-
-***
-
-#### [Shaitan vs Imam Razi R.A | 99 Dalilany | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ygzOwDjEqV0)
-
-***
-
-#### [Iblees Allah Ke Kitne Qareeb Tha? Haqeeqat Jaan Kar Hairan Ho Jayenge | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=tYioaIVqYLs)
 
 ***
 

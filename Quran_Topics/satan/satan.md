@@ -316,6 +316,7 @@
 ## Irfan ul Haq
 
 #### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
+* __Surah 2/208__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱدْخُلُوا۟ فِى ٱلسِّلْمِ كَآفَّةًۭ وَلَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/2/208)
 
 ***
 

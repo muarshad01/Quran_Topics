@@ -11,6 +11,7 @@ The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter ex
 
 #### [How Will Dajjal Reach Every Home? | Sahil Adeem](https://www.youtube.com/watch?v=KrXdqKzzRmQ)
 * When Dajjal comes, go towards mountains...
+* Mountains: First wahi, Last wahi (Issa AS at Toor); Ishab-e-kahf
 
 ***
 

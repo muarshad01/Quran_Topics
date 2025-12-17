@@ -298,10 +298,11 @@
 ## Allama Talib Johri
 
 #### [Iblees Adam AS Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
-
+* Done
+  
 ***
 
-#### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=TS5pmz8Sc3s)
+#### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=wry_ivRxse0)
 
 ***
 

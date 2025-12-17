@@ -297,19 +297,19 @@
 
 ## Allama Talib Johri
 
-#### [Iblees kis vja sy nikala gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
-
-***
-
-#### [039 | Ghair Allah Ko Sajda علامہ طالب جوہری۔ | Allama Talib Johri](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
-
-***
-
-#### [Iblees Adam a.s Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
+#### [Iblees Adam AS Aur Allah | Allama Talib Johri](https://www.youtube.com/watch?v=SiQVr_RleDk)
 
 ***
 
 #### [Shaitan Sab-Ko-Behkata Shaitan Ko Kis-Ne-Behkaya ? | Allama Talib Johri](https://www.youtube.com/watch?v=TS5pmz8Sc3s)
+
+***
+
+#### [Iblees kis vja sy nikala gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
+
+***
+
+#### [Ghair Allah Ko Sajda | Allama Talib Johri](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
 
 ***
 

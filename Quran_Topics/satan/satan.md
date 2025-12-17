@@ -313,13 +313,6 @@
 
 ***
 
-## Irfan ul Haq
-
-#### [Role-of-Iblees In-our-Life | Things-to-Avoid | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
-* __Surah 2/208__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱدْخُلُوا۟ فِى ٱلسِّلْمِ كَآفَّةًۭ وَلَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/2/208)
-
-***
-
 ## Javed Ahmed Ghamidi
 
 #### [Was Iblees Really Commanded to Prostrate | Javed Ahmad Ghamidi](https://www.youtube.com/watch?v=2FnYTas1nnc)
@@ -346,6 +339,13 @@
 * Mother EARTH
 * __Surah As-Sajdah 32/7-9__: [ٱلَّذِىٓ أَحْسَنَ كُلَّ شَىْءٍ خَلَقَهُۥ ۖ وَبَدَأَ خَلْقَ ٱلْإِنسَـٰنِ مِن طِينٍۢ...ثُمَّ جَعَلَ نَسْلَهُۥ مِن سُلَـٰلَةٍۢ مِّن مَّآءٍۢ مَّهِينٍۢ...ثُمَّ سَوَّىٰهُ وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًۭا مَّا تَشْكُرُونَ](https://quran.com/32/7-9)
 * 13:00 
+
+***
+
+## Irfan ul Haq
+
+#### [Role-of-Iblees In-our-Life | Irfan-ul-Haq](https://www.youtube.com/watch?v=9p7IgL49HyQ)
+* __Surah 2/208__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱدْخُلُوا۟ فِى ٱلسِّلْمِ كَآفَّةًۭ وَلَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/2/208)
 
 ***
 

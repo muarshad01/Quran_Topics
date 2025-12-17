@@ -19,3 +19,5 @@
 * __Surah 55/33__: [يَـٰمَعْشَرَ ٱلْجِنِّ وَٱلْإِنسِ إِنِ ٱسْتَطَعْتُمْ أَن تَنفُذُوا۟ مِنْ أَقْطَارِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ فَٱنفُذُوا۟ ۚ لَا تَنفُذُونَ إِلَّا بِسُلْطَـٰنٍۢ](https://quran.com/55/33)
 
 ***
+
+#### [Allama Talib Johri | Sultanan Naseera| Quran Se Nikal Saktay Ho Iss Ayat Ko Shan e Rasool SAWW|](https://www.youtube.com/watch?v=TPz-m9UG6WM)

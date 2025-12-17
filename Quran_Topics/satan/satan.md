@@ -305,11 +305,18 @@
 
 ***
 
-#### [Iblees kis vja sy nikala gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
+#### [Iblees Kis-vja-say Nikala Gaya | Allama Talib Johri](https://www.youtube.com/watch?v=T0WJmXvKZQ0)
 
 ***
 
 #### [Ghair Allah Ko Sajda | Allama Talib Johri](https://www.youtube.com/watch?v=oRod4wme_BE&t=3s)
+1. Allah SWT
+2. Prophet PBUH
+3. Humanity 
+* My (Allah SWT) Noor was in Adam's body. Sajdah was to His Noor. 
+* __Surah Al-Baqarah 2/34 (إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ)__: [وَإِذْ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ أَبَىٰ وَٱسْتَكْبَرَ وَكَانَ مِنَ ٱلْكَـٰفِرِينَ](https://quran.com/2/34)
+  * Kanaa (وَكَانَ) -- Woh ro tah hi...
+* __Surah Al-Isra 17/62 (لَأَحْتَنِكَنَّ ذُرِّيَّتَهُۥٓ إِلَّا قَلِيلًۭا)__: [قَالَ أَرَءَيْتَكَ هَـٰذَا ٱلَّذِى كَرَّمْتَ عَلَىَّ لَئِنْ أَخَّرْتَنِ إِلَىٰ يَوْمِ ٱلْقِيَـٰمَةِ لَأَحْتَنِكَنَّ ذُرِّيَّتَهُۥٓ إِلَّا قَلِيلًۭا](https://quran.com/17/62)
 
 ***
 

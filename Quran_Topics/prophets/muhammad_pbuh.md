@@ -535,3 +535,14 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 * __Afifa__: 
 
 ***
+
+#### [Hazrat Muhammad ﷺ Appearance Mentioned in Torah & Bible | Abdus Salam | Suno Pakistan EP 387](https://www.youtube.com/watch?v=-sHGNXq-IUU)
+   * [Surah Al-Araf Ayat 157](https://quran.com/en/al-araf/157)
+      * `“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel.`
+      * `He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them.`
+      * `˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”`
+   * [Surah Ale-Imran 75](https://quran.com/2/75)
+      * `There are some among the People of the Book who, if entrusted with a stack of gold, will readily return it. Yet there are others who, if entrusted with a single coin, will not repay it unless you constantly demand it.`
+      * `This is because they say, “We are not accountable for ˹exploiting˺ the Gentiles.” And ˹so˺ they attribute lies to Allah knowingly.`
+    
+*** 

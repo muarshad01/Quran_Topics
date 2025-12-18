@@ -188,3 +188,63 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 #### [Kali Mata Or Dajjal | Yajooj Majooj Kahan Hain? Horror Podcast](https://www.youtube.com/watch?v=jd-8LkL59d0&t=70s)
 
 ***
+
+
+#### [Bani Israel Ko Saza Q Mili? Jerusalem Ki History | Dr. Abdul Salam Arif](https://www.youtube.com/watch?v=vcibvqVDGP0)
+* Entry point which opens up in other world...
+* Dajjal will also try to run away from there ...
+* Suleman AS ruled the whole world from that part-of-world..
+
+#### Palestine
+* Palestine: `Syria, Jordan, Lebanon, Palestine` (4-countries)
+* Baitul Maqdis (Masjid al-Aqsa) [House of the Holy], Yerusalem, Syria
+
+#### `Bethlehem` 
+* Early home of `David (Dawud AS)` and regarded as the place where `Jesus` was born
+* `Daud AS` son `Suleman AS` established `First Temple (Masjid)` here
+* `O' Allah SWT give Barakh to Syria land.` - Hadith
+
+#### Ibrahim AS
+* `Ibrahim AS` was born in Iraq at `Mesopotamia civilization` time; `Ur city`
+   * `Surah Baqarah 258-259`: https://quran.com/2/258-259 (Namrod King Incident)
+* `Ibraham AS` was ordered to migrate to `Syria (Canaan)`
+* `Ibraham AS` send his Nephew `Lut AS` to `Sodom` city (near `Dead sea`)
+* Surah Baqarah 124: https://quran.com/2/124
+   * `˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”`
+   * Banu Ismail, Banu Ismail, ...
+   * Hazrat Ibrahim AS wife (`Sara AS`) ...
+* `(Ibrahim AS, Sara AS)`
+   * `Ishaq AS -> Yaqub AS name is Israel (Grandson) [12 sons, youngest Yusuf]` settled in Canaan
+   * Surah Al-Isra: https://quran.com/17/1 (`barakna hawlahu`)
+   * `Musa -> Yusha bin Nun`
+   * `Prophet Daud (AS) and Jalut`
+      * Daud AS son Soluman AS -> `First Temple`
+
+***
+
+#### [Revival of Third Temple | Hazrat Muhammad ﷺ Prediction | Dr. Abdus Salam](https://www.youtube.com/watch?v=betoPoM0WBs) 
+
+#### Hadith
+* Hadith Bokhari: Will do the same as Earlier Ummats...
+* Hadith XXX: Will pass through similar Cirstances...
+
+#### Two Rise and Two Falls
+* Bani Israel: Children of those on Noah AS boat...Quran
+* 1-RISE: Talut - David -> Solomon - 1st Temple
+* 1-FALL: Bakht Nasar (Nebucha-dnezzar)
+* 2-RISE: Cyrus saved them: Send them back to Palestine - 2nd Temple
+* Killed Zikaria AS, Yahya AS at request of a dancer.
+* Issa AS: Make the dead alive, Make clay mould birds, give eye-sight, etc. Crucify, etc (https://quran.com/4/157).
+2-FALL: 
+
+#### Muslims
+* RISE: Prophet PBUH till 1200 years
+* European used to give us Tax: Haroon Rasheed and Mamoon Rasheed Abbasi Saltanat
+* FALL: Halaku Khan
+* India (Akbar-e-Azam); Turkey (); Iran ()
+
+***
+
+#### [Masjid Al-Aqsa & the End Times](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s)
+
+***

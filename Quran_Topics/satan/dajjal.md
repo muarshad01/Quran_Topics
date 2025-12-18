@@ -171,3 +171,16 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 #### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
 
 ***
+
+#### [East side and Dajjal](https://www.youtube.com/watch?v=syKVO0guebo)
+* `Saf ibn Sayyad` is Dajjal...`Hazrat Umer AS`
+* `Tamim al-Dari` met Dajjal on a Peninsula
+* Al-Masih (is a Personality) ad-Dajjal (is a System)
+* Al-Masih (is a Personality) Rooh Allah (is a System)
+* One Eyed & From EAST side:
+* `Najad Saudi Arabia`: Bokhari 7094, Tirmidhi 3953
+   * O Allah, Hamaray Shaam par Reham Farmay
+   * O Allah, Hamaray Yaman par Reham Farmay
+   * `Banu Hanifa (Current Saudi Kings), Banu Qays, Banu Tamim (Qatar)` 
+
+***

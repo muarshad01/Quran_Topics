@@ -12,3 +12,7 @@
 3. Ali AS ki Waliat-ka-Iqrar
 
 ***
+
+#### [Surah Bani Israel Mein Waqya Miraj Ka Zikar ? | Suno Pakistan | EP 329](https://www.youtube.com/watch?v=2E7ssHmXSo4)
+
+***

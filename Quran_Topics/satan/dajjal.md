@@ -86,29 +86,23 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Important Secrets of Freemasons, Surprising Revelations | Dr. Abdus Salam](https://www.youtube.com/watch?v=KadHx0p13Og)
+* Knights Templar (Freemasonry)
+* Dome-of-Rock (Gunbad-e-Shakrah)
+* Caves under dome-of-rock, found books...
+* The conquerors were give the title of `Knights Templar`
+* They captured bait-ul-maqdas for 88 years...
+* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
 
 ***
 
-#### [The Key to World Rule, Sacred in all religions | What is the relationship With Antichrist](https://www.youtube.com/watch?v=tqVZ_zzInj8)
+#### [Dajjal ki hukmarani Hazrat Salman (RA) Jaisi hogi? Dajjal khud ko kaise manwaye ga | Dr. Abdus Salam](https://www.youtube.com/watch?v=l1OHVJEwowk)
 
 ***
 
-## Syed Haider Jafri
+## Mufti Muneer Akhoon
 
-#### [Angothi Gai Tu Badshahi Gai | Hazrat Salman Ki Mulazmat | Syed Haider Jafri](https://www.youtube.com/watch?v=13-WyRieKsA)
-
-***
-
-#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Haqeeqat Jo HarMusalman Ko Janni Chahiye](https://www.youtube.com/watch?v=L5sJ2k_OHH4)
+#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
 * Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
 * Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
-
-***
-
-#### [Dajjali System](https://www.youtube.com/shorts/59RooC99hBM)
-
-***
-
-#### [Dajjal ki hukmarani Hazrat Salman (RA) Jaisi hogi? Dajjal khud ko kaise manwaye ga](https://www.youtube.com/watch?v=l1OHVJEwowk)
 
 ***

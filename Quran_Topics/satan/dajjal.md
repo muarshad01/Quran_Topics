@@ -10,6 +10,13 @@ The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter ex
 ## Sahil Adeem 
 
 #### [How to Protect Yourself from Dajjal? | Sahil Adeem](https://www.youtube.com/watch?v=5xKt_nZK5EY)
+* __SAKINA__: Surah Al-Kahf recitation, cloud came down on top of a house...horse started making noise...
+* No memtion of Dajjal, Issa AS, Maryam AS,...
+* Surah of Tauheed
+* First 10-Ayat (Ahad)
+* Last 10-Ayat (Al-hamadu lillah)
+* Decode-the-Puzzle
+* Isfahani Yahudi...
 
 ***
 

@@ -163,3 +163,11 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 * In Madina as Ibn Sayyad
 
 ***
+
+#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+
+***
+
+#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
+
+***

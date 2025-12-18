@@ -34,8 +34,17 @@
 ***
 
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)
+
+***
+
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=Bx590pYgc54)
+
+***
+
 #### [Insan aur Nafs ki jung ko handle karny ka wazeefa-aur-Tasbeeh | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=TZriideoDlA)
+
+***
+
 #### [The Three Greatest Tests on Paths of Taqwa](https://www.youtube.com/shorts/b1Gc-uKhzhM)
 
 ***
@@ -70,10 +79,12 @@
 
 ***
 
-* __Surah 2/207__: [وَمِنَ ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
+* __Surah Al-Baqarah 2/207__: [وَمِنَ ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
 
 * __Surah 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
 
 ***
 
-#### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟](https://www.youtube.com/watch?v=XB1lK4VqDXA)
+#### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟ | SSA Shah](https://www.youtube.com/watch?v=XB1lK4VqDXA)
+
+***

@@ -47,4 +47,3 @@
 * Origin Source NOT Allah (`Taghoot`)
 
 ***
-***

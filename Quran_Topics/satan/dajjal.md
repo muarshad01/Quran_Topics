@@ -106,3 +106,60 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
 
 ***
+
+#### [Dajjal Ka Saudia Arab Me Mahal? | Ahadees Me Ki Jany Wali Peshgoi Sach Sabit | Dr. Abdus Salam](https://www.youtube.com/watch?v=gQk-j5R51d4)
+* Prophet SWT saw Issa AS in Khawab and another person (Dajjal) was walking behind him with his hands on Issa AS shoulders
+* First, Dajjel will say `I'm Nabi` Nauz-Billah (Muhammad PBUH is Khatum-ul-Nabeen)
+* Second, Dajjal will say `I'm Raab`
+* Allah (Whose laws we follow and prostrate to Him) & Raab (Economics)
+* Hadith: Three years before Dajjal arrival there will be `Famine`
+* Hadith: He'll land behind `Ahud Mountain`
+* Hadith: `Issa AS will murder him (Dajjal) at Ludd`
+
+***
+
+#### [Dajjal 3 Questions | Relation Between Dajjal Island & Pakistan? | Dr. Abdus Salam](https://www.youtube.com/watch?v=CKl7GFSJPXQ)
+* `Tamim al-Dari` hadith
+* Q1: `Palestinian city (Baysan)` - Are dates still giving fruit there?
+* Q2: `Syrian river (Dayr al-Zawr)` - Has its water dried out?
+* Q3: `Israel (Sea of Galilee)` - Does it has water?
+* `Saf ibn Sayyad` hadith
+* Extra-ordinary creation
+
+***
+
+#### [Shaitan Kay Bachy Illuminati? Supernatural Podcast With Labiba Arshad | Dr. Abdus Salam Arif](https://www.youtube.com/watch?v=k1UR-bbMGH8)
+* Illumanati
+* Free Mason
+* Khalifa: Ditto Copy
+* Surah Hajar: https://quran.com/15/26-44
+   * Attack from ALL 4 sides
+   * I'll kidnap them
+   * `I'll order them (followers of Satan) to change your creation`
+   * Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
+* `Order of Illumanati`
+   * `May 01, 1776` [This is not yum-e-mazdoor]
+* `Free Mason`
+   * knight Templar 
+
+***
+
+#### [Dajjal Ka Maa Baap Kon? Duniya Mai Kitny Din Rahyga? | Ft. Abdul Salam | Suno Podcast Supernatural](https://www.youtube.com/watch?v=uJW-mSWiqqQ)
+* No NAMAZ in which prophet PBUH has sought `Allah SWT Panah from Mesieh Dajjal Shar and Fitnah`
+* Prophet Salman AS, `JASAD` sat at his throne (Chair)
+        * Oh Allah, don't give anybody a kingdom like me 
+* Surah Sajdah 21: https://quran.com/32/21
+```
+We will certainly make them taste some of the minor torment ˹in this life˺
+before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to the Right Path˺.
+```  
+* Ibn Sayyad (child) - Hadith
+* Tamim Dari - Hadith
+
+#### Multidimentional Creature
+* Nuh AS time
+* Salman AS time - Jasad
+* In shackles at an Island
+* In Madina as Ibn Sayyad
+
+***

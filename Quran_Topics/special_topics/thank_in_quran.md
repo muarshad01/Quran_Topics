@@ -165,7 +165,3 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 * __Surah Al-Mulk 67/23__: [قُلْ هُوَ ٱلَّذِىٓ أَنشَأَكُمْ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۖ قَلِيلًۭا مَّا تَشْكُرُونَ](https://quran.com/67/23)
 
 *** 
-
-## [Shukr ka mafhoom | Allama Talib Jauhari](https://www.youtube.com/watch?v=WLqIBc78TrM)
-
-***

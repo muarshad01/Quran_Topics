@@ -72,6 +72,27 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+
+## Dr Abdus Salam
+
+#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Dr. Abdus Salam](https://www.youtube.com/watch?v=5K3q86xHnC4)
+* Columbus when discovered America
+* He sees a high-beam of light
+* Hubal versus statue-of-liberty
+* (One eye, Pyramid, World order)
+* Nokola Tesla...Pyramid...Wireless Energy...
+* Madonna dance symbols...
+
+***
+
+#### [Important Secrets of Freemasons, Surprising Revelations | Dr. Abdus Salam](https://www.youtube.com/watch?v=KadHx0p13Og)
+
+***
+
+#### [The Key to World Rule, Sacred in all religions | What is the relationship With Antichrist](https://www.youtube.com/watch?v=tqVZ_zzInj8)
+
+***
+
 ## Syed Haider Jafri
 
 #### [Angothi Gai Tu Badshahi Gai | Hazrat Salman Ki Mulazmat | Syed Haider Jafri](https://www.youtube.com/watch?v=13-WyRieKsA)
@@ -89,19 +110,5 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Dajjal ki hukmarani Hazrat Salman (RA) Jaisi hogi? Dajjal khud ko kaise manwaye ga](https://www.youtube.com/watch?v=l1OHVJEwowk)
-
-***
-
-## Dr Abdus Salam
-
-#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Dr. Abdus Salam](https://www.youtube.com/watch?v=5K3q86xHnC4)
-
-***
-
-#### [Important Secrets of Freemasons, Surprising Revelations | Dr. Abdus Salam](https://www.youtube.com/watch?v=KadHx0p13Og)
-
-***
-
-#### [The Key to World Rule, Sacred in all religions | What is the relationship With Antichrist](https://www.youtube.com/watch?v=tqVZ_zzInj8)
 
 ***

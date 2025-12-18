@@ -129,3 +129,12 @@
 #### [PAKISTAN KA FUTURE KAISE HOGA? | AGLE 5 SAAL | Irfan ul Haq](https://www.youtube.com/watch?v=O9sA0hq8U-g&t=571s)
 
 ***
+
+#### [Clear Indication in Quran About Present Time of Pakistan | Tagut Destroy Muslims? | Suno Pak EP 350](https://www.youtube.com/watch?v=gOkt-pfHCAs)
+* __Surah Nisa 60__: [Have you ˹O Prophet˺ not seen those who claim they believe in what has been revealed to you and what was revealed before you? They seek the judgment of false judges, which they were commanded to reject. And Satan ˹only˺ desires to lead them farther away.](https://quran.com/4/60)
+  * Interest System
+  * zakat and ushar system
+  * Wine
+  * 5% of Agriculter crop and 10% of Agriculture crop
+
+*** 

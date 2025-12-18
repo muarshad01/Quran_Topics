@@ -1,3 +1,7 @@
+#### [Tobah ki kaboliyat ka secret raaz | Prof ARA](https://www.youtube.com/shorts/ewnwK9h-edQ)
+
+***
+
 #### [Saqda Raad-e-Bala Hai | Agar Sadqe ke Bawajood Masla Hal Na Ho Roh Kya Kiya Jaye? | Irfan-ul-Haq](https://www.youtube.com/watch?v=TJ6tGQuhm88)
 * Keep reciting duas...
 * ALL CURE is in duaas...

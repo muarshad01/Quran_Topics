@@ -30,3 +30,7 @@
      * Go and see the HELL; Who doesn't want to avoid this. The pleasure...
 
 ***
+
+#### 7 Zameen Aur 7 Asman
+* [7 Zameen Aur 7 Asman | Quran Pak Main Chupa Purisrar Raaz | Quran & Science | Abdus Salam Analysis](https://www.youtube.com/watch?v=ibFk3gd69po)
+

@@ -54,10 +54,21 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ## Prof ARA
 
 #### [When Dajjal was creating Israel, God was making Pakistan | Prof ARA](https://www.youtube.com/watch?v=y9BIMU2vwno)
+* When Dajjal was establishing Israle
+* Allah SWT was establishing Pakistan
+* Allah nay apko apni-pechaan kay-liye paida-kiya-hai
+* Ibtid-e-Mohabbat ki-rah
+* Talab-e-Sadiq
+* Jastojoo-e-Haqiqat-aur-Rabbaniat ka aik-zara-bhee app-kay naseeb-mayn nahi-aa-sakta
+* Allah SWT doesn't need anything except your KHALOOS
+* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
 
 ***
 
 #### [Hadith (1/3, 1/3, 1/3) | Prof ARA](https://www.youtube.com/shorts/bTjhCg-jG-g)
+* 1/3 - Will Join Dajjal
+* 1/3 - Will Fight and Defeated (Worst of my Ummat)
+* 1/3 - Will Fight and Conquer 
 
 ***
 

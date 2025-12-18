@@ -22,3 +22,9 @@
    * Unzair (1-day or less-than-a-day)
    * Donkey (100 years had passed)
 * `TIME-REVERSIBLE`
+
+***
+
+#### [Time and Temporality in Quran: Theoretical and Practical Dimensions | Dr Abdus Salam Arif Explained](https://www.youtube.com/watch?v=HsNvop_79lc)
+
+***

@@ -47,7 +47,7 @@
 ## Allama Talib Johri
 
 #### [Ghair Allah Ko Sajda | Allama Talib jhori](https://www.youtube.com/watch?v=oRod4wme_BE)
-* __Surah Al-Baqarah 2/33-36__: [And ˹remember˺ when We said to the angels, “Prostrate before Adam,”1 so they all did—but not Iblîs,2 who refused and acted arrogantly,3 becoming unfaithful.](https://quran.com/2/33-36)
+* __Surah Al-Baqarah 2/33-36__: [And ˹remember˺ when We said to the angels, “Prostrate before Adam,” so they all did—but not Iblîs, who refused and acted arrogantly, becoming unfaithful.](https://quran.com/2/33-36)
 * __Surah Araaf 7/11-13__: [وَلَقَدْ خَلَقْنَـٰكُمْ ثُمَّ صَوَّرْنَـٰكُمْ ثُمَّ قُلْنَا لِلْمَلَـٰٓئِكَةِ ٱسْجُدُوا۟ لِـَٔادَمَ فَسَجَدُوٓا۟ إِلَّآ إِبْلِيسَ لَمْ يَكُن مِّنَ ٱلسَّـٰجِدِينَ...قَالَ مَا مَنَعَكَ أَلَّا تَسْجُدَ إِذْ أَمَرْتُكَ ۖ قَالَ أَنَا۠ خَيْرٌۭ مِّنْهُ خَلَقْتَنِى مِن نَّارٍۢ وَخَلَقْتَهُۥ مِن طِينٍۢ...قَالَ فَٱهْبِطْ مِنْهَا فَمَا يَكُونُ لَكَ أَن تَتَكَبَّرَ فِيهَا فَٱخْرُجْ إِنَّكَ مِنَ ٱلصَّـٰغِرِينَ](https://quran.com/7/11-13)
 * __Surah Al-Anaam 6/163__: [لَا شَرِيكَ لَهُۥ ۖ وَبِذَٰلِكَ أُمِرْتُ وَأَنَا۠ أَوَّلُ ٱلْمُسْلِمِينَ](https://quran.com/6/163)
 * __Surah Al-Israa 17/62__: [قَالَ أَرَءَيْتَكَ هَـٰذَا ٱلَّذِى كَرَّمْتَ عَلَىَّ لَئِنْ أَخَّرْتَنِ إِلَىٰ يَوْمِ ٱلْقِيَـٰمَةِ لَأَحْتَنِكَنَّ ذُرِّيَّتَهُۥٓ إِلَّا قَلِيلًۭا](https://quran.com/17/62)

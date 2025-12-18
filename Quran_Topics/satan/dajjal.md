@@ -28,6 +28,8 @@ The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter ex
 ```
 Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspected by some companions, including Umar, and even the Prophet himself, to be the Dajjal (False Messiah) due to some matching characteristics, but later Islamic tradition distinguishes him as a soothsayer or charlatan, not the ultimate Dajjal, whose identity was clarified later by narratives like Tamim al-Dari's encounter, revealing the true Dajjal's distinct features like being childless and unable to enter Mecca
 ```
+* __Fitna al-Masih ad-Dajjal__
+
 ***
 
 #### [Nabi SAW saw Dajjal with Hazrat Issa AS | Sahil Adeem‬](https://www.youtube.com/watch?v=W6AR3_Xe5Zc)

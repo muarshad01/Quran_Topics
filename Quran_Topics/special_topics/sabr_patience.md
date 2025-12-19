@@ -17,6 +17,12 @@ And so are Badr and Hunayn in the battle of existence.
 * Hanuman Temple: People go to ask for son... (They lost their Imann due to being Impatient!!!) 
 * __Surah 42/49-50__: [(49) To Allah ˹alone˺ belongs the kingdom of the heavens and the earth. He creates whatever He wills. He blesses whoever He wills with daughters, and blesses whoever He wills with sons, (50) or grants both, sons and daughters, ˹to whoever He wills˺, and leaves whoever He wills infertile. He is indeed All-Knowing, Most Capable.](https://quran.com/42/49-50)
 
+***
+
+#### [Sabr Tum Khud Nahi Kar Sakte | Allah Ki Madad Ke Baghair Sabr Namumkin Hai | Irfan ul Haq](https://www.youtube.com/watch?v=ZTyWeL7bRLA)
+
+***
+
 #### [Sabar Kay Ajeeb-O-Ghareeb Haqqaiq | Dr Israr Ahmed](https://www.youtube.com/watch?v=imR4I8xJdbM)
 * Listen first 15 mins...
 * The top-most thing is Sabr (إِنَّ اللَّهَ مَعَ الصَّابِرِينَ)

@@ -40,15 +40,15 @@
 
 * __Surah Al-Baqarah 2/060__: [۞ وَإِذِ ٱسْتَسْقَىٰ مُوسَىٰ لِقَوْمِهِۦ فَقُلْنَا ٱضْرِب بِّعَصَاكَ ٱلْحَجَرَ ۖ فَٱنفَجَرَتْ مِنْهُ ٱثْنَتَا عَشْرَةَ عَيْنًۭا ۖ قَدْ عَلِمَ كُلُّ أُنَاسٍۢ مَّشْرَبَهُمْ ۖ كُلُوا۟ وَٱشْرَبُوا۟ مِن رِّزْقِ ٱللَّهِ وَلَا تَعْثَوْا۟ فِى ٱلْأَرْضِ مُفْسِدِينَ](https://quran.com/2/60)
 
-* __Surah Al-Baqarah 2/126__: [And ˹remember˺ when Abraham said, “My Lord, make this city ˹of Mecca˺ secure and provide fruits to its people—those among them who believe in Allah and the Last Day.” He answered, “As for those who disbelieve, I will let them enjoy themselves for a little while, then I will condemn them to the torment of the Fire. What an evil destination!”](https://quran.com/2/126)
+* __Surah Al-Baqarah 2/126__: [وَإِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّ ٱجْعَلْ هَـٰذَا بَلَدًا ءَامِنًۭا وَٱرْزُقْ أَهْلَهُۥ مِنَ ٱلثَّمَرَٰتِ مَنْ ءَامَنَ مِنْهُم بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۖ قَالَ وَمَن كَفَرَ فَأُمَتِّعُهُۥ قَلِيلًۭا ثُمَّ أَضْطَرُّهُۥٓ إِلَىٰ عَذَابِ ٱلنَّارِ ۖ وَبِئْسَ ٱلْمَصِيرُ](https://quran.com/2/126)
   
-* __Surah Al-Baqarah 2/172__: [O believers! Eat from the good things We have provided for you. And give thanks to Allah if you ˹truly˺ worship Him ˹alone˺.](https://quran.com/2/172)
+* __Surah Al-Baqarah 2/172__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ كُلُوا۟ مِن طَيِّبَـٰتِ مَا رَزَقْنَـٰكُمْ وَٱشْكُرُوا۟ لِلَّهِ إِن كُنتُمْ إِيَّاهُ تَعْبُدُونَ](https://quran.com/2/172)
 
-* __Surah Al-Baqarah 2/212__: [The life of this world has been made appealing to the disbelievers, and they mock the believers. Those who are mindful ˹of Allah˺ will rank above them on the Day of Judgment. And Allah provides for whoever He wills without limit.](https://quran.com/2/212)
+* __Surah Al-Baqarah 2/212__: [زُيِّنَ لِلَّذِينَ كَفَرُوا۟ ٱلْحَيَوٰةُ ٱلدُّنْيَا وَيَسْخَرُونَ مِنَ ٱلَّذِينَ ءَامَنُوا۟ ۘ وَٱلَّذِينَ ٱتَّقَوْا۟ فَوْقَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ ۗ وَٱللَّهُ يَرْزُقُ مَن يَشَآءُ بِغَيْرِ حِسَابٍۢ ٢١٢](https://quran.com/2/212)
 
-* __Surah Al-Baqarah 2/233__: [˹Divorced˺ mothers will breastfeed their offspring for two whole years, for those who wish to complete the nursing ˹of their child˺. The child’s father will provide reasonable maintenance and clothing for the mother ˹during that period˺. No one will be charged with more than they can bear. No mother or father should be made to suffer for their child. The ˹father’s˺ heirs are under the same obligation. But if both sides decide—after mutual consultation and consent—to wean a child, then there is no blame on them. If you decide to have your children nursed by a wet-nurse, it is permissible as long as you pay fairly. Be mindful of Allah, and know that Allah is All-Seeing of what you do.](https://quran.com/2/233)
+* __Surah Al-Baqarah 2/233__: [۞ وَٱلْوَٰلِدَٰتُ يُرْضِعْنَ أَوْلَـٰدَهُنَّ حَوْلَيْنِ كَامِلَيْنِ ۖ لِمَنْ أَرَادَ أَن يُتِمَّ ٱلرَّضَاعَةَ ۚ وَعَلَى ٱلْمَوْلُودِ لَهُۥ رِزْقُهُنَّ وَكِسْوَتُهُنَّ بِٱلْمَعْرُوفِ ۚ لَا تُكَلَّفُ نَفْسٌ إِلَّا وُسْعَهَا ۚ لَا تُضَآرَّ وَٰلِدَةٌۢ بِوَلَدِهَا وَلَا مَوْلُودٌۭ لَّهُۥ بِوَلَدِهِۦ ۚ وَعَلَى ٱلْوَارِثِ مِثْلُ ذَٰلِكَ ۗ فَإِنْ أَرَادَا فِصَالًا عَن تَرَاضٍۢ مِّنْهُمَا وَتَشَاوُرٍۢ فَلَا جُنَاحَ عَلَيْهِمَا ۗ وَإِنْ أَرَدتُّمْ أَن تَسْتَرْضِعُوٓا۟ أَوْلَـٰدَكُمْ فَلَا جُنَاحَ عَلَيْكُمْ إِذَا سَلَّمْتُم مَّآ ءَاتَيْتُم بِٱلْمَعْرُوفِ ۗ وَٱتَّقُوا۟ ٱللَّهَ وَٱعْلَمُوٓا۟ أَنَّ ٱللَّهَ بِمَا تَعْمَلُونَ بَصِيرٌۭ](https://quran.com/2/233)
 
-* __Surah Al-Baqarah 2/254__: [O believers! Donate from what We have provided for you before the arrival of a Day when there will be no bargaining,1 friendship,2 or intercession. Those who disbelieve are ˹truly˺ the wrongdoers.](https://quran.com/2/254)
+* __Surah Al-Baqarah 2/254__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوٓا۟ أَنفِقُوا۟ مِمَّا رَزَقْنَـٰكُم مِّن قَبْلِ أَن يَأْتِىَ يَوْمٌۭ لَّا بَيْعٌۭ فِيهِ وَلَا خُلَّةٌۭ وَلَا شَفَـٰعَةٌۭ ۗ وَٱلْكَـٰفِرُونَ هُمُ ٱلظَّـٰلِمُونَ](https://quran.com/2/254)
 
 *** 
 

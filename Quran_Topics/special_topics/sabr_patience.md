@@ -20,6 +20,8 @@ And so are Badr and Hunayn in the battle of existence.
 ***
 
 #### [Sabr Tum Khud Nahi Kar Sakte | Allah Ki Madad Ke Baghair Sabr Namumkin Hai | Irfan ul Haq](https://www.youtube.com/watch?v=ZTyWeL7bRLA)
+* Maryam AS sabr
+* Hajra AS sabr
 
 ***
 

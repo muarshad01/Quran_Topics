@@ -50,46 +50,37 @@
 
 * __Surah Al-Baqarah 2/233__: [˹Divorced˺ mothers will breastfeed their offspring for two whole years, for those who wish to complete the nursing ˹of their child˺. The child’s father will provide reasonable maintenance and clothing for the mother ˹during that period˺. No one will be charged with more than they can bear. No mother or father should be made to suffer for their child. The ˹father’s˺ heirs are under the same obligation. But if both sides decide—after mutual consultation and consent—to wean a child, then there is no blame on them. If you decide to have your children nursed by a wet-nurse, it is permissible as long as you pay fairly. Be mindful of Allah, and know that Allah is All-Seeing of what you do.](https://quran.com/2/233)
 
-* __Surah Al-Baqarah 2/254__: [O believers! Donate from what We have provided for you before the arrival of a Day when there will be no bargaining,1 friendship,2 or intercession. Those who disbelieve are ˹truly˺ the wrongdoers.
-](https://quran.com/2/254)
+* __Surah Al-Baqarah 2/254__: [O believers! Donate from what We have provided for you before the arrival of a Day when there will be no bargaining,1 friendship,2 or intercession. Those who disbelieve are ˹truly˺ the wrongdoers.](https://quran.com/2/254)
 
 *** 
 
-### Surah Al-Imran (3)
-
-* __Surah Al-Imran 03/27__: [You cause the night to pass into the day and the day into the night. You bring forth the living from the dead and the dead from the living. And You provide for whoever You will without limit.”](https://quran.com/3/27)
+* __Surah Al-Imran 03/27__: [تُولِجُ ٱلَّيْلَ فِى ٱلنَّهَارِ وَتُولِجُ ٱلنَّهَارَ فِى ٱلَّيْلِ ۖ وَتُخْرِجُ ٱلْحَىَّ مِنَ ٱلْمَيِّتِ وَتُخْرِجُ ٱلْمَيِّتَ مِنَ ٱلْحَىِّ ۖ وَتَرْزُقُ مَن تَشَآءُ بِغَيْرِ حِسَابٍۢ](https://quran.com/3/27)
   
-* __Surah Al-Imran 03/37__: [So her Lord accepted her graciously and blessed her with a pleasant upbringing—entrusting her to the care of Zachariah. Whenever Zachariah visited her in the sanctuary, he found her supplied with provisions. He exclaimed, “O Mary! Where did this come from?” She replied, “It is from Allah. Surely Allah provides for whoever He wills without limit.”](https://quran.com/3/37)
+* __Surah Al-Imran 03/37__: [فَتَقَبَّلَهَا رَبُّهَا بِقَبُولٍ حَسَنٍۢ وَأَنۢبَتَهَا نَبَاتًا حَسَنًۭا وَكَفَّلَهَا زَكَرِيَّا ۖ كُلَّمَا دَخَلَ عَلَيْهَا زَكَرِيَّا ٱلْمِحْرَابَ وَجَدَ عِندَهَا رِزْقًۭا ۖ قَالَ يَـٰمَرْيَمُ أَنَّىٰ لَكِ هَـٰذَا ۖ قَالَتْ هُوَ مِنْ عِندِ ٱللَّهِ ۖ إِنَّ ٱللَّهَ يَرْزُقُ مَن يَشَآءُ بِغَيْرِ حِسَابٍ](https://quran.com/3/37)
 
-* __Surah Al-Imran 03/169__: [Never think of those martyred in the cause of Allah as dead. In fact, they are alive with their Lord, well provided for—](https://quran.com/3/169)
-
-***
-
-### Surah An-Nisa (4)
-
-* __Surah An-Nisa 04/5__: [Do not entrust the incapable ˹among your dependants˺ with your wealth which Allah has made a means of support for you—but feed and clothe them from it, and speak to them kindly.](https://quran.com/4/5)
-
-* __Surah An-Nisa 04/8__: [If ˹non-inheriting˺ relatives, orphans,1 or the needy are present at the time of distribution, offer them a ˹small˺ provision from it and speak to them kindly.](https://quran.com/4/8)
-
-* __Surah An-Nisa 04/39__: [What harm could have come to them if they had believed in Allah and the Last Day and donated from what Allah has provided for them? And Allah has ˹perfect˺ knowledge of them.](https://quran.com/4/39)
+* __Surah Al-Imran 03/169__: [وَلَا تَحْسَبَنَّ ٱلَّذِينَ قُتِلُوا۟ فِى سَبِيلِ ٱللَّهِ أَمْوَٰتًۢا ۚ بَلْ أَحْيَآءٌ عِندَ رَبِّهِمْ يُرْزَقُونَ](https://quran.com/3/169)
 
 ***
 
-### Surah Al-Maidah (5)
+* __Surah An-Nisa 04/5__: [وَلَا تُؤْتُوا۟ ٱلسُّفَهَآءَ أَمْوَٰلَكُمُ ٱلَّتِى جَعَلَ ٱللَّهُ لَكُمْ قِيَـٰمًۭا وَٱرْزُقُوهُمْ فِيهَا وَٱكْسُوهُمْ وَقُولُوا۟ لَهُمْ قَوْلًۭا مَّعْرُوفًۭا](https://quran.com/4/5)
 
-* __Surah Al-Maidah 05/88__: [Eat of the good, lawful things provided to you by Allah. And be mindful of Allah in Whom you believe.](https://quran.com/5/88)
+* __Surah An-Nisa 04/8__: [وَإِذَا حَضَرَ ٱلْقِسْمَةَ أُو۟لُوا۟ ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينُ فَٱرْزُقُوهُم مِّنْهُ وَقُولُوا۟ لَهُمْ قَوْلًۭا مَّعْرُوفًۭا](https://quran.com/4/8)
 
-* __Surah Al-Maidah 05/114__: [Jesus, son of Mary, prayed, “O Allah, our Lord! Send us from heaven a table spread with food as a feast for us—the first and last of us—and as a sign from You. Provide for us! You are indeed the Best Provider.”](https://quran.com/5/114)
+* __Surah An-Nisa 04/39__: [وَمَاذَا عَلَيْهِمْ لَوْ ءَامَنُوا۟ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَأَنفَقُوا۟ مِمَّا رَزَقَهُمُ ٱللَّهُ ۚ وَكَانَ ٱللَّهُ بِهِمْ عَلِيمًا](https://quran.com/4/39)
 
 ***
 
-### Surah Al-Anam (6)
+* __Surah Al-Maidah 05/88__: [وَكُلُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ حَلَـٰلًۭا طَيِّبًۭا ۚ وَٱتَّقُوا۟ ٱللَّهَ ٱلَّذِىٓ أَنتُم بِهِۦ مُؤْمِنُونَ](https://quran.com/5/88)
 
-* __Surah Al-Anam 05/140__: [Lost indeed are those who have murdered their own children foolishly out of ignorance and have forbidden what Allah has provided for them—falsely attributing lies to Allah. They have certainly strayed and are not ˹rightly˺ guided.](https://quran.com/6/140)
+* __Surah Al-Maidah 05/114__: [قَالَ عِيسَى ٱبْنُ مَرْيَمَ ٱللَّهُمَّ رَبَّنَآ أَنزِلْ عَلَيْنَا مَآئِدَةًۭ مِّنَ ٱلسَّمَآءِ تَكُونُ لَنَا عِيدًۭا لِّأَوَّلِنَا وَءَاخِرِنَا وَءَايَةًۭ مِّنكَ ۖ وَٱرْزُقْنَا وَأَنتَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/5/114)
 
-* __Surah Al-Anam 05/142__: [Some cattle are fit for labour, others are too small.1 Eat of what Allah has provided for you and do not follow Satan’s footsteps. Certainly, he is your sworn enemy.](https://quran.com/6/142)
+***
 
-* __Surah Al-Anam 05/152__: [And do not come near the wealth of the orphan—unless intending to enhance it—until they attain maturity. Give full measure and weigh with justice. We never require of any soul more than what it can afford. Whenever you speak,1 maintain justice—even regarding a close relative. And fulfil your covenant with Allah. This is what He has commanded you, so perhaps you will be mindful.](https://quran.com/6/152)
+* __Surah Al-Anam 05/140__: [قَدْ خَسِرَ ٱلَّذِينَ قَتَلُوٓا۟ أَوْلَـٰدَهُمْ سَفَهًۢا بِغَيْرِ عِلْمٍۢ وَحَرَّمُوا۟ مَا رَزَقَهُمُ ٱللَّهُ ٱفْتِرَآءً عَلَى ٱللَّهِ ۚ قَدْ ضَلُّوا۟ وَمَا كَانُوا۟ مُهْتَدِينَ](https://quran.com/6/140)
+
+* __Surah Al-Anam 05/142__: [وَمِنَ ٱلْأَنْعَـٰمِ حَمُولَةًۭ وَفَرْشًۭا ۚ كُلُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ وَلَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ إِنَّهُۥ لَكُمْ عَدُوٌّۭ مُّبِينٌۭ](https://quran.com/6/142)
+
+* __Surah Al-Anam 05/152__: [وَلَا تَقْرَبُوا۟ مَالَ ٱلْيَتِيمِ إِلَّا بِٱلَّتِى هِىَ أَحْسَنُ حَتَّىٰ يَبْلُغَ أَشُدَّهُۥ ۖ وَأَوْفُوا۟ ٱلْكَيْلَ وَٱلْمِيزَانَ بِٱلْقِسْطِ ۖ لَا نُكَلِّفُ نَفْسًا إِلَّا وُسْعَهَا ۖ وَإِذَا قُلْتُمْ فَٱعْدِلُوا۟ وَلَوْ كَانَ ذَا قُرْبَىٰ ۖ وَبِعَهْدِ ٱللَّهِ أَوْفُوا۟ ۚ ذَٰلِكُمْ وَصَّىٰكُم بِهِۦ لَعَلَّكُمْ تَذَكَّرُونَ](https://quran.com/6/152)
 
 ***
 

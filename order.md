@@ -22,3 +22,5 @@
 10. and men and women __who remember Allah often__ — for ˹all of˺ them Allah has prepared forgiveness and a great reward.
 
 *** 
+
+* __Surah An-Nur 24/26__: [ٱلْخَبِيثَـٰتُ لِلْخَبِيثِينَ وَٱلْخَبِيثُونَ لِلْخَبِيثَـٰتِ ۖ وَٱلطَّيِّبَـٰتُ لِلطَّيِّبِينَ وَٱلطَّيِّبُونَ لِلطَّيِّبَـٰتِ ۚ أُو۟لَـٰٓئِكَ مُبَرَّءُونَ مِمَّا يَقُولُونَ ۖ لَهُم مَّغْفِرَةٌۭ وَرِزْقٌۭ كَرِيمٌۭ](https://quran.com/24/26)

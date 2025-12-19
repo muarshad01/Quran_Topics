@@ -110,46 +110,33 @@
 
 ***
 
-### Surah Hud (11)
+* __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
 
-* __Surah Hud 11/6__: [There is no moving creature on earth whose provision is not guaranteed by Allah. And He knows where it lives and where it is laid to rest. All is ˹written˺ in a perfect Record.](https://quran.com/11/6)
-
-* __Surah Hud 11/88__: [He said, “O my people! Consider if I stand on a clear proof from my Lord and He has blessed me with a good provision from Him. I do not want to do what I am forbidding you from. I only intend reform to the best of my ability. My success comes only through Allah. In Him I trust and to Him I turn.](https://quran.com/11/88)
+* __Surah Hud 11/88__: [قَالَ يَـٰقَوْمِ أَرَءَيْتُمْ إِن كُنتُ عَلَىٰ بَيِّنَةٍۢ مِّن رَّبِّى وَرَزَقَنِى مِنْهُ رِزْقًا حَسَنًۭا ۚ وَمَآ أُرِيدُ أَنْ أُخَالِفَكُمْ إِلَىٰ مَآ أَنْهَىٰكُمْ عَنْهُ ۚ إِنْ أُرِيدُ إِلَّا ٱلْإِصْلَـٰحَ مَا ٱسْتَطَعْتُ ۚ وَمَا تَوْفِيقِىٓ إِلَّا بِٱللَّهِ ۚ عَلَيْهِ تَوَكَّلْتُ وَإِلَيْهِ أُنِيبُ](https://quran.com/11/88)
 
 ***
 
-### Surah Yusuf
-
-* __Surah Yusuf 12/37__: [Joseph replied, “I can even tell you what kind of meal you will be served before you receive it. This ˹knowledge˺ is from what my Lord has taught me. I have shunned the faith of a people who disbelieve in Allah and deny the Hereafter.](https://quran.com/12/37)
+* __Surah Yusuf 12/37__: [قَالَ لَا يَأْتِيكُمَا طَعَامٌۭ تُرْزَقَانِهِۦٓ إِلَّا نَبَّأْتُكُمَا بِتَأْوِيلِهِۦ قَبْلَ أَن يَأْتِيَكُمَا ۚ ذَٰلِكُمَا مِمَّا عَلَّمَنِى رَبِّىٓ ۚ إِنِّى تَرَكْتُ مِلَّةَ قَوْمٍۢ لَّا يُؤْمِنُونَ بِٱللَّهِ وَهُم بِٱلْـَٔاخِرَةِ هُمْ كَـٰفِرُونَ](https://quran.com/12/37)
 
 ***
 
-### Surah Ar-Rad (13)
+* __Surah Ar-Rad 13/22 (Repel Evil with Good)__: [وَٱلَّذِينَ صَبَرُوا۟ ٱبْتِغَآءَ وَجْهِ رَبِّهِمْ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَأَنفَقُوا۟ مِمَّا رَزَقْنَـٰهُمْ سِرًّۭا وَعَلَانِيَةًۭ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ أُو۟لَـٰٓئِكَ لَهُمْ عُقْبَى ٱلدَّارِ](https://quran.com/13/22)
 
-* __Surah Ar-Rad 13/22 (Repel Evil with Good)__: [And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure,1 establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:](https://quran.com/13/22)
-
-* __Surah Ar-Rad 13/26__: [Allah gives abundant or limited provisions to whoever He wills. And the disbelievers become prideful of ˹the pleasures of˺ this worldly life. But the life of this world, compared to the Hereafter, is nothing but a fleeting enjoyment.](https://quran.com/13/26)
+* __Surah Ar-Rad 13/26__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ وَفَرِحُوا۟ بِٱلْحَيَوٰةِ ٱلدُّنْيَا وَمَا ٱلْحَيَوٰةُ ٱلدُّنْيَا فِى ٱلْـَٔاخِرَةِ إِلَّا مَتَـٰعٌۭ](https://quran.com/13/26)
 
 ***
 
-### Surah Ibrahim (14)
+* __Surah Ibrahim 14/31__: [قُل لِّعِبَادِىَ ٱلَّذِينَ ءَامَنُوا۟ يُقِيمُوا۟ ٱلصَّلَوٰةَ وَيُنفِقُوا۟ مِمَّا رَزَقْنَـٰهُمْ سِرًّۭا وَعَلَانِيَةًۭ مِّن قَبْلِ أَن يَأْتِىَ يَوْمٌۭ لَّا بَيْعٌۭ فِيهِ وَلَا خِلَـٰلٌ](https://quran.com/14/31)
 
-* __Surah Ibrahim 14/31__: [Tell My believing servants to establish prayer and donate from what We have provided for them—openly and secretly—before the arrival of a Day in which there will be no ransom or friendly connections.](https://quran.com/14/31)
+* __Surah Ibrahim 14/32__: [ٱللَّهُ ٱلَّذِى خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ وَأَنزَلَ مِنَ ٱلسَّمَآءِ مَآءًۭ فَأَخْرَجَ بِهِۦ مِنَ ٱلثَّمَرَٰتِ رِزْقًۭا لَّكُمْ ۖ وَسَخَّرَ لَكُمُ ٱلْفُلْكَ لِتَجْرِىَ فِى ٱلْبَحْرِ بِأَمْرِهِۦ ۖ وَسَخَّرَ لَكُمُ ٱلْأَنْهَـٰرَ](https://quran.com/14/32)
 
-* __Surah Ibrahim 14/32__: [It is Allah Who created the heavens and the earth and sends down rain from the sky, causing fruits to grow as a provision for you. He has subjected the ships for your service, sailing through the sea by His command, and has subjected the rivers for you.](https://quran.com/14/32)
-
-* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quran.com/14/37)
+* __Surah Ibrahim 14/37__: [رَّبَّنَآ إِنِّىٓ أَسْكَنتُ مِن ذُرِّيَّتِى بِوَادٍ غَيْرِ ذِى زَرْعٍ عِندَ بَيْتِكَ ٱلْمُحَرَّمِ رَبَّنَا لِيُقِيمُوا۟ ٱلصَّلَوٰةَ فَٱجْعَلْ أَفْـِٔدَةًۭ مِّنَ ٱلنَّاسِ تَهْوِىٓ إِلَيْهِمْ وَٱرْزُقْهُم مِّنَ ٱلثَّمَرَٰتِ لَعَلَّهُمْ يَشْكُرُونَ](https://quran.com/14/37)
 
 ***
 
-### Surah Al-Hijr
-
-* __Surah Al-Hijr 15/20 __: [And We made in it means of sustenance for you and others, who you do not provide for.](https://quran.com/15/20)
-
+* __Surah Al-Hijr 15/20__: [وَجَعَلْنَا لَكُمْ فِيهَا مَعَـٰيِشَ وَمَن لَّسْتُمْ لَهُۥ بِرَٰزِقِينَ](https://quran.com/15/20)
 
 ***
-
-### Surah An-Nahl (16)
 
 * __Surah An-Nahl 16/56__: [وَيَجْعَلُونَ لِمَا لَا يَعْلَمُونَ نَصِيبًۭا مِّمَّا رَزَقْنَـٰهُمْ ۗ تَٱللَّهِ لَتُسْـَٔلُنَّ عَمَّا كُنتُمْ تَفْتَرُونَ](https://quran.com/16/56)
 
@@ -208,45 +195,35 @@
 
 ***
 
-### Surah Al-Muminun (23)
-
-* __Surah Al-Muminun 23/72__: [Or ˹is it because˺ you ˹O Prophet˺ are asking them for tribute? But the reward of your Lord is best, for He is the Best Provider.](https://quran.com/23/72)
+* __Surah Al-Muminun 23/72__: [أَمْ تَسْـَٔلُهُمْ خَرْجًۭا فَخَرَاجُ رَبِّكَ خَيْرٌۭ ۖ وَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/23/72)
 
 ***
 
-### Surah An-Nur (24)
+* __Surah An-Nur 24/26__: [ٱلْخَبِيثَـٰتُ لِلْخَبِيثِينَ وَٱلْخَبِيثُونَ لِلْخَبِيثَـٰتِ ۖ وَٱلطَّيِّبَـٰتُ لِلطَّيِّبِينَ وَٱلطَّيِّبُونَ لِلطَّيِّبَـٰتِ ۚ أُو۟لَـٰٓئِكَ مُبَرَّءُونَ مِمَّا يَقُولُونَ ۖ لَهُم مَّغْفِرَةٌۭ وَرِزْقٌۭ كَرِيمٌۭ](https://quran.com/24/26)
 
-* __Surah An-Nur 24/26__: [Wicked women are for wicked men, and wicked men are for wicked women. And virtuous women are for virtuous men, and virtuous men are for virtuous women. The virtuous are innocent of what the wicked say. They will have forgiveness and an honourable provision.1 
-](https://quran.com/24/26)
-
-* __Surah An-Nur 24/38__: [˹hoping˺ that Allah may reward them according to the best of their deeds, and increase them out of His grace. And Allah provides for whoever He wills without limit.
-](https://quran.com/24/38)
+* __Surah An-Nur 24/38__: [لِيَجْزِيَهُمُ ٱللَّهُ أَحْسَنَ مَا عَمِلُوا۟ وَيَزِيدَهُم مِّن فَضْلِهِۦ ۗ وَٱللَّهُ يَرْزُقُ مَن يَشَآءُ بِغَيْرِ حِسَابٍۢ](https://quran.com/24/38)
 
 ***
 
-### Surah An-Naml (27)
-
-* __Surah An-Naml 27/64__: [Or ˹ask them,˺ “Who originates the creation then resurrects it, and gives you provisions from the heavens and the earth? Is it another god besides Allah?” Say, ˹O Prophet,˺ “Show ˹me˺ your proof, if what you say is true.”](https://quran.com/27/64)
+* __Surah An-Naml 27/64__: [أَمَّن يَبْدَؤُا۟ ٱلْخَلْقَ ثُمَّ يُعِيدُهُۥ وَمَن يَرْزُقُكُم مِّنَ ٱلسَّمَآءِ وَٱلْأَرْضِ ۗ أَءِلَـٰهٌۭ مَّعَ ٱللَّهِ ۚ قُلْ هَاتُوا۟ بُرْهَـٰنَكُمْ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/27/64)
 
 ***
 
-### Surah Al-Qasas (28)
-
-* __Surah Al-Qasas 28/54__: [These ˹believers˺ will be given a DOUBLE REWARD for their perseverance, responding to evil with good, and for donating from what We have provided for them.](https://quran.com/28/54)
+* __Surah Al-Qasas 28/54__: [أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ بِمَا صَبَرُوا۟ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/28/54)
   
-* __Surah Al-Qasas 28/57__: [They say ˹to the Prophet˺, “If we were to follow ˹true˺ guidance with you, we would certainly be snatched away from our land.” Have We not established for them a safe haven ˹in Mecca˺ to which fruits of all kinds are brought as a provision from Us? But most of them do not know ˹this favour˺.](https://quran.com/28/57)
+* __Surah Al-Qasas 28/57__: [وَقَالُوٓا۟ إِن نَّتَّبِعِ ٱلْهُدَىٰ مَعَكَ نُتَخَطَّفْ مِنْ أَرْضِنَآ ۚ أَوَلَمْ نُمَكِّن لَّهُمْ حَرَمًا ءَامِنًۭا يُجْبَىٰٓ إِلَيْهِ ثَمَرَٰتُ كُلِّ شَىْءٍۢ رِّزْقًۭا مِّن لَّدُنَّا وَلَـٰكِنَّ أَكْثَرَهُمْ لَا يَعْلَمُونَ](https://quran.com/28/57)
   
-* __Surah Al-Qasas 28/82__: [And those who had craved his position the previous day began to say, “Ah! It is certainly Allah Who gives abundant or limited provisions to whoever He wills of His servants. Had it not been for the grace of Allah, He could have surely caused the earth to swallow us up! Oh, indeed! The disbelievers will never succeed.”](https://quran.com/28/82)
+* __Surah Al-Qasas 28/82__: [وَأَصْبَحَ ٱلَّذِينَ تَمَنَّوْا۟ مَكَانَهُۥ بِٱلْأَمْسِ يَقُولُونَ وَيْكَأَنَّ ٱللَّهَ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ ۖ لَوْلَآ أَن مَّنَّ ٱللَّهُ عَلَيْنَا لَخَسَفَ بِنَا ۖ وَيْكَأَنَّهُۥ لَا يُفْلِحُ ٱلْكَـٰفِرُونَ](https://quran.com/28/82)
 
 ***
 
 ### Surah Al-Ankabut (29)
 
-* __Surah Al-Ankabut 29/17__: [You worship besides Allah nothing but idols, simply creating lies ˹about them˺. Those you worship besides Allah certainly cannot give you any provision. So seek provision from Allah ˹alone˺, worship Him, and be grateful to Him. To Him you will ˹all˺ be returned.](https://quran.com/29/17)
+* __Surah Al-Ankabut 29/17__: [إِنَّمَا تَعْبُدُونَ مِن دُونِ ٱللَّهِ أَوْثَـٰنًۭا وَتَخْلُقُونَ إِفْكًا ۚ إِنَّ ٱلَّذِينَ تَعْبُدُونَ مِن دُونِ ٱللَّهِ لَا يَمْلِكُونَ لَكُمْ رِزْقًۭا فَٱبْتَغُوا۟ عِندَ ٱللَّهِ ٱلرِّزْقَ وَٱعْبُدُوهُ وَٱشْكُرُوا۟ لَهُۥٓ ۖ إِلَيْهِ تُرْجَعُونَ](https://quran.com/29/17)
 
-* __Surah Al-Ankabut 29/60__: [How many are the creatures that cannot secure their provisions! ˹It is˺ Allah ˹Who˺ provides for them and you ˹as well˺. He is indeed the All-Hearing, All-Knowing.](https://quran.com/29/60)
+* __Surah Al-Ankabut 29/60__: [وَكَأَيِّن مِّن دَآبَّةٍۢ لَّا تَحْمِلُ رِزْقَهَا ٱللَّهُ يَرْزُقُهَا وَإِيَّاكُمْ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/29/60)
 
-* __Surah Al-Ankabut 29/62__: [Allah gives abundant or limited provisions to whoever He wills of His servants. Surely Allah has ˹full˺ knowledge of everything.](https://quran.com/29/62)
+* __Surah Al-Ankabut 29/62__: [ٱللَّهُ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥٓ ۚ إِنَّ ٱللَّهَ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/29/62)
 
 ***
 

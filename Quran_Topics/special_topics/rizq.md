@@ -301,8 +301,6 @@
   
 ***
 
-### Surah Saba (34)
-
 * __Surah Al-Saba 34/4__: [So He may reward those who believe and do good. It is they who will have forgiveness and an honourable provision.](https://quran.com/34/4)
 
 * __Surah Al-Saba 34/15__: [Indeed, there was a sign for ˹the tribe of˺ Sheba in their homeland: two orchards—one to the right and the other to the left. ˹They were told:˺ “Eat from the provision of your Lord, and be grateful to Him. ˹Yours is˺ a good land and a forgiving Lord.”](https://quran.com/34/15)
@@ -315,114 +313,90 @@
 
 ***
 
-### Surah Fatir (35)
+* __Surah Fatir 35/3__: [يَـٰٓأَيُّهَا ٱلنَّاسُ ٱذْكُرُوا۟ نِعْمَتَ ٱللَّهِ عَلَيْكُمْ ۚ هَلْ مِنْ خَـٰلِقٍ غَيْرُ ٱللَّهِ يَرْزُقُكُم مِّنَ ٱلسَّمَآءِ وَٱلْأَرْضِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ۖ فَأَنَّىٰ تُؤْفَكُونَ](https://quran.com/35/3)
 
-* __Surah Fatir 35/3__: [O humanity! Remember Allah’s favours upon you. Is there any creator other than Allah who provides for you from the heavens and the earth? There is no god ˹worthy of worship˺ except Him. How can you then be deluded ˹from the truth˺?](https://quran.com/35/3)
-
-* __Surah Fatir 35/39__: [He is the One Who has placed you as successors on earth. So whoever disbelieves will bear ˹the burden of˺ their own disbelief. The disbelievers’ denial only increases them in contempt in the sight of their Lord, and it will only contribute to their loss.](https://quran.com/35/39)
+* __Surah Fatir 35/39__: [هُوَ ٱلَّذِى جَعَلَكُمْ خَلَـٰٓئِفَ فِى ٱلْأَرْضِ ۚ فَمَن كَفَرَ فَعَلَيْهِ كُفْرُهُۥ ۖ وَلَا يَزِيدُ ٱلْكَـٰفِرِينَ كُفْرُهُمْ عِندَ رَبِّهِمْ إِلَّا مَقْتًۭا ۖ وَلَا يَزِيدُ ٱلْكَـٰفِرِينَ كُفْرُهُمْ إِلَّا خَسَارًۭا](https://quran.com/35/39)
 
 ***
 
-### Surah Yasin (36)
-
-* __Surah Yasin 36__: [And when it is said to them, “Donate from what Allah has provided for you,” the disbelievers say to the believers, “Why should we feed those whom Allah could have fed if He wanted to? You are clearly astray!”](https://quran.com/36/47)
+* __Surah Yasin 36/47__: [وَإِذَا قِيلَ لَهُمْ أَنفِقُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ قَالَ ٱلَّذِينَ كَفَرُوا۟ لِلَّذِينَ ءَامَنُوٓا۟ أَنُطْعِمُ مَن لَّوْ يَشَآءُ ٱللَّهُ أَطْعَمَهُۥٓ إِنْ أَنتُمْ إِلَّا فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/36/47)
 
 ***
 
-### Surah As-Saffat ()
-
-* __Surah As-Saffat 37/41__ :[They will have a known provision:](https://quranwbw.com/37/41)
+* __Surah As-Saffat 37/41__ : [أُو۟لَـٰٓئِكَ لَهُمْ رِزْقٌۭ مَّعْلُومٌۭ](https://quran.com/37/41)
 
 ***
 
-### Surah Sad Ayat (38)
-
-* __Surah Sad 38/54__: [This is indeed Our provision that will never end.](https://quranwbw.com/38/54)
+* __Surah Sad 38/54__: [إِنَّ هَـٰذَا لَرِزْقُنَا مَا لَهُۥ مِن نَّفَادٍ](https://quran.com/38/54)
 
 ***
 
-### Surah Az-Zumar (39)
-
-* __Surah Az-Zumar 39/52__: [Do they not know that Allah gives abundant or limited provisions to whoever He wills? Surely in this are signs for people who believe.](https://quranwbw.com/39/52)
+* __Surah Az-Zumar 39/52__: [أَوَلَمْ يَعْلَمُوٓا۟ أَنَّ ٱللَّهَ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ إِنَّ فِى ذَٰلِكَ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/39/52)
 
 ***
 
-### Surah Al Ghhaafir (40)
+* __Surah Al Ghaafir 40/13__: [هُوَ ٱلَّذِى يُرِيكُمْ ءَايَـٰتِهِۦ وَيُنَزِّلُ لَكُم مِّنَ ٱلسَّمَآءِ رِزْقًۭا ۚ وَمَا يَتَذَكَّرُ إِلَّا مَن يُنِيبُ](https://quran.com/40/13)
 
-* __Surah Al Ghaafir 40/13__: [He is the One Who shows you His signs and sends down ˹rain as˺ a provision for you from the sky. ˹But˺ none will be mindful except those who turn ˹to Him˺.](https://quranwbw.com/40/13)
+* __Surah Al Ghaafir 40/40__: [مَنْ عَمِلَ سَيِّئَةًۭ فَلَا يُجْزَىٰٓ إِلَّا مِثْلَهَا ۖ وَمَنْ عَمِلَ صَـٰلِحًۭا مِّن ذَكَرٍ أَوْ أُنثَىٰ وَهُوَ مُؤْمِنٌۭ فَأُو۟لَـٰٓئِكَ يَدْخُلُونَ ٱلْجَنَّةَ يُرْزَقُونَ فِيهَا بِغَيْرِ حِسَابٍۢ](https://quran.com/40/40)
 
-* __Surah Al Ghaafir 40/40__: [Whoever does an evil deed will only be paid back with its equivalent. And whoever does good, whether male or female, and is a believer, they will enter Paradise, where they will be provided for without limit.
-](https://quranwbw.com/40/40)
-
-* __Surah Al Ghaafir 40/65__: [He is the Ever-Living. There is no god ˹worthy of worship˺ except Him. So call upon Him with sincere devotion, ˹saying,˺ “All praise is for Allah—Lord of all worlds.”](https://quranwbw.com/40/65)
+* __Surah Al Ghaafir 40/65 (ٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ)__: [هُوَ ٱلْحَىُّ لَآ إِلَـٰهَ إِلَّا هُوَ فَٱدْعُوهُ مُخْلِصِينَ لَهُ ٱلدِّينَ ۗ ٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/40/65)
 
 ***
 
-### Surah Ash Shura (42)
+* __Surah Ash Shura 42/12__: [لَهُۥ مَقَالِيدُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ إِنَّهُۥ بِكُلِّ شَىْءٍ عَلِيمٌۭ ١٢](https://quran.com/42/12)
 
-* __Surah Ash Shura 42/12__: [To Him belong the keys ˹of the treasuries˺ of the heavens and the earth. He gives abundant or limited provisions to whoever He wills. Indeed, He has ˹perfect˺ knowledge of all things.](https://quranwbw.com/42/12)
+* __Surah Ash Shura 42/19__: [ٱللَّهُ لَطِيفٌۢ بِعِبَادِهِۦ يَرْزُقُ مَن يَشَآءُ ۖ وَهُوَ ٱلْقَوِىُّ ٱلْعَزِيزُ](https://quran.com/42/19)
 
-* __Surah Ash Shura 42/19__: [Allah is Ever Kind to His servants. He provides ˹abundantly˺ to whoever He wills. And He is the All-Powerful, Almighty.](https://quranwbw.com/42/19)
+* __Surah Ash Shura 42/27__: [۞ وَلَوْ بَسَطَ ٱللَّهُ ٱلرِّزْقَ لِعِبَادِهِۦ لَبَغَوْا۟ فِى ٱلْأَرْضِ وَلَـٰكِن يُنَزِّلُ بِقَدَرٍۢ مَّا يَشَآءُ ۚ إِنَّهُۥ بِعِبَادِهِۦ خَبِيرٌۢ بَصِيرٌۭ](https://quran.com/42/27)
 
-* __Surah Ash Shura 42/27__: [Had Allah given abundant provisions to ˹all˺ His servants, they would have certainly transgressed throughout the land. But He sends down whatever He wills in perfect measure. He is truly All-Aware, All-Seeing of His servants.](https://quranwbw.com/42/27)
-
-* __Surah Ash Shura 42/38__: [who respond to their Lord, establish prayer, conduct their affairs by mutual consultation, and donate from what We have provided for them;](https://quranwbw.com/42/38)
+* __Surah Ash Shura 42/38__: [وَٱلَّذِينَ ٱسْتَجَابُوا۟ لِرَبِّهِمْ وَأَقَامُوا۟ ٱلصَّلَوٰةَ وَأَمْرُهُمْ شُورَىٰ بَيْنَهُمْ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/42/38)
 
 ***
 
-### Surah Al-Jathiyah (45)
-* __Surah Al-Jathiyah 45/5__: [And ˹in˺ the alternation of the day and the night, the provision1 sent down from the skies by Allah—reviving the earth after its death—and the shifting of the winds, are signs for people of understanding.](https://quran.com/45/5)
+* __Surah Al-Jathiyah 45/5__: [وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن رِّزْقٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَتَصْرِيفِ ٱلرِّيَـٰحِ ءَايَـٰتٌۭ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/45/5)
 
-* __Surah Al-Jathiyah 45/16__: [Indeed, We gave the Children of Israel the Scripture, wisdom, and prophethood; granted them good, lawful provisions; and favoured them above the others.](https://quran.com/45/16)
-
-***
-
-### Surah Qaaf (50)
-* __Surah Qaaf 50/11__:[˹as˺ a provision for ˹Our˺ servants. And with this ˹rain˺ We revive a lifeless land. Similar is the emergence ˹from the graves˺.](https://quran.com/50/11)
+* __Surah Al-Jathiyah 45/16__: [وَلَقَدْ ءَاتَيْنَا بَنِىٓ إِسْرَٰٓءِيلَ ٱلْكِتَـٰبَ وَٱلْحُكْمَ وَٱلنُّبُوَّةَ وَرَزَقْنَـٰهُم مِّنَ ٱلطَّيِّبَـٰتِ وَفَضَّلْنَـٰهُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/45/16)
 
 ***
 
-### Surah Adh-Dhariyat (51) 
-* __Surah Adh-Dhariyat 51/22__: [In heaven is your sustenance and whatever you are promised.](https://quran.com/51/22)
-
-* __Surah Adh-Dhariyat 51/57__:[I seek no provision from them, nor do I need them to feed Me.](https://quran.com/51/57)
-
-* __Surah Adh-Dhariyat 51/58__:[Indeed, Allah ˹alone˺ is the Supreme Provider—Lord of all Power, Ever Mighty.](https://quran.com/51/58)
+* __Surah Qaaf 50/11__: [رِّزْقًۭا لِّلْعِبَادِ ۖ وَأَحْيَيْنَا بِهِۦ بَلْدَةًۭ مَّيْتًۭا ۚ كَذَٰلِكَ ٱلْخُرُوجُ](https://quran.com/50/11)
 
 ***
 
-### Surah Al-Waqi’ah (56)
-* __Surah Al-Waqi’ah 56/82__: [and repay ˹Allah for˺ your provisions with denial?](https://quranwbw.com/56/82)
+* __Surah Adh-Dhariyat 51/22__: [وَفِى ٱلسَّمَآءِ رِزْقُكُمْ وَمَا تُوعَدُونَ](https://quran.com/51/22)
+
+* __Surah Adh-Dhariyat 51/57__: [مَآ أُرِيدُ مِنْهُم مِّن رِّزْقٍۢ وَمَآ أُرِيدُ أَن يُطْعِمُونِ](https://quran.com/51/57)
+
+* __Surah Adh-Dhariyat 51/58__:[إِنَّ ٱللَّهَ هُوَ ٱلرَّزَّاقُ ذُو ٱلْقُوَّةِ ٱلْمَتِينُ](https://quran.com/51/58)
 
 ***
 
-### Surah Al-Jumu’ah (62)
-* __Surah Al-Waqi’ah 62/11__: [When they saw the fanfare along with the caravan, they ˹almost all˺ flocked to it, leaving you ˹O Prophet˺ standing ˹on the pulpit˺. Say, “What is with Allah is far better than amusement and merchandise. And Allah is the Best Provider.”](https://quranwbw.com/62/11)
+* __Surah Al-Waqi’ah 56/82__: [وَتَجْعَلُونَ رِزْقَكُمْ أَنَّكُمْ تُكَذِّبُونَ](https://quran.com/56/82)
 
 ***
 
-#### Surah Al-Munafiqun (63)
-* __Surah Al-Munafiqun 63/10__: [And donate from what We have provided for you before death comes to one of you, and you cry, “My Lord! If only You delayed me for a short while, I would give in charity and be one of the righteous.”](https://quranwbw.com/63/10)
+* __Surah Al-Jumuah 62/11__: [وَإِذَا رَأَوْا۟ تِجَـٰرَةً أَوْ لَهْوًا ٱنفَضُّوٓا۟ إِلَيْهَا وَتَرَكُوكَ قَآئِمًۭا ۚ قُلْ مَا عِندَ ٱللَّهِ خَيْرٌۭ مِّنَ ٱللَّهْوِ وَمِنَ ٱلتِّجَـٰرَةِ ۚ وَٱللَّهُ خَيْرُ ٱلرَّٰزِقِينَ ١١](https://quran.com/62/11)
 
 ***
 
-#### Surah At-Talaq (65)
-* __Surah At-Talaq 65/3__: [and provide for them from sources they could never imagine. And whoever puts their trust in Allah, then He ˹alone˺ is sufficient for them. Certainly Allah achieves His Will. Allah has already set a destiny for everything.](https://quranwbw.com/65/3)
+* __Surah Al-Munafiqun 63/10__: [وَأَنفِقُوا۟ مِن مَّا رَزَقْنَـٰكُم مِّن قَبْلِ أَن يَأْتِىَ أَحَدَكُمُ ٱلْمَوْتُ فَيَقُولَ رَبِّ لَوْلَآ أَخَّرْتَنِىٓ إِلَىٰٓ أَجَلٍۢ قَرِيبٍۢ فَأَصَّدَّقَ وَأَكُن مِّنَ ٱلصَّـٰلِحِينَ ١٠](https://quran.com/63/10)
 
-* __Surah At-Talaq 65/7__: [Let the man of wealth provide according to his means. As for the one with limited resources, let him provide according to whatever Allah has given him. Allah does not require of any soul beyond what He has given it. After hardship, Allah will bring about ease.](https://quranwbw.com/65/7)
+***
+
+* __Surah At-Talaq 65/3__: [وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
+
+* __Surah At-Talaq 65/7__: [لِيُنفِقْ ذُو سَعَةٍۢ مِّن سَعَتِهِۦ ۖ وَمَن قُدِرَ عَلَيْهِ رِزْقُهُۥ فَلْيُنفِقْ مِمَّآ ءَاتَىٰهُ ٱللَّهُ ۚ لَا يُكَلِّفُ ٱللَّهُ نَفْسًا إِلَّا مَآ ءَاتَىٰهَا ۚ سَيَجْعَلُ ٱللَّهُ بَعْدَ عُسْرٍۢ يُسْرًۭا](https://quran.com/65/7)
   
-* __Surah At-Talaq 65/11__: [˹and sent˺ a messenger reciting to you Allah’s revelations, making things clear so that He may bring those who believe and do good out of darkness and into light. And whoever believes in Allah and does good will be admitted by Him into Gardens under which rivers flow, to stay there for ever and ever. Allah will have indeed granted them an excellent provision.](https://quranwbw.com/65/11)
+* __Surah At-Talaq 65/11__: [رَّسُولًۭا يَتْلُوا۟ عَلَيْكُمْ ءَايَـٰتِ ٱللَّهِ مُبَيِّنَـٰتٍۢ لِّيُخْرِجَ ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ مِنَ ٱلظُّلُمَـٰتِ إِلَى ٱلنُّورِ ۚ وَمَن يُؤْمِنۢ بِٱللَّهِ وَيَعْمَلْ صَـٰلِحًۭا يُدْخِلْهُ جَنَّـٰتٍۢ تَجْرِى مِن تَحْتِهَا ٱلْأَنْهَـٰرُ خَـٰلِدِينَ فِيهَآ أَبَدًۭا ۖ قَدْ أَحْسَنَ ٱللَّهُ لَهُۥ رِزْقًا](https://quran.com/65/11)
 
 ***
 
-#### Surah Al-Mulk (67)
-* __Surah At-Talaq 67/15__: [He is the One Who smoothed out the earth for you, so move about in its regions and eat from His provisions. And to Him is the resurrection ˹of all˺.](https://quranwbw.com/67/15)
+* __Surah At-Mulk 67/15__: [هُوَ ٱلَّذِى جَعَلَ لَكُمُ ٱلْأَرْضَ ذَلُولًۭا فَٱمْشُوا۟ فِى مَنَاكِبِهَا وَكُلُوا۟ مِن رِّزْقِهِۦ ۖ وَإِلَيْهِ ٱلنُّشُورُ](https://quran.com/67/15)
 
-* __Surah At-Talaq 67/21__: [Or who is it that will provide for you if He withholds His provision? In fact, they persist in arrogance and aversion ˹to the truth˺.](https://quranwbw.com/67/21)
+* __Surah At-Mulk 67/21__: [أَمَّنْ هَـٰذَا ٱلَّذِى يَرْزُقُكُمْ إِنْ أَمْسَكَ رِزْقَهُۥ ۚ بَل لَّجُّوا۟ فِى عُتُوٍّۢ وَنُفُورٍ](https://quran.com/67/21)
 
 ***
 
-#### Surah Al-Fajr (89)
-* __Surah Al-Fajr 89/16__: [But when He tests them by limiting their provision, they protest, “My Lord has ˹undeservedly˺ humiliated me!”](https://quranwbw.com/89/16)
+* __Surah Al-Fajr 89/16__: [وَأَمَّآ إِذَا مَا ٱبْتَلَىٰهُ فَقَدَرَ عَلَيْهِ رِزْقَهُۥ فَيَقُولُ رَبِّىٓ أَهَـٰنَنِ](https://quran.com/89/16)
 
 ***

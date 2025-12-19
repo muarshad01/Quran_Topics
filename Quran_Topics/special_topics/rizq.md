@@ -151,55 +151,45 @@
 
 ### Surah An-Nahl (16)
 
-* __Surah An-Nahl 16/56__: [And they ˹even˺ assign to those ˹idols˺—who know nothing—a share of what We have provided for them. By Allah! You will certainly be questioned about whatever ˹lies˺ you used to fabricate ˹against Allah˺.
-](https://quran.com/16/56)
+* __Surah An-Nahl 16/56__: [وَيَجْعَلُونَ لِمَا لَا يَعْلَمُونَ نَصِيبًۭا مِّمَّا رَزَقْنَـٰهُمْ ۗ تَٱللَّهِ لَتُسْـَٔلُنَّ عَمَّا كُنتُمْ تَفْتَرُونَ](https://quran.com/16/56)
 
-* __Surah An-Nahl 16/67__: [And from the fruits of palm trees and grapevines you derive intoxicants1 as well as wholesome provision. Surely in this is a sign for those who understand.](https://quran.com/16/67)
+* __Surah An-Nahl 16/67__: [وَمِن ثَمَرَٰتِ ٱلنَّخِيلِ وَٱلْأَعْنَـٰبِ تَتَّخِذُونَ مِنْهُ سَكَرًۭا وَرِزْقًا حَسَنًا ۗ إِنَّ فِى ذَٰلِكَ لَـَٔايَةًۭ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/16/67)
 
-* __Surah An-Nahl 16/71__: [And Allah has favoured some of you over others in provision. But those who have been much favoured would not share their wealth with those ˹bondspeople˺ in their possession, making them their equals.1 Do they then deny Allah’s favours?](https://quran.com/16/71)
+* __Surah An-Nahl 16/71__: [وَٱللَّهُ فَضَّلَ بَعْضَكُمْ عَلَىٰ بَعْضٍۢ فِى ٱلرِّزْقِ ۚ فَمَا ٱلَّذِينَ فُضِّلُوا۟ بِرَآدِّى رِزْقِهِمْ عَلَىٰ مَا مَلَكَتْ أَيْمَـٰنُهُمْ فَهُمْ فِيهِ سَوَآءٌ ۚ أَفَبِنِعْمَةِ ٱللَّهِ يَجْحَدُونَ](https://quran.com/16/71)
  
-* __Surah An-Nahl 16/72__: [And Allah has made for you spouses of your own kind, and given you through your spouses children and grandchildren.1 And He has granted you good, lawful provisions. Are they then faithful to falsehood and ungrateful for Allah’s favours?](https://quran.com/16/72)
+* __Surah An-Nahl 16/72__: [وَٱللَّهُ جَعَلَ لَكُم مِّنْ أَنفُسِكُمْ أَزْوَٰجًۭا وَجَعَلَ لَكُم مِّنْ أَزْوَٰجِكُم بَنِينَ وَحَفَدَةًۭ وَرَزَقَكُم مِّنَ ٱلطَّيِّبَـٰتِ ۚ أَفَبِٱلْبَـٰطِلِ يُؤْمِنُونَ وَبِنِعْمَتِ ٱللَّهِ هُمْ يَكْفُرُونَ](https://quran.com/16/72)
 
-* __Surah An-Nahl 16/73__: [Yet they worship besides Allah those ˹idols˺ who do not afford them any provision from the heavens and the earth, nor do they have the power to.](https://quran.com/16/73)
+* __Surah An-Nahl 16/73__: [وَيَعْبُدُونَ مِن دُونِ ٱللَّهِ مَا لَا يَمْلِكُ لَهُمْ رِزْقًۭا مِّنَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ شَيْـًۭٔا وَلَا يَسْتَطِيعُونَ](https://quran.com/16/73)
   
-* __Surah An-Nahl 16/75__: [Allah sets forth a parable: a slave who lacks all means, compared to a ˹free˺ man to whom We granted a good provision, of which he donates ˹freely,˺ openly and secretly. Are they equal? Praise be to Allah. In fact, most of them do not know.](https://quran.com/16/75)
+* __Surah An-Nahl 16/75__: [۞ ضَرَبَ ٱللَّهُ مَثَلًا عَبْدًۭا مَّمْلُوكًۭا لَّا يَقْدِرُ عَلَىٰ شَىْءٍۢ وَمَن رَّزَقْنَـٰهُ مِنَّا رِزْقًا حَسَنًۭا فَهُوَ يُنفِقُ مِنْهُ سِرًّۭا وَجَهْرًا ۖ هَلْ يَسْتَوُۥنَ ۚ ٱلْحَمْدُ لِلَّهِ ۚ بَلْ أَكْثَرُهُمْ لَا يَعْلَمُونَ](https://quran.com/16/75)
   
-* __Surah An-Nahl 16/112__: [And Allah sets forth the example of a society which was safe and at ease, receiving its provision in abundance from all directions. But its people met Allah’s favours with ingratitude, so Allah made them taste the clutches of hunger and fear for their misdeeds.](https://quran.com/16/112)
+* __Surah An-Nahl 16/112__: [وَضَرَبَ ٱللَّهُ مَثَلًۭا قَرْيَةًۭ كَانَتْ ءَامِنَةًۭ مُّطْمَئِنَّةًۭ يَأْتِيهَا رِزْقُهَا رَغَدًۭا مِّن كُلِّ مَكَانٍۢ فَكَفَرَتْ بِأَنْعُمِ ٱللَّهِ فَأَذَٰقَهَا ٱللَّهُ لِبَاسَ ٱلْجُوعِ وَٱلْخَوْفِ بِمَا كَانُوا۟ يَصْنَعُونَ](https://quran.com/16/112)
   
-* __Surah An-Nahl 16/114__: [So eat from the good, lawful things which Allah has provided for you, and be grateful for Allah’s favours, if you ˹truly˺ worship Him ˹alone˺.](https://quran.com/16/114)
+* __Surah An-Nahl 16/114__: [فَكُلُوا۟ مِمَّا رَزَقَكُمُ ٱللَّهُ حَلَـٰلًۭا طَيِّبًۭا وَٱشْكُرُوا۟ نِعْمَتَ ٱللَّهِ إِن كُنتُمْ إِيَّاهُ تَعْبُدُونَ](https://quran.com/16/114)
 
 ***
 
-### Surah Al-Isra (17)
+* __Surah Al-Isra 17/30__: [إِنَّ رَبَّكَ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ إِنَّهُۥ كَانَ بِعِبَادِهِۦ خَبِيرًۢا بَصِيرًۭا](https://quran.com/17/30)
 
-* __Surah Al-Isra 17/30__: [Surely your Lord gives abundant or limited provisions to whoever He wills. He is certainly All-Aware, All-Seeing of His servants.](https://quran.com/17/30)
+* __Surah Al-Isra 17/31__: [وَلَا تَقْتُلُوٓا۟ أَوْلَـٰدَكُمْ خَشْيَةَ إِمْلَـٰقٍۢ ۖ نَّحْنُ نَرْزُقُهُمْ وَإِيَّاكُمْ ۚ إِنَّ قَتْلَهُمْ كَانَ خِطْـًۭٔا كَبِيرًۭا](https://quran.com/17/31)
 
-* __Surah Al-Isra 17/31__: [Do not kill your children for fear of poverty. We provide for them and for you. Surely killing them is a heinous sin.](https://quran.com/17/31)
-
-* __Surah Al-Isra 17/70__: [Indeed, We have dignified the children of Adam, carried them on land and sea, granted them good and lawful provisions, and privileged them far above many of Our creatures.](https://quran.com/17/70)
+* __Surah Al-Isra 17/70__: [۞ وَلَقَدْ كَرَّمْنَا بَنِىٓ ءَادَمَ وَحَمَلْنَـٰهُمْ فِى ٱلْبَرِّ وَٱلْبَحْرِ وَرَزَقْنَـٰهُم مِّنَ ٱلطَّيِّبَـٰتِ وَفَضَّلْنَـٰهُمْ عَلَىٰ كَثِيرٍۢ مِّمَّنْ خَلَقْنَا تَفْضِيلًۭا](https://quran.com/17/70)
 
 ***
 
-### Surah Al-Kahf (18)
-
-* __Surah Al-Kahf 18/19__: [And so We awakened them so that they might question one another. One of them exclaimed, “How long have you remained ˹asleep˺?” Some replied, “Perhaps a day, or part of a day.” They said ˹to one another˺, “Your Lord knows best how long you have remained. So send one of you with these silver coins of yours to the city, and let him find which food is the purest, and then bring you provisions from it. Let him be ˹exceptionally˺ cautious, and do not let him give you away.](https://quran.com/18/19)
+* __Surah Al-Kahf 18/19__: [وَكَذَٰلِكَ بَعَثْنَـٰهُمْ لِيَتَسَآءَلُوا۟ بَيْنَهُمْ ۚ قَالَ قَآئِلٌۭ مِّنْهُمْ كَمْ لَبِثْتُمْ ۖ قَالُوا۟ لَبِثْنَا يَوْمًا أَوْ بَعْضَ يَوْمٍۢ ۚ قَالُوا۟ رَبُّكُمْ أَعْلَمُ بِمَا لَبِثْتُمْ فَٱبْعَثُوٓا۟ أَحَدَكُم بِوَرِقِكُمْ هَـٰذِهِۦٓ إِلَى ٱلْمَدِينَةِ فَلْيَنظُرْ أَيُّهَآ أَزْكَىٰ طَعَامًۭا فَلْيَأْتِكُم بِرِزْقٍۢ مِّنْهُ وَلْيَتَلَطَّفْ وَلَا يُشْعِرَنَّ بِكُمْ أَحَدًا](https://quran.com/18/19)
 
 ***
 
-### Surah Maryam (19)
-
-* __Surah Maryam 19/62__: [There they will never hear any idle talk—only ˹greetings of˺ peace. And there they will have their provisions morning and evening.1
-](https://quran.com/19/62)
+* __Surah Maryam 19/62__: [لَّا يَسْمَعُونَ فِيهَا لَغْوًا إِلَّا سَلَـٰمًۭا ۖ وَلَهُمْ رِزْقُهُمْ فِيهَا بُكْرَةًۭ وَعَشِيًّۭا](https://quran.com/19/62)
 
 ***
 
-### Surah Taha (20)
+* __Surah Taha 20/81__: [كُلُوا۟ مِن طَيِّبَـٰتِ مَا رَزَقْنَـٰكُمْ وَلَا تَطْغَوْا۟ فِيهِ فَيَحِلَّ عَلَيْكُمْ غَضَبِى ۖ وَمَن يَحْلِلْ عَلَيْهِ غَضَبِى فَقَدْ هَوَىٰ](https://quran.com/20/81)
 
-* __Surah Taha 20/81__: [˹saying,˺ “Eat from the good things We have provided for you, but do not transgress in them, or My wrath will befall you. And whoever My wrath befalls is certainly doomed.](https://quran.com/20/81)
+* __Surah Taha 20/131__: [وَلَا تَمُدَّنَّ عَيْنَيْكَ إِلَىٰ مَا مَتَّعْنَا بِهِۦٓ أَزْوَٰجًۭا مِّنْهُمْ زَهْرَةَ ٱلْحَيَوٰةِ ٱلدُّنْيَا لِنَفْتِنَهُمْ فِيهِ ۚ وَرِزْقُ رَبِّكَ خَيْرٌۭ وَأَبْقَىٰ](https://quran.com/20/131)
 
-* __Surah Taha 20/131__: [Do not let your eyes crave what We have allowed some of the disbelievers to enjoy; the ˹fleeting˺ splendour of this worldly life, which We test them with. But your Lord’s provision ˹in the Hereafter˺ is far better and more lasting.](https://quran.com/20/131)
-
-* __Surah Taha 20/132__: [Bid your people to pray, and be diligent in ˹observing˺ it. We do not ask you to provide. It is We Who provide for you. And the ultimate outcome is ˹only˺ for ˹the people of˺ righteousness.](https://quran.com/20/132)
+* __Surah Taha 20/132__: [وَأْمُرْ أَهْلَكَ بِٱلصَّلَوٰةِ وَٱصْطَبِرْ عَلَيْهَا ۖ لَا نَسْـَٔلُكَ رِزْقًۭا ۖ نَّحْنُ نَرْزُقُكَ ۗ وَٱلْعَـٰقِبَةُ لِلتَّقْوَىٰ](https://quran.com/20/132)
   
 ***
 

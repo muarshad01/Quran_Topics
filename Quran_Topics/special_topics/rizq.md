@@ -279,37 +279,31 @@
 
 ***
 
-### Surah Ar-Rum (30)
+* __Surah Ar-Rum 30/28__: [ضَرَبَ لَكُم مَّثَلًۭا مِّنْ أَنفُسِكُمْ ۖ هَل لَّكُم مِّن مَّا مَلَكَتْ أَيْمَـٰنُكُم مِّن شُرَكَآءَ فِى مَا رَزَقْنَـٰكُمْ فَأَنتُمْ فِيهِ سَوَآءٌۭ تَخَافُونَهُمْ كَخِيفَتِكُمْ أَنفُسَكُمْ ۚ كَذَٰلِكَ نُفَصِّلُ ٱلْـَٔايَـٰتِ لِقَوْمٍۢ يَعْقِلُونَ](https://quran.com/30/28)
 
-* __Surah Ar-Rum 30/28__: [He sets forth for you an example ˹drawn˺ from your own lives: would you allow some of those ˹bondspeople˺ in your possession to be your equal partners in whatever ˹wealth˺ We have provided you, keeping them in mind as you are mindful of your peers?1 This is how We make the signs clear for people who understand.](https://quran.com/30/28)
+* __Surah Ar-Rum 30/37__: [أَوَلَمْ يَرَوْا۟ أَنَّ ٱللَّهَ يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ ۚ إِنَّ فِى ذَٰلِكَ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/30/37)
 
-* __Surah Ar-Rum 30/37__: [Have they not seen that Allah gives abundant or limited provisions to whoever He wills? Surely in this are signs for people who believe.](https://quran.com/30/37)
-
-* __Surah Ar-Rum 30/40__: [It is Allah Who created you, then gives you provisions, then will cause you to die, and then will bring you back to life. Can any of your associate-gods do any of this? Glorified and Exalted is He above what they associate with Him ˹in worship˺!](https://quran.com/30/40)
+* __Surah Ar-Rum 30/40__: [ٱللَّهُ ٱلَّذِى خَلَقَكُمْ ثُمَّ رَزَقَكُمْ ثُمَّ يُمِيتُكُمْ ثُمَّ يُحْيِيكُمْ ۖ هَلْ مِن شُرَكَآئِكُم مَّن يَفْعَلُ مِن ذَٰلِكُم مِّن شَىْءٍۢ ۚ سُبْحَـٰنَهُۥ وَتَعَـٰلَىٰ عَمَّا يُشْرِكُونَ](https://quran.com/30/40)
 
 ***
 
-### Surah As-Sajdah (32)
-
-* __Surah As-Sajdah 32/16__: [They abandon their beds, invoking their Lord with hope and fear, and donate from what We have provided for them.](https://quran.com/32/16)
+* __Surah As-Sajdah 32/16__: [تَتَجَافَىٰ جُنُوبُهُمْ عَنِ ٱلْمَضَاجِعِ يَدْعُونَ رَبَّهُمْ خَوْفًۭا وَطَمَعًۭا وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/32/16)
 
 ***
 
-### Surah Al-Ahzab (33)
-
-* __Surah Al-Ahzad 33/31__: [And whoever of you devoutly obeys Allah and His Messenger and does good, We will grant her DOUBLE REWARD, and We have prepared for her an honourable provision.](https://quran.com/33/31)
+* __Surah Al-Ahzad 33/31__: [۞ وَمَن يَقْنُتْ مِنكُنَّ لِلَّهِ وَرَسُولِهِۦ وَتَعْمَلْ صَـٰلِحًۭا نُّؤْتِهَآ أَجْرَهَا مَرَّتَيْنِ وَأَعْتَدْنَا لَهَا رِزْقًۭا كَرِيمًۭا](https://quran.com/33/31)
   
 ***
 
-* __Surah Al-Saba 34/4__: [So He may reward those who believe and do good. It is they who will have forgiveness and an honourable provision.](https://quran.com/34/4)
+* __Surah Al-Saba 34/4__: [لِّيَجْزِىَ ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ ۚ أُو۟لَـٰٓئِكَ لَهُم مَّغْفِرَةٌۭ وَرِزْقٌۭ كَرِيمٌۭ](https://quran.com/34/4)
 
-* __Surah Al-Saba 34/15__: [Indeed, there was a sign for ˹the tribe of˺ Sheba in their homeland: two orchards—one to the right and the other to the left. ˹They were told:˺ “Eat from the provision of your Lord, and be grateful to Him. ˹Yours is˺ a good land and a forgiving Lord.”](https://quran.com/34/15)
+* __Surah Al-Saba 34/15__: [لَقَدْ كَانَ لِسَبَإٍۢ فِى مَسْكَنِهِمْ ءَايَةٌۭ ۖ جَنَّتَانِ عَن يَمِينٍۢ وَشِمَالٍۢ ۖ كُلُوا۟ مِن رِّزْقِ رَبِّكُمْ وَٱشْكُرُوا۟ لَهُۥ ۚ بَلْدَةٌۭ طَيِّبَةٌۭ وَرَبٌّ غَفُورٌۭ](https://quran.com/34/15)
 
-* __Surah Al-Saba 34/24__: [Ask ˹them, O  Prophet˺, “Who provides for you from the heavens and the earth?” Say, “Allah! Now, certainly one of our two groups1 is ˹rightly˺ guided; the other is clearly astray.”](https://quran.com/34/24)
+* __Surah Al-Saba 34/24__: [۞ قُلْ مَن يَرْزُقُكُم مِّنَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ قُلِ ٱللَّهُ ۖ وَإِنَّآ أَوْ إِيَّاكُمْ لَعَلَىٰ هُدًى أَوْ فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/34/24)
 
-* __Surah Al-Saba 34/36__: [Say, ˹O Prophet,˺ “Surely ˹it is˺ my Lord ˹Who˺ gives abundant or limited provisions to whoever He wills. But most people do not know.”](https://quran.com/34/36)
+* __Surah Al-Saba 34/36__: [قُلْ إِنَّ رَبِّى يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ وَيَقْدِرُ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَعْلَمُونَ](https://quran.com/34/36)
 
-* __Surah Al-Saba 34/39__: [Say, ˹O Prophet,˺ “Surely ˹it is˺ my Lord ˹Who˺ gives abundant or limited provisions to whoever He wills of His servants. And whatever you spend in charity, He will compensate ˹you˺ for it. For He is the Best Provider.”](https://quran.com/34/39)
+* __Surah Al-Saba 34/39__: [قُلْ إِنَّ رَبِّى يَبْسُطُ ٱلرِّزْقَ لِمَن يَشَآءُ مِنْ عِبَادِهِۦ وَيَقْدِرُ لَهُۥ ۚ وَمَآ أَنفَقْتُم مِّن شَىْءٍۢ فَهُوَ يُخْلِفُهُۥ ۖ وَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/34/39)
 
 ***
 

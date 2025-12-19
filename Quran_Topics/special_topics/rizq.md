@@ -178,18 +178,15 @@
   
 ***
 
-### Surah Al-Hajj (22)
+* __Surah Al-Hajj 22/28__: [لِّيَشْهَدُوا۟ مَنَـٰفِعَ لَهُمْ وَيَذْكُرُوا۟ ٱسْمَ ٱللَّهِ فِىٓ أَيَّامٍۢ مَّعْلُومَـٰتٍ عَلَىٰ مَا رَزَقَهُم مِّنۢ بَهِيمَةِ ٱلْأَنْعَـٰمِ ۖ فَكُلُوا۟ مِنْهَا وَأَطْعِمُوا۟ ٱلْبَآئِسَ ٱلْفَقِيرَ](https://quran.com/22/28)
 
-* __Surah Al-Hajj 22/28__: [so they may obtain the benefits ˹in store˺ for them,1 and pronounce the Name of Allah on appointed days over the sacrificial animals He has provided for them. So eat from their meat and feed the desperately poor.
-](https://quran.com/22/28)
+* __Surah Al-Hajj 22/34__: [وَلِكُلِّ أُمَّةٍۢ جَعَلْنَا مَنسَكًۭا لِّيَذْكُرُوا۟ ٱسْمَ ٱللَّهِ عَلَىٰ مَا رَزَقَهُم مِّنۢ بَهِيمَةِ ٱلْأَنْعَـٰمِ ۗ فَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ فَلَهُۥٓ أَسْلِمُوا۟ ۗ وَبَشِّرِ ٱلْمُخْبِتِينَ](https://quran.com/22/34)
 
-* __Surah Al-Hajj 22/34__: [For every community We appointed a rite of sacrifice so that they may pronounce the Name of Allah over the sacrificial animals He has provided for them. For your God is only One God, so submit yourselves to Him ˹alone˺. And give good news ˹O Prophet˺ to the humble:](https://quran.com/22/34)
+* __Surah Al-Hajj 22/35__: [ٱلَّذِينَ إِذَا ذُكِرَ ٱللَّهُ وَجِلَتْ قُلُوبُهُمْ وَٱلصَّـٰبِرِينَ عَلَىٰ مَآ أَصَابَهُمْ وَٱلْمُقِيمِى ٱلصَّلَوٰةِ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/22/35)
 
-* __Surah Al-Hajj 22/35__: [those whose hearts tremble at the remembrance of Allah, who patiently endure whatever may befall them, and who establish prayer and donate from what We have provided for them.](https://quran.com/22/35)
+* __Surah Al-Hajj 22/50__: [فَٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ لَهُم مَّغْفِرَةٌۭ وَرِزْقٌۭ كَرِيمٌۭ](https://quran.com/22/50)
 
-* __Surah Al-Hajj 22/50__: [So those who believe and do good will have forgiveness and an honourable provision.](https://quran.com/22/50)
-
-* __Surah Al-Hajj 22/58__: [As for those who emigrate in the cause of Allah and then are martyred or die, Allah will indeed grant them a good provision. Surely Allah is the Best Provider.](https://quran.com/22/58)
+* __Surah Al-Hajj 22/58__: [وَٱلَّذِينَ هَاجَرُوا۟ فِى سَبِيلِ ٱللَّهِ ثُمَّ قُتِلُوٓا۟ أَوْ مَاتُوا۟ لَيَرْزُقَنَّهُمُ ٱللَّهُ رِزْقًا حَسَنًۭا ۚ وَإِنَّ ٱللَّهَ لَهُوَ خَيْرُ ٱلرَّٰزِقِينَ](https://quran.com/22/58)
 
 ***
 

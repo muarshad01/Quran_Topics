@@ -93,39 +93,29 @@
 
 ***
 
-### Surah Al-Araf (7)
+* __Surah Al-Araf 07/32__: [قُلْ مَنْ حَرَّمَ زِينَةَ ٱللَّهِ ٱلَّتِىٓ أَخْرَجَ لِعِبَادِهِۦ وَٱلطَّيِّبَـٰتِ مِنَ ٱلرِّزْقِ ۚ قُلْ هِىَ لِلَّذِينَ ءَامَنُوا۟ فِى ٱلْحَيَوٰةِ ٱلدُّنْيَا خَالِصَةًۭ يَوْمَ ٱلْقِيَـٰمَةِ ۗ كَذَٰلِكَ نُفَصِّلُ ٱلْـَٔايَـٰتِ لِقَوْمٍۢ يَعْلَمُونَ](https://quran.com/7/32)
 
-* __Surah Al-Araf 07/32__: [Ask, ˹O Prophet,˺ “Who has forbidden the adornments and lawful provisions Allah has brought forth for His servants?” Say, “They are for the enjoyment of the believers in this worldly life, but they will be exclusively theirs on the Day of Judgment.1 This is how We make Our revelations clear for people of knowledge.”](https://quran.com/7/32)
+* __Surah Al-Araf 07/50__: [وَنَادَىٰٓ أَصْحَـٰبُ ٱلنَّارِ أَصْحَـٰبَ ٱلْجَنَّةِ أَنْ أَفِيضُوا۟ عَلَيْنَا مِنَ ٱلْمَآءِ أَوْ مِمَّا رَزَقَكُمُ ٱللَّهُ ۚ قَالُوٓا۟ إِنَّ ٱللَّهَ حَرَّمَهُمَا عَلَى ٱلْكَـٰفِرِينَ](https://quran.com/7/50)
 
-* __Surah Al-Araf 07/50__: [The residents of the Fire will then cry out to the residents of Paradise, “Aid us with some water or any provision Allah has granted you.” They will reply, “Allah has forbidden both to the disbelievers,](https://quran.com/7/50)
-
-* __Surah Al-Araf 07/160__: [We divided them into twelve tribes—each as a community. And We revealed to Moses, when his people asked for water, “Strike the rock with your staff.” Then twelve springs gushed out. Each tribe knew its drinking place. We shaded them with clouds and sent down to them manna and quails,1 ˹saying˺, “Eat from the good things We have provided for you.” They ˹certainly˺ did not wrong Us, but wronged themselves.
-](https://quran.com/7/160)
+* __Surah Al-Araf 07/160__: [وَقَطَّعْنَـٰهُمُ ٱثْنَتَىْ عَشْرَةَ أَسْبَاطًا أُمَمًۭا ۚ وَأَوْحَيْنَآ إِلَىٰ مُوسَىٰٓ إِذِ ٱسْتَسْقَىٰهُ قَوْمُهُۥٓ أَنِ ٱضْرِب بِّعَصَاكَ ٱلْحَجَرَ ۖ فَٱنۢبَجَسَتْ مِنْهُ ٱثْنَتَا عَشْرَةَ عَيْنًۭا ۖ قَدْ عَلِمَ كُلُّ أُنَاسٍۢ مَّشْرَبَهُمْ ۚ وَظَلَّلْنَا عَلَيْهِمُ ٱلْغَمَـٰمَ وَأَنزَلْنَا عَلَيْهِمُ ٱلْمَنَّ وَٱلسَّلْوَىٰ ۖ كُلُوا۟ مِن طَيِّبَـٰتِ مَا رَزَقْنَـٰكُمْ ۚ وَمَا ظَلَمُونَا وَلَـٰكِن كَانُوٓا۟ أَنفُسَهُمْ يَظْلِمُونَ](https://quran.com/7/160)
 
 ***
 
-### Surah Al-Anfal (8)
+* __Surah Al-Anfal 08/3__: [ٱلَّذِينَ يُقِيمُونَ ٱلصَّلَوٰةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/8/3)
 
-* __Surah Al-Anfal 08/3__: [˹They are˺ those who establish prayer and donate from what We have provided for them.
-](https://quran.com/8/3)
+* __Surah Al-Anfal 08/4__: [أُو۟لَـٰٓئِكَ هُمُ ٱلْمُؤْمِنُونَ حَقًّۭا ۚ لَّهُمْ دَرَجَـٰتٌ عِندَ رَبِّهِمْ وَمَغْفِرَةٌۭ وَرِزْقٌۭ كَرِيمٌۭ](https://quran.com/8/4)
 
-* __Surah Al-Anfal 08/4__: [It is they who are the true believers. They will have elevated ranks, forgiveness, and an honourable provision from their Lord.](https://quran.com/8/4)
+* __Surah Al-Anfal 08/26__: [وَٱذْكُرُوٓا۟ إِذْ أَنتُمْ قَلِيلٌۭ مُّسْتَضْعَفُونَ فِى ٱلْأَرْضِ تَخَافُونَ أَن يَتَخَطَّفَكُمُ ٱلنَّاسُ فَـَٔاوَىٰكُمْ وَأَيَّدَكُم بِنَصْرِهِۦ وَرَزَقَكُم مِّنَ ٱلطَّيِّبَـٰتِ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/8/26)
 
-* __Surah Al-Anfal 08/26__: [Remember when you had been vastly outnumbered and oppressed in the land,1 constantly in fear of attacks by your enemy, then He sheltered you, strengthened you with His help, and provided you with good things so perhaps you would be thankful.](https://quran.com/8/26)
-
-* __Surah Al-Anfal 08/74__: [Those who believed, migrated, and struggled in the cause of Allah, and those who gave ˹them˺ shelter and help, they are the true believers. They will have forgiveness and an honourable provision.
-](https://quran.com/8/74)
+* __Surah Al-Anfal 08/74__: [وَٱلَّذِينَ ءَامَنُوا۟ وَهَاجَرُوا۟ وَجَـٰهَدُوا۟ فِى سَبِيلِ ٱللَّهِ وَٱلَّذِينَ ءَاوَوا۟ وَّنَصَرُوٓا۟ أُو۟لَـٰٓئِكَ هُمُ ٱلْمُؤْمِنُونَ حَقًّۭا ۚ لَّهُم مَّغْفِرَةٌۭ وَرِزْقٌۭ كَرِيمٌۭ](https://quran.com/8/74)
 
 ***
 
-### Surah Yunus (10)
+* __Surah Yunus 10/31__: [قُلْ مَن يَرْزُقُكُم مِّنَ ٱلسَّمَآءِ وَٱلْأَرْضِ أَمَّن يَمْلِكُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَمَن يُخْرِجُ ٱلْحَىَّ مِنَ ٱلْمَيِّتِ وَيُخْرِجُ ٱلْمَيِّتَ مِنَ ٱلْحَىِّ وَمَن يُدَبِّرُ ٱلْأَمْرَ ۚ فَسَيَقُولُونَ ٱللَّهُ ۚ فَقُلْ أَفَلَا تَتَّقُونَ](https://quran.com/10/31)
 
-* __Surah Yunus 10/31__: [Ask ˹them, O  Prophet˺, “Who provides for you from heaven and earth? Who owns ˹your˺ hearing and sight? Who brings forth the living from the dead and the dead from the living? And who conducts every affair?” They will ˹surely˺ say, “Allah.” Say, “Will you not then fear ˹Him˺?](https://quran.com/10/31)
+* __Surah Yunus 10/59__: [قُلْ أَرَءَيْتُم مَّآ أَنزَلَ ٱللَّهُ لَكُم مِّن رِّزْقٍۢ فَجَعَلْتُم مِّنْهُ حَرَامًۭا وَحَلَـٰلًۭا قُلْ ءَآللَّهُ أَذِنَ لَكُمْ ۖ أَمْ عَلَى ٱللَّهِ تَفْتَرُونَ](https://quran.com/10/59)
 
-* __Surah Yunus 10/59__: [Ask ˹the pagans, O  Prophet˺, “Have you seen that which Allah has sent down for you as a provision, of which you have made some lawful and some unlawful?”1 Say, “Has Allah given you authorization, or are you fabricating lies against Allah?”](https://quran.com/10/59)
-
-* __Surah Yunus 10/93__: [Indeed, We settled the Children of Israel in a blessed land,1 and granted them good, lawful provisions. They did not differ until knowledge came to them.2 Surely your Lord will judge between them on the Day of Judgment regarding their differences.
-](https://quran.com/10/93)
+* __Surah Yunus 10/93__: [وَلَقَدْ بَوَّأْنَا بَنِىٓ إِسْرَٰٓءِيلَ مُبَوَّأَ صِدْقٍۢ وَرَزَقْنَـٰهُم مِّنَ ٱلطَّيِّبَـٰتِ فَمَا ٱخْتَلَفُوا۟ حَتَّىٰ جَآءَهُمُ ٱلْعِلْمُ ۚ إِنَّ رَبَّكَ يَقْضِى بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/10/93)
 
 ***
 

@@ -20,8 +20,10 @@ And so are Badr and Hunayn in the battle of existence.
 ***
 
 #### [Sabr Tum Khud Nahi Kar Sakte | Allah Ki Madad Ke Baghair Sabr Namumkin Hai | Irfan ul Haq](https://www.youtube.com/watch?v=ZTyWeL7bRLA)
-* Maryam AS sabr
-* Hajra AS sabr
+* Maryam AS Sabr
+* Hajra AS Sabr
+* Hussain AS (ALL trials memtioned in Quran passed on Hussain AS in one day)
+* __Surah 22/34-35__: [...](https://quran.com/22/34-35)
 
 ***
 

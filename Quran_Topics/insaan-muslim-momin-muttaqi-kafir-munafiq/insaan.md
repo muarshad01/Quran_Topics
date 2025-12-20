@@ -195,4 +195,8 @@
 * Rooh were created 7,000 years before Insani Heart
 * Rooh -> Heart -> Insaan
 
-**** 
+***
+
+#### [Sharf e Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
+
+***

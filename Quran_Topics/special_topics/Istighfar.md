@@ -148,3 +148,7 @@
 * __Surah An-Nasr 110/3__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
 
 *** 
+
+#### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
+
+***

@@ -3,6 +3,11 @@
 
 ***
 
+#### Hadith
+* [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than 70 times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
+
+***
+
 #### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
 * Ghafar - means dhapna
 * Astaghfar - Dhank deh (Rehmat say)
@@ -51,11 +56,6 @@
 #### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/syed-ul-istifigar.png" width="400" height="400" />
-
-***
-
-#### Hadith
-* [I heard Allah's Messenger (ﷺ) saying." By Allah! I ask for forgiveness from Allah and turn to Him in repentance more than 70 times a day."](https://sunnah.com/bukhari:6307) - Sahih al-Bukhari
 
 ***
 

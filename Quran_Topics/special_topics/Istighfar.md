@@ -150,5 +150,7 @@
 *** 
 
 #### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
+* Ghafar - means dhapna
+* Astaghfar - Dhank deh (Rehmat say)
 
 ***

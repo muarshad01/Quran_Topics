@@ -36,3 +36,9 @@ We have revealed to you the Book as an explanation of all things, a guide, a mer
 #### Expanding Theory Concept in Quran
 * [Allah Mentioned Expanding Theory Concept in Quran 1400 Years Ago | Size of Universe | Dr Abdus Salam](https://www.youtube.com/watch?v=kK62B6olLO4)
 * [Dajjal Kab Aye Ga? | Ft. Abdus Salam Arif | Podcast | Episode 20 (Part 2)](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
+
+***
+
+#### [Big Bang Theory | Allama Talib Johri](https://www.youtube.com/watch?v=rU1E2Zffabk)
+
+***

@@ -3,6 +3,12 @@
 
 ***
 
+#### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
+* Ghafar - means dhapna
+* Astaghfar - Dhank deh (Rehmat say)
+
+***
+
 #### [Dil Ki batain | Allam Talib Jauhari](https://www.youtube.com/watch?v=gtrqgcgFrcc)
 * __Sattar Al-Ayub__
 * Apni-zindagi-ko uss-Allah-kay hawalay-kar-do jo naimatoon-ka khaliq-hai
@@ -146,11 +152,5 @@
 ***
 
 * __Surah An-Nasr 110/3__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quranwbw.com/110)
-
-*** 
-
-#### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
-* Ghafar - means dhapna
-* Astaghfar - Dhank deh (Rehmat say)
 
 ***

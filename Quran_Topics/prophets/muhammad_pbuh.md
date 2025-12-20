@@ -546,3 +546,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
       * `This is because they say, “We are not accountable for ˹exploiting˺ the Gentiles.” And ˹so˺ they attribute lies to Allah knowingly.`
     
 *** 
+
+#### [Dosre Nabiyon or Muhammad Rasool Allah (SAW) Mein Farq? | Allama Talib Johri](https://www.youtube.com/watch?v=ZgstUdw9Sq8)
+
+***

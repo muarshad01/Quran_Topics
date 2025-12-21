@@ -14,6 +14,12 @@
 
 ***
 
+#### [Quran Mein Asma-e-Husna Kiun Istemal Huay? | Allama Talib Jauhari](https://www.youtube.com/watch?v=prKgcUS8wcs)
+
+***
+
+***
+
 #### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Professor ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
 * The best thing I've given to my Bandoan (Slaves) is Salaam (__Ya Salaamu__).
 * Zehan-ki har-disturbance ko doar-karta-hai

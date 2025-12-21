@@ -164,15 +164,20 @@
 
 ***
 
-* __Surah 89/15-20__: [فَأَمَّا ٱلْإِنسَـٰنُ إِذَا مَا ٱبْتَلَىٰهُ رَبُّهُۥ فَأَكْرَمَهُۥ وَنَعَّمَهُۥ فَيَقُولُ رَبِّىٓ أَكْرَمَنِ...وَأَمَّآ إِذَا مَا ٱبْتَلَىٰهُ فَقَدَرَ عَلَيْهِ رِزْقَهُۥ فَيَقُولُ رَبِّىٓ أَهَـٰنَنِ ١٦](https://quran.com/89/15-20)
+* __Surah Al-Fajr 89/15-20__: [فَأَمَّا ٱلْإِنسَـٰنُ إِذَا مَا ٱبْتَلَىٰهُ رَبُّهُۥ فَأَكْرَمَهُۥ وَنَعَّمَهُۥ فَيَقُولُ رَبِّىٓ أَكْرَمَنِ...وَأَمَّآ إِذَا مَا ٱبْتَلَىٰهُ فَقَدَرَ عَلَيْهِ رِزْقَهُۥ فَيَقُولُ رَبِّىٓ أَهَـٰنَنِ ١٦](https://quran.com/89/15-20)
 * [Surah Fajr 15-20](https://www.youtube.com/shorts/dza5PYeSwYI)
 
 ***
 
-#### [Azmaeish and Musibat mein kiya parhna chaye ||آزمائش اور مصیبت || Prof ARA](https://www.youtube.com/watch?v=5cSVLuPoiEY)
+#### [Azmaeish and Musibat mein kiya parhna chaye | Prof ARA](https://www.youtube.com/watch?v=5cSVLuPoiEY)
+* __Surah Al-Baqarah 2/156__: [ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/156)
+* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quran.com/2/157)
 
 ***
 
 #### [3 Signs Your Good Time Is Near | Wasif Ali Wasif](https://www.youtube.com/watch?v=RZGZ6D8QX_A)
+1. Heart awakens (https://quran.com/13/11)
+2. Path becomes challening and tough
+3. Tawakkal on Allah SWT and Peace of Mind
 
 ***

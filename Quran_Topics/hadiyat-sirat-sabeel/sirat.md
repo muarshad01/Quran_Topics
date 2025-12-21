@@ -14,19 +14,19 @@
 
 *** 
 
-* __Surah Fatiha (1:6-7)__: [Guide us along the Straight Path (1:6), the Path of those You have blessed—not those You are displeased with, or those who are astray.(1:7)](https://quran.com/1/6-7)
+* __Surah Fatiha 1:6-7__: [Guide us along the Straight Path (1:6), the Path of those You have blessed—not those You are displeased with, or those who are astray.(1:7)](https://quran.com/1/6-7)
 
 ***
 
-* __Surah Baqarah (2:142)__: [The foolish among the people will ask, “Why did they turn away from the direction of prayer they used to face?” Say, ˹O Prophet,˺ “The east and west belong ˹only˺ to Allah. He guides whoever He wills to the Straight Path.”](https://quran.com/2/142)
+* __Surah Al-Baqarah 2/142__: [The foolish among the people will ask, “Why did they turn away from the direction of prayer they used to face?” Say, ˹O Prophet,˺ “The east and west belong ˹only˺ to Allah. He guides whoever He wills to the Straight Path.”](https://quran.com/2/142)
 
-* __Surah Baqarah (2:213)__: [ALL MANKIND were once one single community; (then they began to differ –) whereupon Allah raised up the prophets as heralds of glad tidings and as warners, and through them bestowed revelation from on high, setting forth the truth, so that it might decide between people with regard to all on which they had come to hold divergent views. Yet none other than the selfsame people who had been granted the (revelation) began, out of mutual jealousy, to disagree about its meaning after all evidence of the truth had come unto them. But Allah guided the believers unto the truth about which, by His leave, they had disagreed: for Allah guides onto a straight way/path the one who wills (to be guided).](https://quran.com/2/213)
+* __Surah Al-Baqarah 2/213__: [ALL MANKIND were once one single community; (then they began to differ –) whereupon Allah raised up the prophets as heralds of glad tidings and as warners, and through them bestowed revelation from on high, setting forth the truth, so that it might decide between people with regard to all on which they had come to hold divergent views. Yet none other than the selfsame people who had been granted the (revelation) began, out of mutual jealousy, to disagree about its meaning after all evidence of the truth had come unto them. But Allah guided the believers unto the truth about which, by His leave, they had disagreed: for Allah guides onto a straight way/path the one who wills (to be guided).](https://quran.com/2/213)
 
 ***
 
-* __Surah Al Imran (3:51)__: [(Jesus/Eisa said) Surely Allah is my Lord and your Lord. So worship Him ˹alone˺. This is the Straight Path.](https://quran.com/3/51)
+* __Surah Ale-Imran 3/51__: [(Jesus/Eisa said) Surely Allah is my Lord and your Lord. So worship Him ˹alone˺. This is the Straight Path.](https://quran.com/3/51)
 
-* __Surah Al Imran (3:101)__: [How can you disbelieve when Allah’s revelations are recited to you and His Messenger is in your midst? Whoever holds firmly to Allah is surely guided to the Straight Path.](https://quran.com/3/101)
+* __Surah Ale-Imran 3/101__: [How can you disbelieve when Allah’s revelations are recited to you and His Messenger is in your midst? Whoever holds firmly to Allah is surely guided to the Straight Path.](https://quran.com/3/101)
 
 ***
 

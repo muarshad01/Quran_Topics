@@ -2,6 +2,10 @@
 
 ***
 
+#### [Quran Mein Asma-e-Husna Kiun Istemal Huay? | Allama Talib Jauhari](https://www.youtube.com/watch?v=prKgcUS8wcs)
+
+***
+
 #### [Lafz-e-Allah Ki Tashreeh | Asma-e-Husna | Allama Talib Jauhari](https://www.youtube.com/watch?v=52c9wsxgLTg)
 
 ***

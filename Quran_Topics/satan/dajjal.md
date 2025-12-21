@@ -248,3 +248,7 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 #### [Masjid Al-Aqsa & the End Times](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s)
 
 ***
+
+#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
+
+***

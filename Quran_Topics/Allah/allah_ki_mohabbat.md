@@ -63,30 +63,31 @@
 ***
 
 #### Al-Muqsiteen ([Qisti - Justice](https://quranwbw.com/55))
-* __Surah Al-Maidah [The Table] 5/42 (al-muq'sitina)__: [They eagerly listen to falsehood and consume forbidden gain.1 So if they come to you ˹O Prophet˺, either judge between them or turn away from them. If you turn away from them, they cannot harm you whatsoever. But if you judge between them, then do so with justice. Surely Allah loves those who are just.](https://quranwbw.com/5/42)
 
-* __Surah Al-Hujurat [The Inner Apartments] 49/9 (al-muq'sitina)__: [And if two groups of believers fight each other, then make peace between them. But if one of them transgresses against the other, then fight against the transgressing group until they ˹are willing to˺ submit to the rule of Allah. If they do so, then make peace between both ˹groups˺ in all fairness and act justly. Surely Allah loves those who uphold justice.](https://quranwbw.com/49/9)
+* __Surah Al-Maidah 5/42 ( إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُقْسِطِينَ)__: [سَمَّـٰعُونَ لِلْكَذِبِ أَكَّـٰلُونَ لِلسُّحْتِ ۚ فَإِن جَآءُوكَ فَٱحْكُم بَيْنَهُمْ أَوْ أَعْرِضْ عَنْهُمْ ۖ وَإِن تُعْرِضْ عَنْهُمْ فَلَن يَضُرُّوكَ شَيْـًۭٔا ۖ وَإِنْ حَكَمْتَ فَٱحْكُم بَيْنَهُم بِٱلْقِسْطِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُقْسِطِينَ](https://quran.com/5/42)
 
-* __Surah Al-Mumtahana [She who is Examined] 60/8 (al-muq'sitina)__: [Allah does not forbid you from dealing kindly and fairly with those who have neither fought nor driven you out of your homes. Surely Allah loves those who are fair.](https://quranwbw.com/60/8)
+* __Surah Al-Hujurat 49/9 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُقْسِطِينَ)__: [وَإِن طَآئِفَتَانِ مِنَ ٱلْمُؤْمِنِينَ ٱقْتَتَلُوا۟ فَأَصْلِحُوا۟ بَيْنَهُمَا ۖ فَإِنۢ بَغَتْ إِحْدَىٰهُمَا عَلَى ٱلْأُخْرَىٰ فَقَـٰتِلُوا۟ ٱلَّتِى تَبْغِى حَتَّىٰ تَفِىٓءَ إِلَىٰٓ أَمْرِ ٱللَّهِ ۚ فَإِن فَآءَتْ فَأَصْلِحُوا۟ بَيْنَهُمَا بِٱلْعَدْلِ وَأَقْسِطُوٓا۟ ۖ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُقْسِطِينَ](https://quran.com/49/9)
+
+* __Surah Al-Mumtahana 60/8 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُقْسِطِينَ)__: [لَّا يَنْهَىٰكُمُ ٱللَّهُ عَنِ ٱلَّذِينَ لَمْ يُقَـٰتِلُوكُمْ فِى ٱلدِّينِ وَلَمْ يُخْرِجُوكُم مِّن دِيَـٰرِكُمْ أَن تَبَرُّوهُمْ وَتُقْسِطُوٓا۟ إِلَيْهِمْ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُقْسِطِينَ](https://quran.com/60/8)
 
 ***
 
 ## Allah SWT Doesn't LIKE
 
-* __Surah An-Nisaa 4/36 (Arrogant and Boastful)__: [أَيْمَـٰنُكُمْ ۗ إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا](https://quranwbw.com/4/36)
+* __Surah An-Nisaa 4/36 (إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا)__: [أَيْمَـٰنُكُمْ ۗ إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا](https://quran.com/4/36)
 
-* __Surah An-Nisaa 4/148 (Negative thoughts to be voiced)__: [۞ لَّا يُحِبُّ ٱللَّهُ ٱلْجَهْرَ بِٱلسُّوٓءِ مِنَ ٱلْقَوْلِ إِلَّا مَن ظُلِمَ ۚ وَكَانَ ٱللَّهُ سَمِيعًا عَلِيمًا](https://quranwbw.com/4/148)
+* __Surah An-Nisaa 4/148 (لَّا يُحِبُّ ٱللَّهُ ٱلْجَهْرَ بِٱلسُّوٓءِ مِنَ ٱلْقَوْلِ)__: [۞ لَّا يُحِبُّ ٱللَّهُ ٱلْجَهْرَ بِٱلسُّوٓءِ مِنَ ٱلْقَوْلِ إِلَّا مَن ظُلِمَ ۚ وَكَانَ ٱللَّهُ سَمِيعًا عَلِيمًا](https://quran.com/4/148)
 
-* __Surah 6/141__: [تُسْرِفُوٓا۟ ۚ إِنَّهُۥ لَا يُحِبُّ ٱلْمُسْرِفِينَ](https://quran.com/6/141)
+* __Surah 6/141 (تُسْرِفُوٓا۟ ۚ إِنَّهُۥ لَا يُحِبُّ ٱلْمُسْرِفِينَ)__: [ وَهُوَ ٱلَّذِىٓ أَنشَأَ جَنَّـٰتٍۢ مَّعْرُوشَـٰتٍۢ وَغَيْرَ مَعْرُوشَـٰتٍۢ وَٱلنَّخْلَ وَٱلزَّرْعَ مُخْتَلِفًا أُكُلُهُۥ وَٱلزَّيْتُونَ وَٱلرُّمَّانَ مُتَشَـٰبِهًۭا وَغَيْرَ مُتَشَـٰبِهٍۢ ۚ كُلُوا۟ مِن ثَمَرِهِۦٓ إِذَآ أَثْمَرَ وَءَاتُوا۟ حَقَّهُۥ يَوْمَ حَصَادِهِۦ ۖ وَلَا تُسْرِفُوٓا۟ ۚ إِنَّهُۥ لَا يُحِبُّ ٱلْمُسْرِفِينَ](https://quran.com/6/141)
 
-* __Surah 22/38__: [۞ إِنَّ ٱللَّهَ يُدَٰفِعُ عَنِ ٱلَّذِينَ ءَامَنُوٓا۟ ۗ إِنَّ ٱللَّهَ لَا يُحِبُّ كُلَّ خَوَّانٍۢ كَفُورٍ](https://quran.com/22/38)
+* __Surah 22/38 (إِنَّ ٱللَّهَ لَا يُحِبُّ كُلَّ خَوَّانٍۢ كَفُورٍ)__: [إِنَّ ٱللَّهَ يُدَٰفِعُ عَنِ ٱلَّذِينَ ءَامَنُوٓا۟ ۗ إِنَّ ٱللَّهَ لَا يُحِبُّ كُلَّ خَوَّانٍۢ كَفُورٍ](https://quran.com/22/38)
 
 ***
 
 #### [Allah ke pasandeeda Log | Irfan-ul-Haq](https://www.youtube.com/watch?v=JILzg7apvaI)
-* __Surah 2/195 (Naiki)__: [وَأَنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ وَلَا تُلْقُوا۟ بِأَيْدِيكُمْ إِلَى ٱلتَّهْلُكَةِ ۛ وَأَحْسِنُوٓا۟ ۛ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/2/195)
-* __Surah 3/146 (Perseverance)__: [وَكَأَيِّن مِّن نَّبِىٍّۢ قَـٰتَلَ مَعَهُۥ رِبِّيُّونَ كَثِيرٌۭ فَمَا وَهَنُوا۟ لِمَآ أَصَابَهُمْ فِى سَبِيلِ ٱللَّهِ وَمَا ضَعُفُوا۟ وَمَا ٱسْتَكَانُوا۟ ۗ وَٱللَّهُ يُحِبُّ ٱلصَّـٰبِرِينَ](https://quran.com/3/146)
-__Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ ٱللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ ٱلْقَلْبِ لَٱنفَضُّوا۟ مِنْ حَوْلِكَ ۖ فَٱعْفُ عَنْهُمْ وَٱسْتَغْفِرْ لَهُمْ وَشَاوِرْهُمْ فِى ٱلْأَمْرِ ۖ فَإِذَا عَزَمْتَ فَتَوَكَّلْ عَلَى ٱللَّهِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ](https://quran.com/3/159)
+* __Surah Al-Baqarah 2/195 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ)__: [وَأَنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ وَلَا تُلْقُوا۟ بِأَيْدِيكُمْ إِلَى ٱلتَّهْلُكَةِ ۛ وَأَحْسِنُوٓا۟ ۛ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/2/195)
+* __Surah Ale-Imran 3/146 (وَٱللَّهُ يُحِبُّ ٱلصَّـٰبِرِينَ)__: [وَكَأَيِّن مِّن نَّبِىٍّۢ قَـٰتَلَ مَعَهُۥ رِبِّيُّونَ كَثِيرٌۭ فَمَا وَهَنُوا۟ لِمَآ أَصَابَهُمْ فِى سَبِيلِ ٱللَّهِ وَمَا ضَعُفُوا۟ وَمَا ٱسْتَكَانُوا۟ ۗ وَٱللَّهُ يُحِبُّ ٱلصَّـٰبِرِينَ](https://quran.com/3/146)
+* __Surah Ale-Imran 3/159 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ)__: [فَبِمَا رَحْمَةٍۢ مِّنَ ٱللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ ٱلْقَلْبِ لَٱنفَضُّوا۟ مِنْ حَوْلِكَ ۖ فَٱعْفُ عَنْهُمْ وَٱسْتَغْفِرْ لَهُمْ وَشَاوِرْهُمْ فِى ٱلْأَمْرِ ۖ فَإِذَا عَزَمْتَ فَتَوَكَّلْ عَلَى ٱللَّهِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ](https://quran.com/3/159)
 
 *** 
 
@@ -100,7 +101,7 @@ __Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ 
 
 ***
 
-#### [Mohabat Kya Hai? Love](https://www.youtube.com/shorts/m0YU-1V5FIc)
+#### [Mohabat Kya Hai? Love | SSA Shah](https://www.youtube.com/shorts/m0YU-1V5FIc)
 
 ***
 
@@ -132,7 +133,6 @@ __Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ 
 
 ***
 
-
 #### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with-the-person at Judgement-day, whom you loved in Dunya.
 
@@ -146,27 +146,27 @@ __Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ 
 
 ***
 
-#### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
+#### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Akhlas mate-i-faqeer
 * Tujhay zaib-nahi-deta kah mate-i-faqeer zaya-karay
 * Tujhay zaib-nahi-deta kah teri iss-talab ki-tahueen-hoo
 * Mayn teri tawajah-ka talib-hoon aur mayn zaroor-tughay matloob bana-kar-choron-gaa
 * Khuda nay kabhi kisi-talab ko-zaya-nahi-kya
 
-#### Hadith
-* [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25) -- Hadith Qudsi
+#### Hadith Qudsi
 * https://www.youtube.com/shorts/RLLIfAJWqJE
+* [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25)
 
 #### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
 
 ***
 
-#### [Sabir Piya Kaliyari Aur Shamsuddin Turk Pani Pati | SSA Shah](https://www.youtube.com/watch?app=desktop&v=vAQV1gRLnqg)
+#### [Mohabbat Kab Hoti Hai ? Hazrat Wasif Ali Wasif (R.A)](https://www.youtube.com/shorts/ClRZVQqg8HA)
+* Joo-cheezen Hasil-kar rehay-hoo...wohi-cheezen Nisar-karna sarooh-kar-doo.
 
 ***
 
-#### [Mohabbat Kab Hoti Hai ? Hazrat Wasif Ali Wasif (R.A)](https://www.youtube.com/shorts/ClRZVQqg8HA)
-* Joo-cheezen Hasil-kar rehay-hoo...wohi-cheezen Nisar-karna sarooh-kar-doo.
+#### [Sabir Piya Kaliyari Aur Shamsuddin Turk Pani Pati | SSA Shah](https://www.youtube.com/watch?app=desktop&v=vAQV1gRLnqg)
 
 ***
 

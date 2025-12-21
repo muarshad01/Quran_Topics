@@ -9,13 +9,13 @@
 ***
 
 #### Al-Tawabina
-* __Surah Al-Baqarah 2/222 (إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ)__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quran.com/2/222)
+* __Surah Al-Baqarah 2/222 (إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلْمَحِيضِ ۖ قُلْ هُوَ أَذًۭى فَٱعْتَزِلُوا۟ ٱلنِّسَآءَ فِى ٱلْمَحِيضِ ۖ وَلَا تَقْرَبُوهُنَّ حَتَّىٰ يَطْهُرْنَ ۖ فَإِذَا تَطَهَّرْنَ فَأْتُوهُنَّ مِنْ حَيْثُ أَمَرَكُمُ ٱللَّهُ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ](https://quran.com/2/222)
 * Dress, Body (Jism), Rooh, Thinking (Sooch)
 
 ***
 
 #### Al-Mutatahirina
-* __Surah Al-Baqarah 2/222 (إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ)__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quran.com/2/222)
+* __Surah Al-Baqarah 2/222 (إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلْمَحِيضِ ۖ قُلْ هُوَ أَذًۭى فَٱعْتَزِلُوا۟ ٱلنِّسَآءَ فِى ٱلْمَحِيضِ ۖ وَلَا تَقْرَبُوهُنَّ حَتَّىٰ يَطْهُرْنَ ۖ فَإِذَا تَطَهَّرْنَ فَأْتُوهُنَّ مِنْ حَيْثُ أَمَرَكُمُ ٱللَّهُ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ](https://quran.com/2/222)
 * Dress, Body (Jism), Rooh, Thinking (Sooch)
 
 *  __Surah At-Tauba 9/108 (أَن يَتَطَهَّرُوا۟ ۚ وَٱللَّهُ يُحِبُّ ٱلْمُطَّهِّرِينَ)__: [لَا تَقُمْ فِيهِ أَبَدًۭا ۚ لَّمَسْجِدٌ أُسِّسَ عَلَى ٱلتَّقْوَىٰ مِنْ أَوَّلِ يَوْمٍ أَحَقُّ أَن تَقُومَ فِيهِ ۚ فِيهِ رِجَالٌۭ يُحِبُّونَ أَن يَتَطَهَّرُوا۟ ۚ وَٱللَّهُ يُحِبُّ ٱلْمُطَّهِّرِينَ](https://quran.com/9/108).
@@ -38,29 +38,27 @@
 #### Spend; Control Anger; Pardon
 * __Surah Ale-i-Imran 3/134 (وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ)__: [ٱلَّذِينَ يُنفِقُونَ فِى ٱلسَّرَّآءِ وَٱلضَّرَّآءِ وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/3/134)
 
-* __Surah Ale-i-Imran 3/148 (al-muh'sinina)__: [So Allah gave them the reward of this world and the excellent reward of the Hereafter. For Allah loves the good-doers.](https://quranwbw.com/3/148)
+* __Surah Ale-i-Imran 3/148 (وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ)__: [فَـَٔاتَىٰهُمُ ٱللَّهُ ثَوَابَ ٱلدُّنْيَا وَحُسْنَ ثَوَابِ ٱلْـَٔاخِرَةِ ۗ وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/3/148)
 
-* __Surah Al-Maidah 5/13 (al-muh'sinina)__: [But for breaking their covenant We condemned them and hardened their hearts. They distorted the words of the Scripture and neglected a portion of what they had been commanded to uphold. You ˹O Prophet˺ will always find deceit on their part, except for a few. But pardon them and bear with them. Indeed, Allah loves the good-doers.](https://quranwbw.com/5/13)
+* __Surah Al-Maidah 5/13 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ)__: [فَبِمَا نَقْضِهِم مِّيثَـٰقَهُمْ لَعَنَّـٰهُمْ وَجَعَلْنَا قُلُوبَهُمْ قَـٰسِيَةًۭ ۖ يُحَرِّفُونَ ٱلْكَلِمَ عَن مَّوَاضِعِهِۦ ۙ وَنَسُوا۟ حَظًّۭا مِّمَّا ذُكِّرُوا۟ بِهِۦ ۚ وَلَا تَزَالُ تَطَّلِعُ عَلَىٰ خَآئِنَةٍۢ مِّنْهُمْ إِلَّا قَلِيلًۭا مِّنْهُمْ ۖ فَٱعْفُ عَنْهُمْ وَٱصْفَحْ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/5/13)
 
-* __Surah Al-Maidah 5/93 (al-muh'sinina)__: [There is no blame on those who believe and do good for what they had consumed before ˹the prohibition˺, as long as they fear Allah, have faith, and do what is good; then they believe and act virtuously, then become fully mindful ˹of Allah˺ and do righteous deeds. For Allah loves the good-doers.](https://quranwbw.com/5/93)
+* __Surah Al-Maidah 5/93 (وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ)__: [لَيْسَ عَلَى ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ جُنَاحٌۭ فِيمَا طَعِمُوٓا۟ إِذَا مَا ٱتَّقَوا۟ وَّءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ ثُمَّ ٱتَّقَوا۟ وَّءَامَنُوا۟ ثُمَّ ٱتَّقَوا۟ وَّأَحْسَنُوا۟ ۗ وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/5/93)
 
 ***
 
 #### Al-Mutawakilina
-* __Surah Ale-i-Imran 3/159 (al-mutawakilina)__: [And by the Mercy of Allah, you dealt with them gently. And had you been severe and harsh­hearted, they would have broken away from about you; so pass over (their faults), and ask (Allah’s) Forgiveness for them; and consult them in the affairs. Then when you have taken a decision, put your trust in Allah, certainly, Allah loves those who put their trust (in Him).](https://quranwbw.com/3/159)
-
-* __Surah Ale-i-Imran 3/146 (al-mutawakilina)__: [It is out of Allah’s mercy that you ˹O Prophet˺ have been lenient with them. Had you been cruel or hard-hearted, they would have certainly abandoned you. So pardon them, ask Allah’s forgiveness for them, and consult with them in ˹conducting˺ matters. Once you make a decision, put your trust in Allah. Surely Allah loves those who trust in Him.](https://quran.com/3/146)
+* __Surah Ale-i-Imran 3/159 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ)__: [فَبِمَا رَحْمَةٍۢ مِّنَ ٱللَّهِ لِنتَ لَهُمْ ۖ وَلَوْ كُنتَ فَظًّا غَلِيظَ ٱلْقَلْبِ لَٱنفَضُّوا۟ مِنْ حَوْلِكَ ۖ فَٱعْفُ عَنْهُمْ وَٱسْتَغْفِرْ لَهُمْ وَشَاوِرْهُمْ فِى ٱلْأَمْرِ ۖ فَإِذَا عَزَمْتَ فَتَوَكَّلْ عَلَى ٱللَّهِ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَوَكِّلِينَ](https://quran.com/3/159)
 
 *** 
 
 #### Al-Sabirina
-* __Surah Al Imran 3/146 (al-sabirina)__: [˹Imagine˺ how many devotees fought along with their prophets and never faltered despite whatever ˹losses˺ they suffered in the cause of Allah, nor did they weaken or give in! Allah loves those who persevere.](https://quranwbw.com/3/146)
-* __Surah Al-Baqarah 2/153 (al-sabirina)__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
+* __Surah Al-Baqarah 2/153 (إِنَّ ٱللَّهَ مَعَ ٱلصَّـٰبِرِينَ)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ إِنَّ ٱللَّهَ مَعَ ٱلصَّـٰبِرِينَ](https://quran.com/2/153)
+* __Surah Ale-i-Imran 3/146 (وَٱللَّهُ يُحِبُّ ٱلصَّـٰبِرِينَ)__: [وَكَأَيِّن مِّن نَّبِىٍّۢ قَـٰتَلَ مَعَهُۥ رِبِّيُّونَ كَثِيرٌۭ فَمَا وَهَنُوا۟ لِمَآ أَصَابَهُمْ فِى سَبِيلِ ٱللَّهِ وَمَا ضَعُفُوا۟ وَمَا ٱسْتَكَانُوا۟ ۗ وَٱللَّهُ يُحِبُّ ٱلصَّـٰبِرِينَ](https://quran.com/3/146)
 
 ***
 
 #### Fighters in a ROW for Allah SWT
-* __Surah As-Saff [The Ranks] 61/4 (Fight in His Cause)__: [Surely Allah loves those who fight in His cause in ˹solid˺ ranks as if they were one concrete structure.](https://quranwbw.com/61/4)
+* __Surah As-Saff 61/4 (يُقَـٰتِلُونَ فِى سَبِيلِهِۦ صَفًّۭا كَأَنَّهُم بُنْيَـٰنٌۭ مَّرْصُوصٌۭ)__: [إِنَّ ٱللَّهَ يُحِبُّ ٱلَّذِينَ يُقَـٰتِلُونَ فِى سَبِيلِهِۦ صَفًّۭا كَأَنَّهُم بُنْيَـٰنٌۭ مَّرْصُوصٌۭ](https://quran.com/61/4)
 
 ***
 

@@ -1,4 +1,4 @@
-### Haroof-e-Muqataat (`Ramooz-e-Israr-e-Kainaat`)
+#### Haroof-e-Muqataat (`Ramooz-e-Israr-e-Kainaat`)
 * Controlling words of Universe
 * 14 - `Haroof-e-Muqataat`
     * Every `HARF` commands a particuler thing. Is a ruler, inchange of that thing.
@@ -159,3 +159,4 @@
 *** 
 
 ***
+

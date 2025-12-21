@@ -1,68 +1,42 @@
 ## Love of Allah SWT
 
-* __Surah 3/31__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quranwbw.com/3/31)
+* __Surah Ale-Imran 3/31__: [قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ ۗ وَٱللَّهُ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/3/31)
 
 ***
 
-### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
-* You will be with-the-person at Judgement-day, whom you loved in Dunya.
+#### [ALLAH LOVES : 16 AYATS](https://quranawareness.wordpress.com/allah-loves-16-ayats/)
 
 ***
 
-### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.) | مرشد سے سچی محبت](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
+#### Al-Tawabina
+* __Surah Al-Baqarah 2/222 (إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ)__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quran.com/2/222)
+* Dress, Body (Jism), Rooh, Thinking (Sooch)
 
 ***
 
-### [Abou Ben Adhem](https://www.poetryfoundation.org/poems/44433/abou-ben-adhem)
+#### Al-Mutatahirina
+* __Surah Al-Baqarah 2/222 (إِنَّ ٱللَّهَ يُحِبُّ ٱلتَّوَّٰبِينَ وَيُحِبُّ ٱلْمُتَطَهِّرِينَ)__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quran.com/2/222)
+* Dress, Body (Jism), Rooh, Thinking (Sooch)
 
-***
-
-### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
-
-***
-
-### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
-* Akhlas mate-i-faqeer
-* Tujhay zaib-nahi-deta kah mate-i-faqeer zaya-karay
-* Tujhay zaib-nahi-deta kah teri iss-talab ki-tahueen-hoo
-* Mayn teri tawajah-ka talib-hoon aur mayn zaroor-tughay matloob bana-kar-choron-gaa
-* Khuda nay kabhi kisi-talab ko-zaya-nahi-kya
-
-### Hadith
-* [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25) -- Hadith Qudsi
-* https://www.youtube.com/shorts/RLLIfAJWqJE
-
-### [ALLAH LOVES : 16 AYATS](https://quranawareness.wordpress.com/allah-loves-16-ayats/)
-
-***
-
-### Al-Tawabina:
- * __Surah Al-Baqarah 2/222__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quranwbw.com/2/222)
-
-***
-
-### Al-Mutatahirina
-* __Surah Al-Baqarah 2/222 (al-mutatahirina)__: [Surely Allah loves those who always turn to Him in repentance and those who purify themselves.”](https://quranwbw.com/2/222)
-   * Dress, Body (Jism), Rooh, Thinking (Sooch)
-*  __Surah At-Tauba 9/108 (al-mutahirina)__: [Do not ˹O Prophet˺ ever pray in it. Certainly, a mosque founded on righteousness from the first day is more worthy of your prayers. In it are men who love to be purified. And Allah loves those who purify themselves.](https://quranwbw.com/9/108).
-    * "Mosque of Harm" (Masjid al-Dirar)
+*  __Surah At-Tauba 9/108 (أَن يَتَطَهَّرُوا۟ ۚ وَٱللَّهُ يُحِبُّ ٱلْمُطَّهِّرِينَ)__: [لَا تَقُمْ فِيهِ أَبَدًۭا ۚ لَّمَسْجِدٌ أُسِّسَ عَلَى ٱلتَّقْوَىٰ مِنْ أَوَّلِ يَوْمٍ أَحَقُّ أَن تَقُومَ فِيهِ ۚ فِيهِ رِجَالٌۭ يُحِبُّونَ أَن يَتَطَهَّرُوا۟ ۚ وَٱللَّهُ يُحِبُّ ٱلْمُطَّهِّرِينَ](https://quran.com/9/108).
+* "Mosque of Harm" (Masjid al-Dirar)
 
 **** 
 
-### Al-Mutaqina
-* __Surah Al Imran 3/76 (al-mutaqina)__: [But yes, whoever fulfills his commitment and fears Allah – then indeed, Allah loves Al-Muttaqin (the righteous/pious who fear Him).](https://quranwbw.com/3/76)
+#### Al-Mutaqina
+* __Surah Al Imran 3/76 (فَإِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَّقِينَ)__: [بَلَىٰ مَنْ أَوْفَىٰ بِعَهْدِهِۦ وَٱتَّقَىٰ فَإِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَّقِينَ](https://quran.com/3/76)
 
-* __Surah At-Tauba 9/4 (al-mutaqina)__: [As for the polytheists who have honoured every term of their treaty with you and have not supported an enemy against you, honour your treaty with them until the end of its term. Surely Allah loves those who are mindful ˹of Him˺.](https://quranwbw.com/9/4)
+* __Surah At-Tauba 9/4 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَّقِينَ)__: [إِلَّا ٱلَّذِينَ عَـٰهَدتُّم مِّنَ ٱلْمُشْرِكِينَ ثُمَّ لَمْ يَنقُصُوكُمْ شَيْـًۭٔا وَلَمْ يُظَـٰهِرُوا۟ عَلَيْكُمْ أَحَدًۭا فَأَتِمُّوٓا۟ إِلَيْهِمْ عَهْدَهُمْ إِلَىٰ مُدَّتِهِمْ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَّقِينَ](https://quran.com/9/4)
 
-* __Surah At-Tauba 9/7 (al-mutaqina)__: [How can such polytheists have a treaty with Allah and His Messenger, except those you have made a treaty with at the Sacred Mosque?1 So, as long as they are true to you, be true to them. Indeed Allah loves those who are mindful ˹of Him˺.](https://quranwbw.com/9/7)
+* __Surah At-Tauba 9/7 (إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَّقِينَ)__: [كَيْفَ يَكُونُ لِلْمُشْرِكِينَ عَهْدٌ عِندَ ٱللَّهِ وَعِندَ رَسُولِهِۦٓ إِلَّا ٱلَّذِينَ عَـٰهَدتُّمْ عِندَ ٱلْمَسْجِدِ ٱلْحَرَامِ ۖ فَمَا ٱسْتَقَـٰمُوا۟ لَكُمْ فَٱسْتَقِيمُوا۟ لَهُمْ ۚ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُتَّقِينَ](https://quran.com/9/7)
 
 ***
 
-### Al-Muh'sinina
-* __Surah Al-Baqarah 2/195 (al-muh'sinina)__: [And spend in the Cause of Allah (i.e. Jihad of all kinds, etc.) and do not throw yourselves into destruction (by not spending your wealth in the Cause of Allah), and do good. Truly, Allah loves Al-Muhsinin (the good-doers).](https://quranwbw.com/2/195)
+#### Al-Muh'sinina
+* __Surah Al-Baqarah 2/195 (وَأَحْسِنُوٓا۟ ۛ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ)__: [وَأَنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ وَلَا تُلْقُوا۟ بِأَيْدِيكُمْ إِلَى ٱلتَّهْلُكَةِ ۛ وَأَحْسِنُوٓا۟ ۛ إِنَّ ٱللَّهَ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/2/195)
 
 #### Spend; Control Anger; Pardon
-* __Surah Ale-i-Imran 3/134 (al-muh'sinina)__: [˹They are˺ those who donate in prosperity and adversity, control their anger, and pardon others. And Allah loves the good-doers.](https://quranwbw.com/3/134)
+* __Surah Ale-i-Imran 3/134 (وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ)__: [ٱلَّذِينَ يُنفِقُونَ فِى ٱلسَّرَّآءِ وَٱلضَّرَّآءِ وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ وَٱللَّهُ يُحِبُّ ٱلْمُحْسِنِينَ](https://quran.com/3/134)
 
 * __Surah Ale-i-Imran 3/148 (al-muh'sinina)__: [So Allah gave them the reward of this world and the excellent reward of the Hereafter. For Allah loves the good-doers.](https://quranwbw.com/3/148)
 
@@ -72,25 +46,25 @@
 
 ***
 
-### Al-Mutawakilina
+#### Al-Mutawakilina
 * __Surah Ale-i-Imran 3/159 (al-mutawakilina)__: [And by the Mercy of Allah, you dealt with them gently. And had you been severe and harsh­hearted, they would have broken away from about you; so pass over (their faults), and ask (Allah’s) Forgiveness for them; and consult them in the affairs. Then when you have taken a decision, put your trust in Allah, certainly, Allah loves those who put their trust (in Him).](https://quranwbw.com/3/159)
 
 * __Surah Ale-i-Imran 3/146 (al-mutawakilina)__: [It is out of Allah’s mercy that you ˹O Prophet˺ have been lenient with them. Had you been cruel or hard-hearted, they would have certainly abandoned you. So pardon them, ask Allah’s forgiveness for them, and consult with them in ˹conducting˺ matters. Once you make a decision, put your trust in Allah. Surely Allah loves those who trust in Him.](https://quran.com/3/146)
 
 *** 
 
-### Al-Sabirina
+#### Al-Sabirina
 * __Surah Al Imran 3/146 (al-sabirina)__: [˹Imagine˺ how many devotees fought along with their prophets and never faltered despite whatever ˹losses˺ they suffered in the cause of Allah, nor did they weaken or give in! Allah loves those who persevere.](https://quranwbw.com/3/146)
 * __Surah Al-Baqarah 2/153 (al-sabirina)__: [O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient.](https://quranwbw.com/2/153)
 
 ***
 
-### Fighters in a ROW for Allah SWT
+#### Fighters in a ROW for Allah SWT
 * __Surah As-Saff [The Ranks] 61/4 (Fight in His Cause)__: [Surely Allah loves those who fight in His cause in ˹solid˺ ranks as if they were one concrete structure.](https://quranwbw.com/61/4)
 
 ***
 
-### Al-Muqsiteen ([Qisti - Justice](https://quranwbw.com/55))
+#### Al-Muqsiteen ([Qisti - Justice](https://quranwbw.com/55))
 * __Surah Al-Maidah [The Table] 5/42 (al-muq'sitina)__: [They eagerly listen to falsehood and consume forbidden gain.1 So if they come to you ˹O Prophet˺, either judge between them or turn away from them. If you turn away from them, they cannot harm you whatsoever. But if you judge between them, then do so with justice. Surely Allah loves those who are just.](https://quranwbw.com/5/42)
 
 * __Surah Al-Hujurat [The Inner Apartments] 49/9 (al-muq'sitina)__: [And if two groups of believers fight each other, then make peace between them. But if one of them transgresses against the other, then fight against the transgressing group until they ˹are willing to˺ submit to the rule of Allah. If they do so, then make peace between both ˹groups˺ in all fairness and act justly. Surely Allah loves those who uphold justice.](https://quranwbw.com/49/9)
@@ -118,7 +92,7 @@ __Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ 
 
 *** 
 
-# MOHABBAT
+## MOHABBAT
 
 #### [Love-or-Fear of Allah SWT | SSA Shah](https://www.youtube.com/shorts/Hk1Y5vwh1ts)
 
@@ -157,6 +131,35 @@ __Surah 3/159 (TRUST in Allah)__: [فَبِمَا رَحْمَةٍۢ مِّنَ 
 * Shamsuddin Turk Pani Pati
 * Sabir Piya Kaliyari
 * When you love someone...follow his do / don't ...reach Rabb.
+
+***
+
+
+#### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
+* You will be with-the-person at Judgement-day, whom you loved in Dunya.
+
+***
+
+#### [Love for the Murshid | Hazrat Yaqoob Ali Shah (R.A.) | مرشد سے سچی محبت](https://www.youtube.com/watch?v=sWFfHE8ZKQQ)
+
+***
+
+#### [Abou Ben Adhem](https://www.poetryfoundation.org/poems/44433/abou-ben-adhem)
+
+***
+
+#### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/VyaGXuP8azc)
+* Akhlas mate-i-faqeer
+* Tujhay zaib-nahi-deta kah mate-i-faqeer zaya-karay
+* Tujhay zaib-nahi-deta kah teri iss-talab ki-tahueen-hoo
+* Mayn teri tawajah-ka talib-hoon aur mayn zaroor-tughay matloob bana-kar-choron-gaa
+* Khuda nay kabhi kisi-talab ko-zaya-nahi-kya
+
+#### Hadith
+* [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25) -- Hadith Qudsi
+* https://www.youtube.com/shorts/RLLIfAJWqJE
+
+#### [Whom Allah SWT Loves | Prof. Ahmed Rafique Akhtar](https://www.youtube.com/shorts/tFp0Tx95tyE)
 
 ***
 

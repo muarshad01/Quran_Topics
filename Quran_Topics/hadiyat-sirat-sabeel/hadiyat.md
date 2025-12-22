@@ -36,7 +36,7 @@
 
 ***
 
-#### [Allah ka Rasta | Allama Talib Johri](https://www.youtube.com/watch?v=DkWfPuXFTF8)
+####  Allah ka Rasta | Allama Talib Johri](https://www.youtube.com/watch?v=DkWfPuXFTF8)
 
 ***
 

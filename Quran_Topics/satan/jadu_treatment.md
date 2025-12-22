@@ -12,6 +12,10 @@
 
 ***
 
+#### [Kiya Ap Par Kala Jadu Hai? | Kia Ap Mein Jinnat Hain ? | Jadu Ki Nishani | Pir Azmat Nawaz Sarkar](https://www.youtube.com/watch?v=GvSgGqb687s)
+
+***
+
 #### [Surah Baqra Ki Ye Ayaat Parh Len Ap Ke Saray Maslay Hal Ho Jayen Ge | Faqeer Di Dua](https://www.youtube.com/watch?v=5dp2D-mOhy8)
 * [Surah Fatiha 1/5](https://quran.com/1/5)
 * [Surah Baqarah 2/285-286 -- 11-time](https://quran.com/2/285-286)

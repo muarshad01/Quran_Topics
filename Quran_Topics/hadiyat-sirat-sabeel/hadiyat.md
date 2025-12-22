@@ -1,3 +1,7 @@
+####  [Allah ka Rasta | Allama Talib Johri](https://www.youtube.com/watch?v=DkWfPuXFTF8)
+
+***
+
 #### [Hidayat ki sari zimadari Allah ki hy | Allama Talib Johri](https://www.youtube.com/watch?v=3dD1MA4ulIg)
 * __Surah Al-Layl 92/12 (إِنَّ عَلَيْنَا لَلْهُدَىٰ)__: [إِنَّ عَلَيْنَا لَلْهُدَىٰ](https://quran.com/92/12)
 * __Surah Al-Insan 76/3 (إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ)__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
@@ -33,10 +37,6 @@
 * __Surah Taha 20/50__: [قَالَ رَبُّنَا ٱلَّذِىٓ أَعْطَىٰ كُلَّ شَىْءٍ خَلْقَهُۥ ثُمَّ هَدَىٰ](https://quran.com/20/50)
 * Fitrat-Hidayat versus Aqal-Hidayat
 * __Surah Al-Baqarah 2/38__: [قُلْنَا ٱهْبِطُوا۟ مِنْهَا جَمِيعًۭا ۖ فَإِمَّا يَأْتِيَنَّكُم مِّنِّى هُدًۭى فَمَن تَبِعَ هُدَاىَ فَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/38)
-
-***
-
-####  Allah ka Rasta | Allama Talib Johri](https://www.youtube.com/watch?v=DkWfPuXFTF8)
 
 ***
 

@@ -70,7 +70,8 @@
       * 2 - Hayat-and-Mamat
       * 3 - Hoot (Fish)
    * `Ain-See-Qaaf` is after `Haa-Meem`
-   * `Ya-Hayyu Ya-Qayyum` (`Qaaf` - Wal Quran-al-Majeed) 
+   * `Ya-Hayyu Ya-Qayyum` ([Qaaf, Wal Quran-al-Majeed](https://quran.com/50/1)) 
+   * `Ya-Rahmanu Ya-Raheemu` (يا رحمن يا رحيم)
 
 ***
 
@@ -79,9 +80,14 @@
 * 29 - `Gifts` were given on `Shabe-e-Mareej` to prophet PBUH
 * Isme-e-Azam
 
+***
 
-#### The Seven "Ha Meem" Surahs
-* These are seven surahs __40 through 46__ in the Quran, all starting with the letters "Ha Meem" (حم). They are:
+#### The Seven "Ha-Meem" Surahs
+* These are seven surahs __40 through 46__ in the Quran, all starting with the letters "Ha Meem" (حم).
+* Ha - 40
+* Meem - 8
+* Ha-Meem - 48
+* They are:
 1. Ghafir (The Forgiver) - Chapter 40
 2. Fussilat (Explained in Detail) - Chapter 41
 3. Ash-Shura (The Consultation) - Chapter 42
@@ -92,15 +98,15 @@
 
 ***
 
-#### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Professor ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
-* __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
+#### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Prof ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
+* __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ILM-KA-RANG juda hoo-jata-hai.__
 * __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
 ***
 
-#### [Learning of Haroof-e-Muqattaat in the Quran | Professor ARA](https://www.youtube.com/watch?v=NqtimPZPwS4)
+#### [Learning of Haroof-e-Muqattaat in the Quran | Prof ARA](https://www.youtube.com/watch?v=NqtimPZPwS4)
 * Sheikh Mohiuddin Ibn-Arabi
-* Wheen Seen-will-enter-Sheen...Mohiuddin's grave will be revealed.
+* Wheen __Seen-will-enter-Sheen__...Mohiuddin's grave will be revealed.
 * Knowledge of __basic categories__
 * Fitrat-of-things ka-ilm
 * Alif-Laam-Meem: This is a __group (groupings)__
@@ -108,29 +114,29 @@
 
 ***
 
-#### [Huroof-e-Muqattaat (Loh-e-Qurani) and Quranic Sciences | Professor ARA](https://www.youtube.com/watch?v=0MW0m11cCS8)
+#### [Huroof-e-Muqattaat (Loh-e-Qurani) and Quranic Sciences | Prof ARA](https://www.youtube.com/watch?v=0MW0m11cCS8)
 * Ibn-e-Abbas
 * Ism-e-Rabbani hayn unn-kay Ikhtisarat
 
 ***
 
-#### [Haroof-e-Muqattaat | Professor ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
+#### [Haroof-e-Muqattaat | Prof ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
 * Ibn-e-Abbas: Khuda kay naamon kay ikhtisaar-hayn
 * __Surah 21/30 (1st Haa-Meen: Totality)__ : [وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا](https://quran.com/21/30)
 * __Surah (2nd Haa-Meen: Death)__: []()
-* __Surah (3rd Haa-Meen: Fist)__: []()
+* __Surah (3rd Haa-Meen: Fish)__: []()
 * Ya-Hayu Ya-Qayum (Qaaf: Wal Quran Kareem)
 
 ***
 
 #### [Explanation of Huroof-e-Muqatiat Especially Alif-Laam-Meem-Raa | Prof. ARA](https://www.youtube.com/watch?v=f99fQJjdS1Y)
-* Haa-Meem: 4 + 40 = 44
+* __Ha Meem (ح م)__: 8 + 40 = 48
 * Alif-Laam-Meem-Raa: 1 + 30 + 40 + 200
 
 ***
 
-#### [Ta-haa Explain and advise to students | Professor ARA](https://www.youtube.com/watch?v=QkxYp7m2CNQ)
-* Ah Sardar, Ya Muhammad, ....
+#### ["Taa Haa" (طه) in Arabic Explain and advise to students | Professor ARA](https://www.youtube.com/watch?v=QkxYp7m2CNQ)
+* Ahe Sardar, Ya Muhammad, ....
 * Toi:  Symbol-of-the-Wheel
 * Haa: A man standing with open hands (A Leader)
 
@@ -152,12 +158,8 @@
 #### [The Mystery Inside the Letters of Bismillah | ب، س، م’ میں کیا راز چھپا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=5RgU5ATuhFI)
 * "Bismillah Rahman Rahim" (بسم الله الرحمن الرحيم)
 * Jalali but in some aspects Jamali too
-* __Baa__ - Rabb-Tallah-ki takhleeq ki siffat-aur-qudrat say mutaliq hai. Hi Creation!
-* __Seen__ - Rabb-Tallah ki Sana-aur-Hamad ko zahir-karta-hai.
-* __Meem__ - Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
+* __Baa__: Rabb-Tallah-ki takhleeq ki siffat-aur-qudrat say mutaliq hai. Hi Creation!
+* __Seen__: Rabb-Tallah ki Sana-aur-Hamad ko zahir-karta-hai.
+* __Meem__: Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
 
 ***
-
-
-
-

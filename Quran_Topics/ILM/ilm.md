@@ -3,7 +3,7 @@
 
 ***
 
-*  Joo bhi Allah say miltay-hayn __kHALOOS-SAY-MOHABBAT-SAY__...unn-kay __ILM-KA-RANG__ juda hoo-jata-hai.
+*  Joo bhi Allah say miltay-hayn __khaloos-say-Mohabbat-say__...unn-kay __Ilm-ka-Rang__ juda hoo-jata-hai.
 * Ilm-e-Ilahi in Alfaaz in Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
 * Rabb say Qareeb-say-Qareeb tar hona-hai

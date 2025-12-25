@@ -320,12 +320,16 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
-### Ali bin Usman Hajveri
+#### Ali bin Usman Hajveri
 * __Ali bin Usman Hajveri__, also known as Data Ganj Bakhsh, was a 11th-century Sufi saint and scholar who had a spiritual teacher named __Sheikh Abul Fazal Muhammad bin Khatli__. Hajveri received his spiritual education from Abul Fazal, a master of the __Junaidiya Sufi order__, before settling in Lahore to spread Islam in South Asia. 
 
 ***
 
-### Peer Syed Abdul Latif Kazmi Qadiri, often referred to as Bari Imam or Bari Sarkar
+#### Peer Syed Abdul Latif Kazmi Qadiri, often referred to as Bari Imam or Bari Sarkar
 * Shahshah-e-Behr-o-Bar Ya Latif
+
+***
+
+#### [Lahore Ke Khaas Mazaraat - Rohani Sukoon Ka Safar | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=59E8b3-EMbY)
 
 ***

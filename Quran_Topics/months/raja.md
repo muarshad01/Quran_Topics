@@ -69,7 +69,7 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
   * Birth / Departure of Prophet Muhammad PBUH on Monday
 * __27 Rajab Roza Fazilat__:
   * `Equivalent to 6-months`
-* __27 Rajab Roza Ibadat__:
+* __27 Rajab Night Ibadat__:
   * Gunahs equivalent to sins of foam-of-seas are forgiven. 
   * Not only previous-sins are forgiven, but also 
   * Allah SWT becomes neghaban-on-sins to be committed for rest-of-life

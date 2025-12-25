@@ -14,6 +14,13 @@
 
 ***
 
+#### 99 names of Probhet PBUH
+* 70 - `Alqabaat` given on `Shabe-e-Mareej`
+* 29 - `Gifts` were given on `Shabe-e-Mareej` to prophet PBUH
+* Isme-e-Azam
+
+***
+
 <img src="https://github.com/muarshad01/YouTube_Videos/blob/main/images/haroof-e-muqataat.png" width="400" height="400" />
 
 #### [Alif-Lãm-Mĩm [Third- level Walli Allah] | SSA Shah](https://www.youtube.com/watch?v=9uaah_R2L1s)
@@ -41,6 +48,7 @@
 
 #### Haroof with `Nuqta` are Three (3)
 * 100 `Qāf ق` - Qalam (Ilm) & Qayamat; Qadar, Qalab Muneeb (Acquired Ilm) [Jalali Wird]
+   * __Surah Qaff 50/1__: [Qaaf, Wal Quran-al-Majeed](https://quran.com/50/1)
 * 50 `Nūn ن` - `Nahi`: What Allah SWT has ordered, we keep following it.
    * `Darya-e-wahdat` one-side is `Qaf` and another-side is `Nun`
    * `Nun` - Ajmali-lahaz-say Dawat (Ink Pot)
@@ -60,7 +68,6 @@
 ***
 
 #### [Haroof-e-Muqattaat | Prof. ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
-
 * Adjacent groups, affinity between them, no animosity between them
 * `Sheikh Muhyiddin Ibn Arabi (1165–1240)` was one of the world's great spiritual teachers. He was aware of `Ilm-e-Isma` qaulities.
 * Law of Giving Values to Basic Words.
@@ -70,15 +77,9 @@
       * 2 - Hayat-and-Mamat
       * 3 - Hoot (Fish)
    * `Ain-See-Qaaf` is after `Haa-Meem`
-   * `Ya-Hayyu Ya-Qayyum` ([Qaaf, Wal Quran-al-Majeed](https://quran.com/50/1)) 
+   * `Ya-Hayyu Ya-Qayyum`
+   * `Ya Hayyu Ya Qayyum` (يَا حَيُّ يَا قَيُّوْمُ)
    * `Ya-Rahmanu Ya-Raheemu` (يا رحمن يا رحيم)
-
-***
-
-#### 99 names of Probhet PBUH
-* 70 - `Alqabaat` given on `Shabe-e-Mareej`
-* 29 - `Gifts` were given on `Shabe-e-Mareej` to prophet PBUH
-* Isme-e-Azam
 
 ***
 
@@ -100,7 +101,7 @@
 
 #### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Prof ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
 * __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ILM-KA-RANG juda hoo-jata-hai.__
-* __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
+* __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
 ***
 

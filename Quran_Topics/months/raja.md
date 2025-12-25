@@ -29,12 +29,12 @@
 #### [Mah-e-Rajab Ki Khaas Ibadatein | SSA Shah](https://www.youtube.com/watch?v=C-TcqRc8jFc)
 * Kahay-Faqeer, Lecture 9, Page 65
 * 15-Rozay of Mah-e-Rajab, each one has its own Fazilat
-* One Roza: 30 years of Sawab
-* Fazilat One Roza: One door of Jahanum is closed
-* Fazilat Seven Rozas: ALL seven doors are closed
-* Fazilat One Roza: One door of Jannah is opened
-* Fazilat Eight Rozas: ALL eight doors of Jannah are opened
-* 1,2,3rd Roza of Rajab: Allah SWT ki doosti-aur-qurub hasil hoo-gaya.
+* One Roza: 30-years of Sawab
+* One Roza: One door of Jahanum is closed
+* Seven Rozas: ALL 7-doors are closed
+* One Roza: One door of Jannah is opened
+* Eight Rozas: ALL eight doors of Jannah are opened
+* 3rd Roza of Rajab Reward: __Allah SWT ki Doosti-aur-Qurub hasil hoo-gaya.__
 * Do Nafili Ibadat this month
 * Will get Allah SWT Rehmat, Karam, Fazal (Fazal-o-Karam)
 

@@ -152,11 +152,8 @@
 ### [The Mystery Inside the Letters of Bismillah | ب، س، م’ میں کیا راز چھپا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=5RgU5ATuhFI)
 * "Bismillah Rahman Rahim" (بسم الله الرحمن الرحيم)
 * Jalali but in some aspects Jamali too
-* Baa - Rabb-Tallah-ki takhleeq ki siffat-aur-qudrat say mutaliq hai. Hi Creation!
-* Seen - Rabb-Tallah ki Sana-aur-Hamad ko zahir-karta-hai.
-* Meem - Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
-
-*** 
+* __Baa__ - Rabb-Tallah-ki takhleeq ki siffat-aur-qudrat say mutaliq hai. Hi Creation!
+* __Seen__ - Rabb-Tallah ki Sana-aur-Hamad ko zahir-karta-hai.
+* __Meem__ - Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
 
 ***
-

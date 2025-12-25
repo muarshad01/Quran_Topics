@@ -39,7 +39,7 @@
 
 ***
 
-### Haroof with `Nuqta` are Three (3)
+#### Haroof with `Nuqta` are Three (3)
 * 100 `Qāf ق` - Qalam (Ilm) & Qayamat; Qadar, Qalab Muneeb (Acquired Ilm) [Jalali Wird]
 * 50 `Nūn ن` - `Nahi`: What Allah SWT has ordered, we keep following it.
    * `Darya-e-wahdat` one-side is `Qaf` and another-side is `Nun`
@@ -50,7 +50,7 @@
 
 ***
 
-## Qalandar [People who recite 'Seen']
+#### Qalandar [People who recite 'Seen']
 * Hazrat Ali is `Qalandr-e-Azam`
 * `2.5` Other Qalandars
    * Lal Shahbaz Qalandar (1177 - 1274)
@@ -59,7 +59,7 @@
 
 ***
 
-### [Haroof-e-Muqattaat | Prof. ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
+#### [Haroof-e-Muqattaat | Prof. ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
 
 * Adjacent groups, affinity between them, no animosity between them
 * `Sheikh Muhyiddin Ibn Arabi (1165–1240)` was one of the world's great spiritual teachers. He was aware of `Ilm-e-Isma` qaulities.
@@ -74,13 +74,13 @@
 
 ***
 
-## 99 names of Probhet PBUH
+#### 99 names of Probhet PBUH
 * 70 - `Alqabaat` given on `Shabe-e-Mareej`
 * 29 - `Gifts` were given on `Shabe-e-Mareej` to prophet PBUH
 * Isme-e-Azam
 
 
-## The Seven "Ha Meem" Surahs
+#### The Seven "Ha Meem" Surahs
 * These are seven surahs __40 through 46__ in the Quran, all starting with the letters "Ha Meem" (حم). They are:
 1. Ghafir (The Forgiver) - Chapter 40
 2. Fussilat (Explained in Detail) - Chapter 41
@@ -92,13 +92,13 @@
 
 ***
 
-## [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Professor ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
+#### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Professor ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
 * __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
 * __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
 ***
 
-## [Learning of Haroof-e-Muqattaat in the Quran | Professor ARA](https://www.youtube.com/watch?v=NqtimPZPwS4)
+#### [Learning of Haroof-e-Muqattaat in the Quran | Professor ARA](https://www.youtube.com/watch?v=NqtimPZPwS4)
 * Sheikh Mohiuddin Ibn-Arabi
 * Wheen Seen-will-enter-Sheen...Mohiuddin's grave will be revealed.
 * Knowledge of __basic categories__
@@ -108,13 +108,13 @@
 
 ***
 
-## [Huroof-e-Muqattaat (Loh-e-Qurani) and Quranic Sciences | Professor ARA](https://www.youtube.com/watch?v=0MW0m11cCS8)
+#### [Huroof-e-Muqattaat (Loh-e-Qurani) and Quranic Sciences | Professor ARA](https://www.youtube.com/watch?v=0MW0m11cCS8)
 * Ibn-e-Abbas
 * Ism-e-Rabbani hayn unn-kay Ikhtisarat
 
 ***
 
-#3# [Haroof-e-Muqattaat | Professor ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
+#### [Haroof-e-Muqattaat | Professor ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
 * Ibn-e-Abbas: Khuda kay naamon kay ikhtisaar-hayn
 * __Surah 21/30 (1st Haa-Meen: Totality)__ : [وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا](https://quran.com/21/30)
 * __Surah (2nd Haa-Meen: Death)__: []()
@@ -149,7 +149,7 @@
 * These two attributes can't present in Insaan
 -->
 
-### [The Mystery Inside the Letters of Bismillah | ب، س، م’ میں کیا راز چھپا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=5RgU5ATuhFI)
+#### [The Mystery Inside the Letters of Bismillah | ب، س، م’ میں کیا راز چھپا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=5RgU5ATuhFI)
 * "Bismillah Rahman Rahim" (بسم الله الرحمن الرحيم)
 * Jalali but in some aspects Jamali too
 * __Baa__ - Rabb-Tallah-ki takhleeq ki siffat-aur-qudrat say mutaliq hai. Hi Creation!
@@ -157,3 +157,4 @@
 * __Meem__ - Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
 
 ***
+

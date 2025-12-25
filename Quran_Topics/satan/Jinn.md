@@ -15,3 +15,7 @@
 #### [Concept-of-Qareen | Sahil Adeem](https://www.youtube.com/watch?v=xrNMhKVri3A)
 
 ***
+
+#### [Khaufzada Na Hon! - Jinn Se Bachao Mumkin? | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=fcC-kugPu-A)
+
+***

@@ -3,7 +3,7 @@
 * https://www.youtube.com/watch?v=p9VMJKHyZl8
 ***
 
-#### [Mah-e-Rajab Blessings | ماہ ِرجب رحمتوں کا دروازہ ہے](https://www.youtube.com/watch?v=LQPW52RS0oY)
+#### [Mah-e-Rajab Blessings | ماہ ِرجب رحمتوں کا دروازہ ہے | SSA Shah](https://www.youtube.com/watch?v=LQPW52RS0oY)
 * Kahay Faqeer - Lecture 9 - Page 65
 * Rajab - Tarjeeb - Tazeem Karna
 * Rajab (Arabic: رَجَب), the 7th Islamic month, has several names reflecting its sacred, solitary nature, including
@@ -14,14 +14,37 @@
 5. __Rajab al-Mudhar (رجب مضر)__: Named for the Mudhar tribe's (Bani Mudhar) special respect for it.
 6. __Munsal al-Assinah" (منصل الأسنة) / Munsal al-All (مُنْسَلُ الأَعِلّ)__ : The destroyer of weapons/famine, reflecting the cessation of conflict. 
 
+***
+
+#### [Ibadat of Rajab | رجب کا مہینہ… رب کی رحمت پانے کا بہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=2_DXqVOf_5Y)
+* Kahay-Faqeer, Lecture 9, Page 65
+* Perform Nafali-Ibadat during in this month
+* Rabb Talah ki __Buzurgi-ka-zikr__, uski __Wahdaniyat-ka-zikr-aur-ikraar__ bohot karayn.
+* Rabb Talah ki __Raheem-aur-Kareem__ honay-ki-siffat kay-sadqay-mayn app-par apni Rehmat, __Fazal-o-Karam__ kay-deh-gaa.
+* Fazal-o-Karam
+* __My Rabb is SUFFICIENNTfor me.__
+
+***
+
+#### [Mah-e-Rajab Ki Khaas Ibadatein | SSA Shah](https://www.youtube.com/watch?v=C-TcqRc8jFc)
+* Kahay-Faqeer, Lecture 9, Page 65
+* 15-Rozay of Mah-e-Rajab, each one has its own Fazilat
+* One Roza: 30 years of Sawab
+* Fazilat One Roza: One door of Jahanum is closed
+* Fazilat Seven Rozas: ALL seven doors are closed
+* Fazilat One Roza: One door of Jannah is opened
+* Fazilat Eight Rozas: ALL eight doors of Jannah are opened
+* 1,2,3rd Roza of Rajab: Allah SWT ki doosti-aur-qurub hasil hoo-gaya.
+* Do Nafili Ibadat this month
+* Will get Allah SWT Rehmat, Karam, Fazal (Fazal-o-Karam)
 
 ***
 
 #### [Rewards of Rajab Fasting! | رجب کے روزوں کی فضیلت | SSA Shah](https://www.youtube.com/watch?v=RhAdemUONeM)
-* 15 (7+8) Fasts
+* 15 = 7+8 Fasts
 * 1 Fast: 30 years of Fasting reward
 * 1 Fast: One door of Hell is closed. Since [Hell has 7 doors](https://quran.com/15/43-44), If you keep 7 fasts ALL seven doors are closed.
-* 1 Fast: Open a door of Jannah. Keep 8 fasts...opens ALL 8 doors of Jannah.
+* 1 Fast: Open a door of Jannah. Therefore, keeping 8 fasts...opens up ALL 8 doors of Jannah.
 
 The Prophet ﷺ informed us that Jannah has eight gates, each for a special group of believers.
 1. Baab As-Salaah (Prayer Gate)
@@ -58,19 +81,7 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
  
 *** 
 
-#### [Mah-e-Rajab Ki Khaas Ibadatein | SSA Shah](https://www.youtube.com/watch?v=C-TcqRc8jFc)
-* Kahay-Faqeer, Lecture 9, Page 65
-* 15-Rozay of Mah-e-Rajab, each one has its own Fazilat
-* One Roza: 30 years of Sawab
-* Fazilat One Roza: One door of Jahanum is closed
-* Fazilat Seven Rozas: ALL seven doors are closed
-* Fazilat One Roza: One door of Jannah is opened
-* Fazilat Eight Rozas: ALL eight doors of Jannah are opened
-* 1,2,3rd Roza of Rajab: Allah SWT ki doosti-aur-qurub hasil hoo-gaya.
-* Do Nafili Ibadat this month
-* Will get Allah SWT Rehmat, Karam, Fazal (Fazal-o-Karam)
 
-***
 
 #### [Mah-e-Rajab Main Allah Ki Ibadat Kaise Ki Jaye? | SSA Shah](https://www.youtube.com/watch?v=h14g9RmLpy8)
 * Faqeer Rung, Lecture 12

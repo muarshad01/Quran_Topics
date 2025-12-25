@@ -1,4 +1,4 @@
-## [Alphabet “ALIF - 1”](https://www.youtube.com/watch?v=6-3XFxANjj4)
+#### [Alphabet “ALIF - 1”](https://www.youtube.com/watch?v=6-3XFxANjj4)
 * `Alif` is first-letter of `Allah` SWT name
 * `Qalam` was asked to write on Loh-e-Mehfooz
 * `Nuqta` flowed from Loh-e-Mehfooz; Kainaat started from there.
@@ -9,7 +9,7 @@
 
 ***
 
-## [Alphabet “BAA - 2”](https://www.youtube.com/watch?v=xo4KbveO8pE)
+#### [Alphabet “BAA - 2”](https://www.youtube.com/watch?v=xo4KbveO8pE)
 * Quran-e-Majeed starts with the letter "Baa"
 * Quran is for His createion (should show Ijazi, Humility)
 * "Baa" is laying and underneath "Nuqta" is symbolizing a weeping-drop that falls down (Ijazi)
@@ -25,13 +25,13 @@
 
 ***
 
-## [Alphabet “TAA - 3”](https://www.youtube.com/watch?v=IxQCTDeW14Q&t=612s)
+#### [Alphabet “TAA - 3”](https://www.youtube.com/watch?v=IxQCTDeW14Q&t=612s)
 * Khushk and ...
 * 
 
 ***
 
-## [Alphabet “SAA - 4”](https://www.youtube.com/watch?v=I-F0K89idF4&t=10s)
+#### [Alphabet “SAA - 4”](https://www.youtube.com/watch?v=I-F0K89idF4&t=10s)
 * Sayab - dress
 * Samarab - fruit
 
@@ -39,7 +39,7 @@
 
 ***
 
-## [Alphabet “JIM - 5”](https://www.youtube.com/watch?v=UDA5goqrTA0&t=457s)
+#### [Alphabet “JIM - 5”](https://www.youtube.com/watch?v=UDA5goqrTA0&t=457s)
 * Jannat / Jahanum???
 
 ***
@@ -52,18 +52,18 @@
 
 ***
 
-## [Alphabet “KAH - 7”](https://www.youtube.com/watch?v=3FyFPkANv0E)
+#### [Alphabet “KAH - 7”](https://www.youtube.com/watch?v=3FyFPkANv0E)
 * __Surah 103/2__: [إِنَّ ٱلْإِنسَـٰنَ لَفِى خُسْرٍ](https://quran.com/103/2)
 * Autisim Treatment
 
 ***
 
-## [Alphabet “DAL - 8”](https://www.youtube.com/watch?v=H_AT3hXGjW0)
+#### [Alphabet “DAL - 8”](https://www.youtube.com/watch?v=H_AT3hXGjW0)
 * Urdu درستگی durastagi
   
 ***
 
-## [Alphabet “ZAL - 9”](https://www.youtube.com/watch?v=rh4hM3UsUKI)
+#### [Alphabet “ZAL - 9”](https://www.youtube.com/watch?v=rh4hM3UsUKI)
 * Samid (Silent) Natiq (Speaking)
 * Mazaj: Garam and Khushk
 * 700 Adaad
@@ -73,7 +73,7 @@
   
 ***
 
-## [Alphabet “RAA - 10”](https://www.youtube.com/watch?v=hNzbOwf97h0)
+#### [Alphabet “RAA - 10”](https://www.youtube.com/watch?v=hNzbOwf97h0)
 * Umer: 70 + 40 + 200 = 310
 1. Ya Rahmanu, Ya Rahimu, Ya Razzaqu (يا رزّاقُ)
 2. Ya Rahmanu, Ya Rahimu, Ya Rafiu (يا رَافِع) 
@@ -83,14 +83,14 @@
    
 ***
 
-## [Alphabet “ZAA - 11”](https://www.youtube.com/watch?v=wPWcuRLMahY)
+#### [Alphabet “ZAA - 11”](https://www.youtube.com/watch?v=wPWcuRLMahY)
 * Ya Zakiu
 * Tazkia...???
 * __Surah__: [كَنزٞ](https://quranwbw.com/18/82)
 
 ***
 
-## [Alphabet “SEEN - 12"](https://www.youtube.com/watch?v=jjMBRr1qygs)
+#### [Alphabet “SEEN - 12"](https://www.youtube.com/watch?v=jjMBRr1qygs)
 * Numerica value = 60
 #### Benefits
 * Laqwa Falig
@@ -101,7 +101,7 @@
 
 ***
 
-## [Alphabet “SHEIN - 13”](https://www.youtube.com/watch?v=wb6M_MsDvTE)
+#### [Alphabet “SHEIN - 13”](https://www.youtube.com/watch?v=wb6M_MsDvTE)
 1. Ya Shakiru
 2. Ya Sakooru
 3. Ya Shaheedu
@@ -109,7 +109,7 @@
 
 ***
 
-## [Alphabet “SUAD - 14”](https://www.youtube.com/watch?v=NsjskFI3BMA)
+#### [Alphabet “SUAD - 14”](https://www.youtube.com/watch?v=NsjskFI3BMA)
 * __Surah Sad 38__: [Sad](https://quran.com/38)
 1. Ya Samadu, Salat
 2. Ya Sadiqu
@@ -118,7 +118,7 @@
 
 ***
 
-## [Alphabet “DUAD - 15”](https://www.youtube.com/watch?v=nLhSNpdCtt4)
+#### [Alphabet “DUAD - 15”](https://www.youtube.com/watch?v=nLhSNpdCtt4)
 * "Zarar" (ضرر) means "damage, harm, or injury." 
 * __Nazira (ناضرة)__: Radiant, flourishing, beautiful.
   * __Surah 75/22 (Radiant)__: [وُجُوهٌۭ يَوْمَئِذٍۢ نَّاضِرَةٌ](https://quran.com/75/22)
@@ -126,21 +126,21 @@
 
 ***
 
-## [Alphabet “TAA - 16”](https://www.youtube.com/watch?v=9_owPEOYzxY)
+#### [Alphabet “TAA - 16”](https://www.youtube.com/watch?v=9_owPEOYzxY)
 * `Taha`: 9 + 5 = 14  
 * Numeric value = 9
 * Ya Tahiru
 
 ***
 
-## [Alphabet “ZA - 17”](https://www.youtube.com/watch?v=htzAZPuXWDM)
+#### [Alphabet “ZA - 17”](https://www.youtube.com/watch?v=htzAZPuXWDM)
 * Ya Allahu, Ya Zahiru
 * __Surah Hadid 57/3__: [هُوَ ٱلْأَوَّلُ وَٱلْـَٔاخِرُ وَٱلظَّـٰهِرُ وَٱلْبَاطِنُ ۖ وَهُوَ بِكُلِّ شَىْءٍ عَلِيمٌ](https://quran.com/57/3)
 
 
 ***
 
-## [Alphabet “AYN - 18”](https://www.youtube.com/watch?v=5mLH6iqfwTo)
+#### [Alphabet “AYN - 18”](https://www.youtube.com/watch?v=5mLH6iqfwTo)
 * Numerica value = 70
 * Umer: 70(Aim) + 40(Meem) + 200(Raa) = 310
 * Ilm, Ali, Azeem
@@ -155,7 +155,7 @@
 
 ***
 
-## [Alphabet “GAYN - 19”](https://www.youtube.com/watch?v=32Jr7B9ojNk)
+#### [Alphabet “GAYN - 19”](https://www.youtube.com/watch?v=32Jr7B9ojNk)
 * Ghyab
 * __Surah Baqarah 2/3__: [Who believe in the unseen, establish prayer, and donate from what We have provided for them.](https://quran.com/2/3)
 1. Ya Ghaniu
@@ -164,7 +164,7 @@
 
 ***
 
-## [Alphabet “FAA - 20”](https://www.youtube.com/watch?v=kNcY6c5p47Q)
+#### [Alphabet “FAA - 20”](https://www.youtube.com/watch?v=kNcY6c5p47Q)
 * Fatah/Fauz - Fasad
 1. Ya Fathau
 2. Ya Fatiru
@@ -172,7 +172,7 @@
 
 ***
 
-## [Alphabet “KAF - 21 (Two dots)”](https://www.youtube.com/watch?v=qUfIx2sYlCU)
+#### [Alphabet “KAF - 21 (Two dots)”](https://www.youtube.com/watch?v=qUfIx2sYlCU)
 * Qayamat, Quwat, Qadeer, Qahar
 * __Surah Qaf 50__: [Qãf. By the glorious Quran!](https://quran.com/50)
 1. Ya Qawiu
@@ -181,7 +181,7 @@
 
 ***
 
-## [Alphabet “KAAF - 22 (Like Book)”](https://www.youtube.com/watch?v=Z1F2USr5Jew)
+#### [Alphabet “KAAF - 22 (Like Book)”](https://www.youtube.com/watch?v=Z1F2USr5Jew)
 * Kifayat (Allah is sufficient): Kamil kul Nabi, Kul kainaat kay liye
 1. Ya Kabiru
 2. Ya Kafiu
@@ -189,19 +189,19 @@
 
 ***
 
-## [Alphabet “LAAM - 23”](https://www.youtube.com/watch?v=8Jb401Vu-uI)
+#### [Alphabet “LAAM - 23”](https://www.youtube.com/watch?v=8Jb401Vu-uI)
 * Ya Latifu
 * __Surah Ash-Shuraa 42__: [Allah is Ever Kind to His servants. He provides ˹abundantly˺ to whoever He wills. And He is the All-Powerful, Almighty.](https://quran.com/42/19)
 
 ***
 
-## [Alphabet “Meem - 24”](https://www.youtube.com/watch?v=3SUWk2n0Dac)
+#### [Alphabet “Meem - 24”](https://www.youtube.com/watch?v=3SUWk2n0Dac)
 * About 40 Isma-ul-Husna start with Meem
 * Prostate Cancer
 
 ***
 
-## [Alphabet “NUN - 25”](https://www.youtube.com/watch?v=BrUmrVgW_i0)
+#### [Alphabet “NUN - 25”](https://www.youtube.com/watch?v=BrUmrVgW_i0)
 * __Surah An-Nur 24__: [Allah is the Light of the heavens and the earth. ](https://quran.com/24/35)
 * __Surah Al-Qalam 68__: [Nũn. By the pen and what everyone writes!](https://quran.com/68/1)
 
@@ -211,7 +211,7 @@
 
 ***
 
-## [Alphabet “WOW - 26”](https://www.youtube.com/watch?v=P_wP7RR6tUU)
+#### [Alphabet “WOW - 26”](https://www.youtube.com/watch?v=P_wP7RR6tUU)
 * __Surah Ali'Imran 3/8 (Ya Wahabu)__: [˹They say,˺ “Our Lord! Do not let our hearts deviate after you have guided us. Grant us Your mercy. You are indeed the Giver ˹of all bounties˺.](https://quran.com/3/8)
 * __Surah Al-Hashr 59/22__: [He is Allah—there is no god ˹worthy of worship˺ except Him: Knower of the seen and unseen. He is the Most Compassionate, Most Merciful.](https://quran.com/59/22) 
 
@@ -225,14 +225,14 @@
 
 ***
 
-## [Alphabet “HA - 27”](https://www.youtube.com/watch?v=LMCjDmPqTdQ)
+#### [Alphabet “HA - 27”](https://www.youtube.com/watch?v=LMCjDmPqTdQ)
 * Al-Hadi, Hidayat
 * __Surah Al-Hashr 59__: [Last three Ayatw of Surah Hashar...](https://quran.com/59/22-24)
 * Hu wal Hadi
 
 ***
 
-# [Lataif-e-Sitta in human body](https://www.youtube.com/watch?v=jEn8WbM5mfM)
+#### [Lataif-e-Sitta in human body](https://www.youtube.com/watch?v=jEn8WbM5mfM)
 * Six spectrums of awareness, six states of being. The Lataif-e-Sitta are: 
 
 #### Alm-e-Amar versus Alam-e-Khulq

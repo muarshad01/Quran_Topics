@@ -41,150 +41,153 @@ Here's a more detailed explanation:
 
 ***
 
-* __Surah Al-Baqarah 2/2-5__: []()
-* __Surah Al-Baqarah 2/189__: []()
+* __Surah Al-Baqarah 2/2-5__: [](https://quran.com/2/2-5)
+* __Surah Al-Baqarah 2/189__: [](https://quran.com/2/189)
 
 ***
 
-* __Surah Ale-Imran 3/104__: []()
-* __Surah Ale-Imran 3/130__: []()
-* __Surah Ale-Imran 3/185__: []()
-* __Surah Ale-Imran 3/200__: []()
+* __Surah Ale-Imran 3/104__: [](https://quran.com/3/104)
+* __Surah Ale-Imran 3/130__: [](https://quran.com/3/130)
+* __Surah Ale-Imran 3/185__: [](https://quran.com/3/185)
+* __Surah Ale-Imran 3/200__: [](https://quran.com/3/200)
 
 ***
 
-* __Surah An-Nisa 4/13__: []()
+* __Surah An-Nisa 4/13__: [](https://quran.com/4/13)
 
 ***
 
-* __Surah Al-Maidah 5/35__: []()
-* __Surah Al-Maidah 5/90__: []()
-* __Surah Al-Maidah 5/100__: []()
-* __Surah Al-Maidah 5/119__: []()
+* __Surah Al-Maidah 5/35__: [](https://quran.com/9/35)
+* __Surah Al-Maidah 5/90__: [](https://quran.com/9/90)
+* __Surah Al-Maidah 5/100__: [](https://quran.com/9/100)
+* __Surah Al-Maidah 5/119__: [](https://quran.com/9/119)
 
 ***
 
-* __Surah Al-Anam 6/16__: []()
+* __Surah Al-Anam 6/16__: [](https://quran.com/6/16)
 
 ***
 
-* __Surah Al-Araf 7/8__: []()
-* __Surah Al-Araf 7/69__: []()
-* __Surah Al-Araf 7/157__: []()
+* __Surah Al-Araf 7/8__: [](https://quran.com/7/8)
+* __Surah Al-Araf 7/69__: [](https://quran.com/7/69)
+* __Surah Al-Araf 7/157__: [](https://quran.com/7/157)
 
 ***
 
-* __Surah Al-Anfal 8/45__: []()
+* __Surah Al-Anfal 8/45__: [](https://quran.com/8/45)
 
 ***
 
-* __Surah At-Taubah 9/20__: []()
-* __Surah At-Taubah 9/72__: []()
-* __Surah At-Taubah 9/88-89__: []()
-* __Surah At-Taubah 9/100__: []()
-* __Surah At-Taubah 9/111__: []()
+* __Surah At-Taubah 9/20__: [](https://quran.com/9/20)
+* __Surah At-Taubah 9/72__: [](https://quran.com/9/72)
+* __Surah At-Taubah 9/88-89__: [](https://quran.com/9/88-89)
+* __Surah At-Taubah 9/100__: [](https://quran.com/9/100)
+* __Surah At-Taubah 9/111__: [](https://quran.com/9/111)
 
 ***
 
-* __Surah Yunus 10/63-64__: []()
-* __Surah Yusuf 12/23__: []()
+* __Surah Yunus 10/63-64__: [](https://quran.com/10/63-64)
 
 ***
 
-* __Surah Al-Hajj 22/77__: []()
+* __Surah Yusuf 12/23__: [](https://quran.com/12/23)
 
 ***
 
-* __Surah Al-Muminoon 23/1-11__: []()
-* __Surah Al-Muminoon 23/102__: []()
-* __Surah Al-Muminoon 23/109-111__: []()
+* __Surah Al-Hajj 22/77__: [](https://quran.com/22/77)
 
 ***
 
-* __Surah An-Nur 24/31__: []()
-* __Surah An-Nur 24/51__: []()
-* __Surah An-Nur 24/52__: []()
+* __Surah Al-Muminoon 23/1-11__: [](https://quran.com/23/1-11)
+* __Surah Al-Muminoon 23/102__: [](https://quran.com/23/102)
+* __Surah Al-Muminoon 23/109-111__: [](https://quran.com/24/109-111)
 
 ***
 
-* __Surah Al Qasas 28/67__: []()
+* __Surah An-Nur 24/31__: [](https://quran.com/24/31)
+* __Surah An-Nur 24/51__: [](https://quran.com/24/51)
+* __Surah An-Nur 24/52__: [](https://quran.com/24/52)
 
 ***
 
-* __Surah Ar-Rum 30/38__: []()
+* __Surah Al Qasas 28/67__: [](https://quran.com/28/67)
 
 ***
 
-* __Surah Luqman 31/2-5__: []()
+* __Surah Ar-Rum 30/38__: [](https://quran.com/30/38)
 
 ***
 
-* __Surah Al-Ahzab 33/70-71__: []()
+* __Surah Luqman 31/2-5__: [](https://quran.com/31/2-5)
 
 ***
 
-* __Surah As-Saffat 37/60__: []()
+* __Surah Al-Ahzab 33/70-71__: [](https://quran.com/33/70-71)
 
 ***
 
-* __Surah Az-Zumar 39/61__: []()
+* __Surah As-Saffat 37/60__: [](https://quran.com/37/60)
 
 ***
 
-* __Surah Ghafer/Momin 40/9__: []()
+* __Surah Az-Zumar 39/61__: [](https://quran.com/39/61)
 
 ***
 
-* __Surah Ad-Dukhan 44/51-57__: []()
+* __Surah Ghafer/Momin 40/9__: [](https://quran.com/40/9)
 
 ***
 
-* __Surah Al-Jathiya 45/30__: []()
+* __Surah Ad-Dukhan 44/51-57__: [](https://quran.com/44/51-57)
 
 ***
 
-* __Surah Al-Fat’h 48/5__: []()
+* __Surah Al-Jathiya 45/30__: [](https://quran.com/45/30)
 
 ***
 
-* __Surah Al-Hadid 57/12__: []()
+* __Surah Al-Fat’h 48/5__: [](https://quran.com/48/5)
 
 ***
 
-* __Surah Al-Mujadilah 58/22__: []()
+* __Surah Al-Hadid 57/12__: [](https://quran.com/57/12)
 
 ***
 
-* __Surah Al Hashr 59/9__: []()
-* __Surah Al Hashr 59/20__: []()
+* __Surah Al-Mujadilah 58/22__: [](https://quran.com/58/22)
 
 ***
 
-* __Surah As Saff 61/10-11-12__: []()
+* __Surah Al-Hashr 59/9__: [](https://quran.com/59/9)
+* __Surah Al-Hashr 59/20__: [](https://quran.com/59/20)
 
 ***
 
-* __Surah Al Jumuah 62/9-10__: []()
+* __Surah As-Saff 61/10-12__: [](https://quran.com/61/10-12)
 
 ***
 
-* __Surah At-Taghabun 64/9__: []()
-* __Surah At-Taghabun 64/16__: []()
+* __Surah Al-Jumuah 62/9-10__: [](https://quran.com/62/9-10)
 
 ***
 
-* __Surah An-Naba 78/31-36__: []()
+* __Surah At-Taghabun 64/9__: [](https://quran.com/64/9)
+* __Surah At-Taghabun 64/16__: [](https://quran.com/64/16)
 
 ***
 
-* __Surah Al-Buruj 85/11__: []()
+* __Surah An-Naba 78/31-36__: [](https://quran.com/78/31-26)
 
 ***
 
-* __Surah Al A’ala 87/14__: []()
+* __Surah Al-Buruj 85/11__: [](https://quran.com/85/11)
 
 ***
 
-* __Surah Ash Shams 91/9__: []()
+* __Surah Al A’ala 87/14__: [](https://quran.com/87/14)
+
+***
+
+* __Surah Ash-Shams 91/9__: [](https://quran.com/91/9)
 
 ***

@@ -1,6 +1,8 @@
 * https://www.youtube.com/shorts/7kjL0OwKS0s
 * https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi
 
+*  __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ILM-KA-RANG juda hoo-jata-hai.__
+
 ***
 
 * __Surah Al-Baqarah 2/31 (ADAM AS)__: [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا](https://quran.com/2/30-34)

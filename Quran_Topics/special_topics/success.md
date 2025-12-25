@@ -41,59 +41,71 @@ Here's a more detailed explanation:
 
 ***
 
-* __Surah Al Anam (6:16)__:
-
-* __Surah Al Araf (7:8)__:
-* __Surah Al Araf (7:69)__:
-* __Surah Al Araf (7:157)__:
-* __Surah Yunus (10:63-64)__:
-* __Surah Yusuf (12:23)__:
-
-
-* __Surah Al Qasas (28:67)__:
-
-* __Surah Ash Shams (91:9)__:
-* __Surah Al Buruj (85:11)__:
-* __Surah Al A’ala (87:14)__:
-* __Surah As Saffat (37:60)__:
-* __Surah Luqman (31:2-5)__:
-* __Surah Az Zumar (39:61)__:
-* __Surah Ghafer/Momin (40:9)__:
-* __Surah Ad Dukhan (44:51-57)__:
-* __Surah Al Jathiya (45:30)__:
-* __Surah Al Muminoon (23:1-11)__:
-* __Surah Al Muminoon (23:102)__:
-* __Surah Al Muminoon (23:109-111)__:
-* __Surah An Naba (78:31-36)__:
-* __Surah Ar Rum (30:38)__:
 * __Surah Al Baqarah (2:2-5)__
 * __Surah Al Baqarah (2:189)__
-* __Surah Al Anfal (8:45)__
 * __Surah Al Imran (3:104)__
 * __Surah Al Imran (3:130)__
 * __Surah Al Imran (3:185)__
 * __Surah Al Imran (3:200)__
-* __Surah Al Ahzab (33:70-71)__
 * __Surah An Nisa (4:13)__
-* __Surah Al Hadid (57:12)__
-* __Surah Al Hashr (59:9)__
-* __Surah Al Hashr (59:20)__
-* __Surah An Nur (24:31)__
-* __Surah An Nur (24:51)__
-* __Surah An Nur (24:52)__
-* __Surah Al Hajj (22:77)__
-* __Surah Al Mujadilah (58:22)__
-* __Surah At Taghabun (64:9)__
-* __Surah At Taghabun (64:16)__
-* __Surah As Saff (61:10-11-12)__:
-* __Surah Al Jumuah (62:9-10)__
-* __Surah Al Fat’h (48:5)__
+
 * __Surah Al Maidah (5: 35)__
 * __Surah Al Maidah (5:90)__
 * __Surah Al Maidah (5:100)__:
 * __Surah Al Maidah (5:119)__
+
+* * __Surah Al Anam (6:16)__:
+
+* __Surah Al Araf (7:8)__:
+* __Surah Al Araf (7:69)__:
+* __Surah Al Araf (7:157)__:
+
+* __Surah Al Anfal (8:45)__
+
 * __Surah At Taubah/Baraatun (9:20)__
 * __Surah At Taubah/Baraatun (9:72)__
 * __Surah At Taubah/Baraatun (9:88-89)__
 * __Surah At Taubah/Baraatun (9:100)__
 * __Surah At-Taubah/Baraatun (9:111)__
+
+
+
+* __Surah Yunus (10:63-64)__:
+* __Surah Yusuf (12:23)__:
+
+* __Surah Al Hajj (22:77)__
+
+* __Surah Al Muminoon (23:1-11)__:
+* __Surah Al Muminoon (23:102)__:
+* __Surah Al Muminoon (23:109-111)__:
+
+* __Surah An Nur (24:31)__
+* __Surah An Nur (24:51)__
+* __Surah An Nur (24:52)__
+
+* __Surah Al Qasas (28:67)__:
+
+* __Surah Ar Rum (30:38)__:
+* __Surah Luqman (31:2-5)__:
+* __Surah Al Ahzab (33:70-71)__
+* __Surah As Saffat (37:60)__:
+* __Surah Az Zumar (39:61)__:
+* __Surah Ghafer/Momin (40:9)__:
+* __Surah Ad Dukhan (44:51-57)__:
+* __Surah Al Jathiya (45:30)__:
+* __Surah Al Fat’h (48:5)__
+* __Surah Al Hadid (57:12)__
+* __Surah Al Mujadilah (58:22)__
+* __Surah Al Hashr (59:9)__
+* __Surah Al Hashr (59:20)__
+* __Surah As Saff (61:10-11-12)__:
+* __Surah Al Jumuah (62:9-10)__
+* __Surah At Taghabun (64:9)__
+* __Surah At Taghabun (64:16)__
+* __Surah An Naba (78:31-36)__:
+* __Surah Al Buruj (85:11)__:
+* __Surah Al A’ala (87:14)__:
+* __Surah Ash Shams (91:9)__:
+
+
+

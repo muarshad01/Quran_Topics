@@ -1,19 +1,22 @@
-#### [Hazrat Maryam A.S ki walida ki dua – Aisi niyat jis ne tareekh badal di! | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=GOOzFjLhl3M)
-
-***
-
 * __Surah 3/59 (Jesus like Adam)__: [إِنَّ مَثَلَ عِيسَىٰ عِندَ ٱللَّهِ كَمَثَلِ ءَادَمَ ۖ خَلَقَهُۥ مِن تُرَابٍۢ ثُمَّ قَالَ لَهُۥ كُن فَيَكُونُ] (https://quran.com/3/59)
-
-***
-
-* __Surah 5/116-119__: [](https://quran.com/5/116-119)
+  * Both didn't have father
 
 ***
 
 * __Surah An-Nisa 4/157 (Issa AS: neither killed nor crucified him)__: [وَقَوْلِهِمْ إِنَّا قَتَلْنَا ٱلْمَسِيحَ عِيسَى ٱبْنَ مَرْيَمَ رَسُولَ ٱللَّهِ وَمَا قَتَلُوهُ وَمَا صَلَبُوهُ وَلَـٰكِن شُبِّهَ لَهُمْ ۚ وَإِنَّ ٱلَّذِينَ ٱخْتَلَفُوا۟ فِيهِ لَفِى شَكٍّۢ مِّنْهُ ۚ مَا لَهُم بِهِۦ مِنْ عِلْمٍ إِلَّا ٱتِّبَاعَ ٱلظَّنِّ ۚ وَمَا قَتَلُوهُ يَقِينًۢا](https://quran.com/4/157)
 
 *** 
+
+* __Surah 5/116-119__: [](https://quran.com/5/116-119)
+
 * __Surah Al-Maaida 5/75 (Issa & Maryma AS (They both ate food))__: [مَّا ٱلْمَسِيحُ ٱبْنُ مَرْيَمَ إِلَّا رَسُولٌۭ قَدْ خَلَتْ مِن قَبْلِهِ ٱلرُّسُلُ وَأُمُّهُۥ صِدِّيقَةٌۭ ۖ كَانَا يَأْكُلَانِ ٱلطَّعَامَ ۗ ٱنظُرْ كَيْفَ نُبَيِّنُ لَهُمُ ٱلْـَٔايَـٰتِ ثُمَّ ٱنظُرْ أَنَّىٰ يُؤْفَكُونَ](https://quran.com/5/75)
+
+***
+
+* __Surah Maryam 19/33__: [وَٱلسَّلَـٰمُ عَلَىَّ يَوْمَ وُلِدتُّ وَيَوْمَ أَمُوتُ وَيَوْمَ أُبْعَثُ حَيًّۭا](https://quran.com/19/33)
+* __Surah Maryam 19/34__: [ذَٰلِكَ عِيسَى ٱبْنُ مَرْيَمَ ۚ قَوْلَ ٱلْحَقِّ ٱلَّذِى فِيهِ يَمْتَرُونَ](https://quran.com/19/34)
+* __Surah Maryam 19/35 (مَا كَانَ لِلَّهِ أَن يَتَّخِذَ مِن وَلَدٍۢ ۖ)__: [مَا كَانَ لِلَّهِ أَن يَتَّخِذَ مِن وَلَدٍۢ ۖ سُبْحَـٰنَهُۥٓ ۚ إِذَا قَضَىٰٓ أَمْرًۭا فَإِنَّمَا يَقُولُ لَهُۥ كُن فَيَكُونُ](https://quran.com/19/35)
+
 
 ***
 
@@ -23,3 +26,8 @@
 
 #### [What was the disagreement of the Jews with Jesus? | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=HcBEKeCdDbg)
 
+***
+
+#### [Hazrat Maryam A.S ki walida ki dua – Aisi niyat jis ne tareekh badal di! | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=GOOzFjLhl3M)
+
+***

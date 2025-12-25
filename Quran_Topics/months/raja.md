@@ -70,9 +70,12 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 * __27 Rajab Roza Fazilat__:
   * `Equivalent to 6-months`
 * __27 Rajab Roza Ibadat__:
-  * Not only previous-sins are forgiven
-  * Allah SWT becomes Neghaban on Sins to be committed for rest-of-life
+  * Gunahs equivalent to sins of foam-of-seas are forgiven. 
+  * Not only previous-sins are forgiven, but also 
+  * Allah SWT becomes neghaban-on-sins to be committed for rest-of-life
   * Meaning, with His Mercy and Rehmat, allah SWT guides the person avoid sins.
+  * After 1/3-night ALL angels are gathered around Khana-e-Kabba. Allah SWT asks angels, what do you wish, "They do saifarish of people on earth who are worshipping."
+  * __Surah Ghafir 7-9__: [ٱلَّذِينَ يَحْمِلُونَ ٱلْعَرْشَ وَمَنْ حَوْلَهُۥ يُسَبِّحُونَ بِحَمْدِ رَبِّهِمْ وَيُؤْمِنُونَ بِهِۦ وَيَسْتَغْفِرُونَ لِلَّذِينَ ءَامَنُوا۟ رَبَّنَا وَسِعْتَ كُلَّ شَىْءٍۢ رَّحْمَةًۭ وَعِلْمًۭا فَٱغْفِرْ لِلَّذِينَ تَابُوا۟ وَٱتَّبَعُوا۟ سَبِيلَكَ وَقِهِمْ عَذَابَ ٱلْجَحِيمِ...رَبَّنَا وَأَدْخِلْهُمْ جَنَّـٰتِ عَدْنٍ ٱلَّتِى وَعَدتَّهُمْ وَمَن صَلَحَ مِنْ ءَابَآئِهِمْ وَأَزْوَٰجِهِمْ وَذُرِّيَّـٰتِهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ...وَقِهِمُ ٱلسَّيِّـَٔاتِ ۚ وَمَن تَقِ ٱلسَّيِّـَٔاتِ يَوْمَئِذٍۢ فَقَدْ رَحِمْتَهُۥ ۚ وَذَٰلِكَ هُوَ ٱلْفَوْزُ ٱلْعَظِيمُ](https://quran.com/40/7-9)
 * __Angels Pray__:
   * Oh Allah SWT, whoever is worshipping you on earth tonight, forgive him. 
 * __Rozas of other Prophets__:

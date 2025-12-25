@@ -16,6 +16,7 @@
 
 ![14 Haroof-e-Muqataat](https://github.com/muarshad01/YouTube_Videos/blob/main/images/haroof-e-muqataat.png)
 
+<img src="https://github.com/muarshad01/YouTube_Videos/blob/main/images/haroof-e-muqataat.png" width="300" height="300" />
 
 #### [Alif-Lãm-Mĩm [Third- level Walli Allah] | SSA Shah](https://www.youtube.com/watch?v=9uaah_R2L1s)
 * 1 `Alif أ` - Allah SWT
@@ -158,5 +159,6 @@
 * __Meem__ - Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
 
 ***
+
 
 

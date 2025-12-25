@@ -4,10 +4,11 @@
 ***
 
 #### [Mah-e-Rajab Blessings | ماہ ِرجب رحمتوں کا دروازہ ہے](https://www.youtube.com/watch?v=LQPW52RS0oY)
+* Kahay Faqeer - Lecture 9 - Page 65
 * Rajab - Tarjeeb - Tazeem Karna
 * Rajab (Arabic: رَجَب), the 7th Islamic month, has several names reflecting its sacred, solitary nature, including
 1. __Rajab al-Murajjab (رَجَب المُرَجَّب)__: The highly honored and venerated month, derived from the word __Tarjeeb" (to honor)__.
-2. __Rajab al-Asamm (رجب الأصمّ)__: The silent or deaf month, as warfare and fighting were forbidden.
+2. __Rajab al-Asamm (رجب الأصمّ)__: The `silent or deaf month`, as warfare and fighting were forbidden.
 3. __Rajab Al-Asab (رجب الأصب)__: The month of abundant mercy, as Allah showers blessings.
 4. __Rajab Al-Fard (رجب الفرد)__: The solitary or separate Rajab, because it stands alone from the __other 3-consecutive sacred months (11-Dhu al-Hijjah, 12-Dhu al-Qi'dah, 1-Muharram).__
 5. __Rajab al-Mudhar (رجب مضر)__: Named for the Mudhar tribe's (Bani Mudhar) special respect for it.

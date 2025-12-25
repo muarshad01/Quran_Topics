@@ -40,6 +40,12 @@
 
 ***
 
+#### [Open All 8 Gates of Paradise! | رجب… جنت کے دروازے کھولنے والا مہینہ | SSA Shah](https://www.youtube.com/watch?v=0xJn2I_X5uA)
+* Nayat: Allah SWT ki Doosti-aur Qurab ki karayn.
+* He who keep 3-fasts is granted Allah SWT Friendship-and-Qurab.
+
+***
+
 #### [Rewards of Rajab Fasting! | رجب کے روزوں کی فضیلت | SSA Shah](https://www.youtube.com/watch?v=RhAdemUONeM)
 * 15 = 7+8 Fasts
 * 1 Fast: 30 years of Fasting reward

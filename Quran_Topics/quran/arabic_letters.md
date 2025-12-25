@@ -86,7 +86,7 @@
 #### [Alphabet “ZAA - 11”](https://www.youtube.com/watch?v=wPWcuRLMahY)
 * Ya Zakiu
 * Tazkia...???
-* __Surah__: [كَنزٞ](https://quranwbw.com/18/82)
+* __Surah 18/82 (كَنزَهُمَا)__: [وَأَمَّا ٱلْجِدَارُ فَكَانَ لِغُلَـٰمَيْنِ يَتِيمَيْنِ فِى ٱلْمَدِينَةِ وَكَانَ تَحْتَهُۥ كَنزٌۭ لَّهُمَا وَكَانَ أَبُوهُمَا صَـٰلِحًۭا فَأَرَادَ رَبُّكَ أَن يَبْلُغَآ أَشُدَّهُمَا وَيَسْتَخْرِجَا كَنزَهُمَا رَحْمَةًۭ مِّن رَّبِّكَ ۚ وَمَا فَعَلْتُهُۥ عَنْ أَمْرِى ۚ ذَٰلِكَ تَأْوِيلُ مَا لَمْ تَسْطِع عَّلَيْهِ صَبْرًۭا](https://quranwbw.com/18/82)
 
 ***
 
@@ -95,25 +95,25 @@
 #### Benefits
 * Laqwa Falig
 #### Three names of Allah SWT start with "Seen"
-1. Ya Samiu (يا سّميع)
-2. Ya Salamu (يا سلام)
-3. Ya Sareu ( يا سارع )[Surely Allah is swift in reckoning.](https://quran.com/14/51)
+1. Ya-Samiu (يا سّميع)
+2. Ya-Salamu (يا سلام)
+3. Ya-Sareu ( يا سارع ) - [لِيَجْزِىَ ٱللَّهُ كُلَّ نَفْسٍۢ مَّا كَسَبَتْ ۚ إِنَّ ٱللَّهَ سَرِيعُ ٱلْحِسَابِ](https://quran.com/14/51)
 
 ***
 
 #### [Alphabet “SHEIN - 13”](https://www.youtube.com/watch?v=wb6M_MsDvTE)
-1. Ya Shakiru
-2. Ya Sakooru
-3. Ya Shaheedu
-4. Ya Sadeedu
+1. Ya-Shakiru
+2. Ya-Sakooru
+3. Ya-Shaheedu
+4. Ya-Sadeedu
 
 ***
 
 #### [Alphabet “SUAD - 14”](https://www.youtube.com/watch?v=NsjskFI3BMA)
 * __Surah Sad 38__: [Sad](https://quran.com/38)
-1. Ya Samadu, Salat
-2. Ya Sadiqu
-3. Ya Sabooru
+1. Ya-Samadu, Salat
+2. Ya-Sadiqu
+3. Ya-Sabooru
 * Ya Sahib Kulli Gharibin
 
 ***
@@ -121,13 +121,12 @@
 #### [Alphabet “DUAD - 15”](https://www.youtube.com/watch?v=nLhSNpdCtt4)
 * "Zarar" (ضرر) means "damage, harm, or injury." 
 * __Nazira (ناضرة)__: Radiant, flourishing, beautiful.
-  * __Surah 75/22 (Radiant)__: [وُجُوهٌۭ يَوْمَئِذٍۢ نَّاضِرَةٌ](https://quran.com/75/22)
-
+* __Surah Al-Qiyamah 75/22 (Radiant)__: [وُجُوهٌۭ يَوْمَئِذٍۢ نَّاضِرَةٌ](https://quran.com/75/22)
 
 ***
 
 #### [Alphabet “TAA - 16”](https://www.youtube.com/watch?v=9_owPEOYzxY)
-* `Taha`: 9 + 5 = 14  
+* __Ta-Ha (طه)__: 9 + 5 = 14  
 * Numeric value = 9
 * Ya Tahiru
 
@@ -137,7 +136,6 @@
 * Ya Allahu, Ya Zahiru
 * __Surah Hadid 57/3__: [هُوَ ٱلْأَوَّلُ وَٱلْـَٔاخِرُ وَٱلظَّـٰهِرُ وَٱلْبَاطِنُ ۖ وَهُوَ بِكُلِّ شَىْءٍ عَلِيمٌ](https://quran.com/57/3)
 
-
 ***
 
 #### [Alphabet “AYN - 18”](https://www.youtube.com/watch?v=5mLH6iqfwTo)
@@ -145,9 +143,9 @@
 * Umer: 70(Aim) + 40(Meem) + 200(Raa) = 310
 * Ilm, Ali, Azeem
 #### Benefits
-3. Ya Aliu 
-1. Ya Aleemu 
-2. Ya Alamu 
+1. Ya Aliu 
+2. Ya Aleemu 
+3. Ya Alamu 
 4. Ya Azeemu
 5. Ya Azizu
 6. Ya Afafu 
@@ -157,71 +155,72 @@
 
 #### [Alphabet “GAYN - 19”](https://www.youtube.com/watch?v=32Jr7B9ojNk)
 * Ghyab
-* __Surah Baqarah 2/3__: [Who believe in the unseen, establish prayer, and donate from what We have provided for them.](https://quran.com/2/3)
-1. Ya Ghaniu
-2. Ya Ghaffru
-3. Ya Ghafooru
+* __Surah Baqarah 2/3__: [ٱلَّذِينَ يُؤْمِنُونَ بِٱلْغَيْبِ وَيُقِيمُونَ ٱلصَّلَوٰةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/2/3)
+1. Ya-Ghaniu
+2. Ya-Ghaffru
+3. Ya-Ghafooru
 
 ***
 
 #### [Alphabet “FAA - 20”](https://www.youtube.com/watch?v=kNcY6c5p47Q)
 * Fatah/Fauz - Fasad
-1. Ya Fathau
-2. Ya Fatiru
-3. Ya Falik-ul-Haq
+1. Ya-Fathau
+2. Ya-Fatiru
+3. Ya-Falik-ul-Haq
 
 ***
 
 #### [Alphabet “KAF - 21 (Two dots)”](https://www.youtube.com/watch?v=qUfIx2sYlCU)
 * Qayamat, Quwat, Qadeer, Qahar
 * __Surah Qaf 50__: [Qãf. By the glorious Quran!](https://quran.com/50)
-1. Ya Qawiu
-2. Ya Qayaimu
-3. Ya Qayyumu
+1. Ya-Qawiyyu (يا قويّ)
+2. Ya-Qayaimu
+3. Ya-Qayyumu
 
 ***
 
 #### [Alphabet “KAAF - 22 (Like Book)”](https://www.youtube.com/watch?v=Z1F2USr5Jew)
 * Kifayat (Allah is sufficient): Kamil kul Nabi, Kul kainaat kay liye
-1. Ya Kabiru
-2. Ya Kafiu
-3. Ya Kareemu
+1. Ya-Kabiru
+2. Ya-Kafiu
+3. Ya-Kareemu
 
 ***
 
 #### [Alphabet “LAAM - 23”](https://www.youtube.com/watch?v=8Jb401Vu-uI)
-* Ya Latifu
-* __Surah Ash-Shuraa 42__: [Allah is Ever Kind to His servants. He provides ˹abundantly˺ to whoever He wills. And He is the All-Powerful, Almighty.](https://quran.com/42/19)
+* Ya-Latifu
+* __Surah Ash-Shuraa 42__: [ٱللَّهُ لَطِيفٌۢ بِعِبَادِهِۦ يَرْزُقُ مَن يَشَآءُ ۖ وَهُوَ ٱلْقَوِىُّ ٱلْعَزِيزُ](https://quran.com/42/19)
 
 ***
 
 #### [Alphabet “Meem - 24”](https://www.youtube.com/watch?v=3SUWk2n0Dac)
-* About 40 Isma-ul-Husna start with Meem
+* About 40 Isma-ul-Husna start with Meem??
+* NOTE: Numeric value of Meem is 40 as well
 * Prostate Cancer
 
 ***
 
 #### [Alphabet “NUN - 25”](https://www.youtube.com/watch?v=BrUmrVgW_i0)
-* __Surah An-Nur 24__: [Allah is the Light of the heavens and the earth. ](https://quran.com/24/35)
-* __Surah Al-Qalam 68__: [Nũn. By the pen and what everyone writes!](https://quran.com/68/1)
+* __Surah An-Nur 24/35__: [ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ مَثَلُ نُورِهِۦ كَمِشْكَوٰةٍۢ فِيهَا مِصْبَاحٌ ۖ ٱلْمِصْبَاحُ فِى زُجَاجَةٍ ۖ ٱلزُّجَاجَةُ كَأَنَّهَا كَوْكَبٌۭ دُرِّىٌّۭ يُوقَدُ مِن شَجَرَةٍۢ مُّبَـٰرَكَةٍۢ زَيْتُونَةٍۢ لَّا شَرْقِيَّةٍۢ وَلَا غَرْبِيَّةٍۢ يَكَادُ زَيْتُهَا يُضِىٓءُ وَلَوْ لَمْ تَمْسَسْهُ نَارٌۭ ۚ نُّورٌ عَلَىٰ نُورٍۢ ۗ يَهْدِى ٱللَّهُ لِنُورِهِۦ مَن يَشَآءُ ۚ وَيَضْرِبُ ٱللَّهُ ٱلْأَمْثَـٰلَ لِلنَّاسِ ۗ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/24/35)
+* __Surah Al-Qalam 68/1__: [نٓ ۚ وَٱلْقَلَمِ وَمَا يَسْطُرُونَ](https://quran.com/68/1)
 
-1. Ya Nooru
-2. Ya Nasiru
-3. Ya Nafayu
+1. Ya-Nooru
+2. Ya-Nasiru
+3. Ya-Nafayu
 
 ***
 
 #### [Alphabet “WOW - 26”](https://www.youtube.com/watch?v=P_wP7RR6tUU)
-* __Surah Ali'Imran 3/8 (Ya Wahabu)__: [˹They say,˺ “Our Lord! Do not let our hearts deviate after you have guided us. Grant us Your mercy. You are indeed the Giver ˹of all bounties˺.](https://quran.com/3/8)
-* __Surah Al-Hashr 59/22__: [He is Allah—there is no god ˹worthy of worship˺ except Him: Knower of the seen and unseen. He is the Most Compassionate, Most Merciful.](https://quran.com/59/22) 
+* __Surah Ali'Imran 3/8 ( وَهَبْ لَنَا مِن لَّدُنكَ رَحْمَةً ۚ إِنَّكَ أَنتَ ٱلْوَهَّابُ)__: [رَبَّنَا لَا تُزِغْ قُلُوبَنَا بَعْدَ إِذْ هَدَيْتَنَا وَهَبْ لَنَا مِن لَّدُنكَ رَحْمَةً ۚ إِنَّكَ أَنتَ ٱلْوَهَّابُ](https://quran.com/3/8)
+* __Surah Al-Hashr 59/22__: [هُوَ ٱللَّهُ ٱلَّذِى لَآ إِلَـٰهَ إِلَّا هُوَ ۖ عَـٰلِمُ ٱلْغَيْبِ وَٱلشَّهَـٰدَةِ ۖ هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/59/22) 
 
 #### Six names of Allah SWT start with "WOW"
-1. Ya Wahidu
-2. Ya Wajidu
-3. Ya Waliu
-4. Ya Wahabu
-5. Ya Wadudu
-6. Ya Warisu
+1. Ya-Wahidu
+2. Ya-Wajidu
+3. Ya-Waliu
+4. Ya-Wahabu
+5. Ya-Wadudu
+6. Ya-Warisu
 
 ***
 
@@ -236,8 +235,8 @@
 * Six spectrums of awareness, six states of being. The Lataif-e-Sitta are: 
 
 #### Alm-e-Amar versus Alam-e-Khulq
-* [Alm-e-Amar 36/82](https://quran.com/36/82) Upper-half semisphere
-* [Alam-e-Khulq 57/4](https://quran.com/57/4) Lower half semisphere
+* __Surah Yaseen 36/82 (Alm-e-Amar)__: [](https://quran.com/36/82) Upper-half-semisphere
+* __Surah Al-Hadid 57/4 (Alam-e-Khulq)__[هُوَ ٱلَّذِى خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ فِى سِتَّةِ أَيَّامٍۢ ثُمَّ ٱسْتَوَىٰ عَلَى ٱلْعَرْشِ ۚ يَعْلَمُ مَا يَلِجُ فِى ٱلْأَرْضِ وَمَا يَخْرُجُ مِنْهَا وَمَا يَنزِلُ مِنَ ٱلسَّمَآءِ وَمَا يَعْرُجُ فِيهَا ۖ وَهُوَ مَعَكُمْ أَيْنَ مَا كُنتُمْ ۚ وَٱللَّهُ بِمَا تَعْمَلُونَ بَصِيرٌۭ](https://quran.com/57/4) Lower half-semisphere
 
 #### Types
 1. Qalb (قلب)

@@ -61,12 +61,14 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 
 #### [27 Rajab (Shab-e-Miraj) Ki Ibadat Aur Roza | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
 * Loh-e-Faqeer, Lecture 33, page 279.
+1. Rajab - Allah SWT Month
+2. Shabaan - My Month
+3. Ramadan - Ummat Month
 * __Monday__:
-  * Birth / Departure of Prophet Muhammad PBUH
-  * Nuwabat
-  * First Wahi
+  * First Wahi / Nuwabat on 27 Rajab and Monday
+  * Birth / Departure of Prophet Muhammad PBUH on Monday
 * __27 Rajab Roza Fazilat__:
-  * Equivalent to 6-months
+  * `Equivalent to 6-months`
 * __27 Rajab Roza Ibadat__:
   * Not only previous-sins are forgiven
   * Allah SWT becomes Neghaban on Sins to be committed for rest-of-life
@@ -74,8 +76,8 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 * __Angels Pray__:
   * Oh Allah SWT, whoever is worshipping you on earth tonight, forgive him. 
 * __Rozas of other Prophets__:
-  * Hazrat Nuh AS kep Roza All his life
-  * Hazrat Daud AS kepe Roza for half of his life.
+  * Hazrat Nuh AS kept Roza ALL his life
+  * Hazrat Daud AS kept Roza for half of his life.
 * __Ayam-e-Baiz__:
   * 13, 14, 15 of every Qamari Month. Keep Roza and your face will have Noor.
  
@@ -83,12 +85,7 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 
 #### [Mah-e-Rajab Main Allah Ki Ibadat Kaise Ki Jaye? | SSA Shah](https://www.youtube.com/watch?v=h14g9RmLpy8)
 * Faqeer Rung, Lecture 12
-* Best Ibadah is bay-gharaz-and-bay-loas
-* Sirf Rabb hi, Liaq-e-Ibadat hai
-
-***
-
-#### [27 Rajab - Miraj](https://www.youtube.com/shorts/tiVbifh3Kp0)
-* https://www.youtube.com/watch?v=p9VMJKHyZl8
+* __Best Ibadah is bay-Gharaz-and-bay-Loas__
+* __Sirf Rabb hi, Liaq-e-Ibadat hai__
 
 ***

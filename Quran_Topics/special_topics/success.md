@@ -92,31 +92,99 @@ Here's a more detailed explanation:
 ***
 
 * __Surah Al-Hajj 22/77__: []()
-* __Surah Al Muminoon 23/1-11__: []()
-* __Surah Al Muminoon 23/102__: []()
-* __Surah Al Muminoon 23/109-111__: []()
-* __Surah An Nur 24/31__: []()
-* __Surah An Nur 24/51__: []()
-* __Surah An Nur 24/52__: []()
+
+***
+
+* __Surah Al-Muminoon 23/1-11__: []()
+* __Surah Al-Muminoon 23/102__: []()
+* __Surah Al-Muminoon 23/109-111__: []()
+
+***
+
+* __Surah An-Nur 24/31__: []()
+* __Surah An-Nur 24/51__: []()
+* __Surah An-Nur 24/52__: []()
+
+***
+
 * __Surah Al Qasas 28/67__: []()
-* __Surah Ar Rum 30/38)__: []()
+
+***
+
+* __Surah Ar-Rum 30/38__: []()
+
+***
+
 * __Surah Luqman 31/2-5__: []()
-* __Surah Al Ahzab 33/70-71__: []()
-* __Surah As Saffat 37/60__: []()
-* __Surah Az Zumar 39/61__: []()
+
+***
+
+* __Surah Al-Ahzab 33/70-71__: []()
+
+***
+
+* __Surah As-Saffat 37/60__: []()
+
+***
+
+* __Surah Az-Zumar 39/61__: []()
+
+***
+
 * __Surah Ghafer/Momin 40/9__: []()
-* __Surah Ad Dukhan 44/51-57__: []()
-* __Surah Al Jathiya 45/30__: []()
-* __Surah Al Fat’h 48/5__: []()
-* __Surah Al Hadid 57/12__: []()
-* __Surah Al Mujadilah 58/22__: []()
+
+***
+
+* __Surah Ad-Dukhan 44/51-57__: []()
+
+***
+
+* __Surah Al-Jathiya 45/30__: []()
+
+***
+
+* __Surah Al-Fat’h 48/5__: []()
+
+***
+
+* __Surah Al-Hadid 57/12__: []()
+
+***
+
+* __Surah Al-Mujadilah 58/22__: []()
+
+***
+
 * __Surah Al Hashr 59/9__: []()
 * __Surah Al Hashr 59/20__: []()
+
+***
+
 * __Surah As Saff 61/10-11-12__: []()
+
+***
+
 * __Surah Al Jumuah 62/9-10__: []()
-* __Surah At Taghabun 64/9__: []()
-* __Surah At Taghabun 64/16__: []()
-* __Surah An Naba 78/31-36__: []()
-* __Surah Al Buruj 85/11__: []()
+
+***
+
+* __Surah At-Taghabun 64/9__: []()
+* __Surah At-Taghabun 64/16__: []()
+
+***
+
+* __Surah An-Naba 78/31-36__: []()
+
+***
+
+* __Surah Al-Buruj 85/11__: []()
+
+***
+
 * __Surah Al A’ala 87/14__: []()
+
+***
+
 * __Surah Ash Shams 91/9__: []()
+
+***

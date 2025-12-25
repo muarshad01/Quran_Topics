@@ -333,3 +333,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 #### [Lahore Ke Khaas Mazaraat - Rohani Sukoon Ka Safar | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=59E8b3-EMbY)
 
 ***
+
+* Lal Shahbaz Qalandar (1177 - 1274)
+* Boo Ali Qalandar (1209 – 1324)
+
+*** 

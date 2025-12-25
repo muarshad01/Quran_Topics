@@ -1,3 +1,8 @@
+* https://www.youtube.com/shorts/7kjL0OwKS0s
+* https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi
+
+***
+
 * __Surah Al-Baqarah 2/31 (ADAM AS)__: [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا](https://quran.com/2/30-34)
 * __Surah Az-Zumar 39/9__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ](https://quran.com/39/9)
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)

@@ -1,7 +1,6 @@
-* https://www.youtube.com/shorts/7kjL0OwKS0s
-* https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi
-
-*  Joo bhi Allah say miltay-hayn __kHALOOS-SAY-MOHABBAT__...unn-kay __ILM-KA-RANG__ juda hoo-jata-hai.
+#### [Javed Ghamidi’s Qualification](https://www.youtube.com/shorts/7kjL0OwKS0s)
+* [Amin Ahsan Islahi](https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi)
+*  Joo bhi Allah say miltay-hayn __kHALOOS-SAY-MOHABBAT-SAY__...unn-kay __ILM-KA-RANG__ juda hoo-jata-hai.
 * Ilm-e-Ilahi in Alfaaz in Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
 

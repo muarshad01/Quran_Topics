@@ -35,7 +35,7 @@
 * __Hadith of the Thaqalayn (Two Weighty Things)__: The Musnad Ahmad ibn Hanbal contains versions of the Hadith of the Thaqalayn, a famous narration attributed to the Prophet Muhammad stating __he is leaving behind two weighty things: the Quran and his progeny (Ahl al-Bayt)__. These two are described as being inseparable and the source of guidance for his community. The hadith is found in both Sunni and Shia sources, including Musnad Ahmad, and emphasizes the importance of following both the Quran and the Prophet's family together. 
 * __Surah An-Nahl 16/103__: [وَلَقَدْ نَعْلَمُ أَنَّهُمْ يَقُولُونَ إِنَّمَا يُعَلِّمُهُۥ بَشَرٌۭ ۗ لِّسَانُ ٱلَّذِى يُلْحِدُونَ إِلَيْهِ أَعْجَمِىٌّۭ وَهَـٰذَا لِسَانٌ عَرَبِىٌّۭ مُّبِينٌ](https://quran.com/16/103)
 * __Surah Yusuf 12/2__: [إِنَّآ أَنزَلْنَـٰهُ قُرْءَٰنًا عَرَبِيًّۭا لَّعَلَّكُمْ تَعْقِلُونَ](https://quran.com/12/2)
-* Adeed + Alam Deen + Economics + Politics + Philosophy + History + Ilm-e-Ghayab
+* Adeeb + Alam Deen + Economics + Politics + Philosophy + History + Ilm-e-Ghayab
 * __Surah Nisa 4/82 (أَفَلَا يَتَدَبَّرُونَ ٱلْقُرْءَانَ)__: [وَلَوْ كَانَ مِنْ عِندِ غَيْرِ ٱللَّهِ لَوَجَدُوا۟ فِيهِ ٱخْتِلَـٰفًۭا كَثِيرًۭا](https://quran.com/4/82)
 
 ***
@@ -54,15 +54,15 @@
 * __Surah Al-Masad 111/1__: [تَبَّتْ يَدَآ أَبِى لَهَبٍۢ وَتَبَّ](https://quran.com/111/1)
 * 7:00 pm
 * __Surah Al-Baqarah 2/21__: [يَـٰٓأَيُّهَا ٱلنَّاسُ ٱعْبُدُوا۟ رَبَّكُمُ ٱلَّذِى خَلَقَكُمْ وَٱلَّذِينَ مِن قَبْلِكُمْ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/21)
-* __Surah An-Nisa 4/174 (وَأَنزَلْنَآ إِلَيْكُمْ نُورًۭا مُّبِينًۭا)__: [يَـٰٓأَيُّهَا ٱلنَّاسُ قَدْ جَآءَكُم بُرْهَـٰنٌۭ مِّن رَّبِّكُمْ وَأَنزَلْنَآ إِلَيْكُمْ نُورًۭا مُّبِينًۭا](https://quran.com/4/174)
-* __Surah Jumma 62/6__: [قُلْ يَـٰٓأَيُّهَا ٱلَّذِينَ هَادُوٓا۟ إِن زَعَمْتُمْ أَنَّكُمْ أَوْلِيَآءُ لِلَّهِ مِن دُونِ ٱلنَّاسِ فَتَمَنَّوُا۟ ٱلْمَوْتَ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/62/6)
+* __Surah An-Nisa 4/174 (Noor:وَأَنزَلْنَآ إِلَيْكُمْ نُورًۭا مُّبِينًۭا)__: [يَـٰٓأَيُّهَا ٱلنَّاسُ قَدْ جَآءَكُم بُرْهَـٰنٌۭ مِّن رَّبِّكُمْ وَأَنزَلْنَآ إِلَيْكُمْ نُورًۭا مُّبِينًۭا](https://quran.com/4/174)
+* __Surah Jumma 62/6 (Wish Death...)__: [قُلْ يَـٰٓأَيُّهَا ٱلَّذِينَ هَادُوٓا۟ إِن زَعَمْتُمْ أَنَّكُمْ أَوْلِيَآءُ لِلَّهِ مِن دُونِ ٱلنَّاسِ فَتَمَنَّوُا۟ ٱلْمَوْتَ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/62/6)
 * __Surah Al-Kafirun 109/1__: [قُلْ يَـٰٓأَيُّهَا ٱلْكَـٰفِرُونَ](https://quran.com/109/1)
 * 13:25 pm
 * __Surah Al-Waqiah 56/77-79__: [إِنَّهُۥ لَقُرْءَانٌۭ كَرِيمٌۭ...فِى كِتَـٰبٍۢ مَّكْنُونٍۢ...لَّا يَمَسُّهُۥٓ إِلَّا ٱلْمُطَهَّرُونَ](https://quran.com/56/77-79)
 * __Surah Al-Asr 103/1-3__: [وَٱلْعَصْرِ...إِنَّ ٱلْإِنسَـٰنَ لَفِى خُسْرٍ...إِلَّا ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ وَتَوَاصَوْا۟ بِٱلْحَقِّ وَتَوَاصَوْا۟ بِٱلصَّبْرِ](https://quran.com/103/1-3)
-* __Surah 95/6__: [إِلَّا ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ فَلَهُمْ أَجْرٌ غَيْرُ مَمْنُونٍۢ](https://quran.com/95/6)
-* __Surah 10/90__ : [لَآ إِلَـٰهَ إِلَّا](https://quran.com/10/90)
-* __Surah 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quran.com/3/144)
+* __Surah At-Tin 95/6__: [إِلَّا ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ فَلَهُمْ أَجْرٌ غَيْرُ مَمْنُونٍۢ](https://quran.com/95/6)
+* __Surah Yunus 10/90__ : [لَآ إِلَـٰهَ إِلَّا](https://quran.com/10/90)
+* __Surah Ale-Imram 3/144__: [وَمَا مُحَمَّدٌ إِلَّا رَسُولٌۭ](https://quran.com/3/144)
 ***
 
 #### [Quran kesi kitaab hay | Allama Talib Johri](https://www.youtube.com/watch?v=3BtSYQe38rc) -- 20 min

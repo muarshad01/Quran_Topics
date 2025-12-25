@@ -1,8 +1,3 @@
-#### [27 Rajab - Miraj](https://www.youtube.com/shorts/tiVbifh3Kp0)
-
-* https://www.youtube.com/watch?v=p9VMJKHyZl8
-***
-
 #### [Mah-e-Rajab Blessings | ماہ ِرجب رحمتوں کا دروازہ ہے | SSA Shah](https://www.youtube.com/watch?v=LQPW52RS0oY)
 * Kahay Faqeer - Lecture 9 - Page 65
 * Rajab - Tarjeeb - Tazeem Karna
@@ -28,7 +23,7 @@
 
 #### [Mah-e-Rajab Ki Khaas Ibadatein | SSA Shah](https://www.youtube.com/watch?v=C-TcqRc8jFc)
 * Kahay-Faqeer, Lecture 9, Page 65
-* 15-Rozay of Mah-e-Rajab, each one has its own Fazilat
+* __15-Rozay__ of Mah-e-Rajab, each one has its own Fazilat
 * One Roza: 30-years of Sawab
 * One Roza: One door of Jahanum is closed
 * Seven Rozas: ALL 7-doors are closed
@@ -42,7 +37,7 @@
 
 #### [Open All 8 Gates of Paradise! | رجب… جنت کے دروازے کھولنے والا مہینہ | SSA Shah](https://www.youtube.com/watch?v=0xJn2I_X5uA)
 * Nayat: Allah SWT ki Doosti-aur Qurab ki karayn.
-* He who keep 3-fasts is granted Allah SWT Friendship-and-Qurab.
+* __He who keep 3-fasts is granted Allah SWT Friendship-and-Qurab.__
 
 ***
 
@@ -63,7 +58,6 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 8. Baab Az-Zikr
 
 ***
-
 
 #### [27 Rajab (Shab-e-Miraj) Ki Ibadat Aur Roza | SSA Shah](https://www.youtube.com/watch?v=S9W2sIbJIG8)
 * Loh-e-Faqeer, Lecture 33, page 279.
@@ -87,11 +81,14 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
  
 *** 
 
-
-
 #### [Mah-e-Rajab Main Allah Ki Ibadat Kaise Ki Jaye? | SSA Shah](https://www.youtube.com/watch?v=h14g9RmLpy8)
 * Faqeer Rung, Lecture 12
 * Best Ibadah is bay-gharaz-and-bay-loas
 * Sirf Rabb hi, Liaq-e-Ibadat hai
+
+***
+
+#### [27 Rajab - Miraj](https://www.youtube.com/shorts/tiVbifh3Kp0)
+* https://www.youtube.com/watch?v=p9VMJKHyZl8
 
 ***

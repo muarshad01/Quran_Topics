@@ -111,3 +111,10 @@
 ***
 
 #### [Quran Will Intercede on the Day of Judgment | Hadees sharif | Bright up Hadith](https://www.youtube.com/watch?v=suH0LxlnQZA)
+* [(42)Chapter: The virtue of reciting the Qur’an and Surat al-Baqarah](https://sunnah.com/muslim:804a)
+```
+Abu Umama said he heard Allah's Messenger (ﷺ) say:
+
+Recite the Qur'an, for on the Day of Resurrection it will come as an intercessor for those who recite It. Recite the two bright ones, al-Baqara and Surah Al 'Imran, for on the Day of Resurrection they will come as two clouds or two shades, or two flocks of birds in ranks, pleading for those who recite them. Recite Surah al-Baqara, for to take recourse to it is a blessing and to give it up is a cause of grief, and the magicians cannot confront it. (Mu'awiya said: It has been conveyed to me that here Batala means magicians.)
+```
+***

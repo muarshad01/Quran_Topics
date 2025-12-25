@@ -44,7 +44,8 @@
 * 23 -  [Zakariya (Zachariah)](https://quranwbw.com/21/89)
    * __Surah Maryam 19/4 (Zakaria AS Dua)__: [saying, “My Lord! Surely my bones have become brittle, and grey hair has spread across my head, but I have never been disappointed in my prayer to You, my Lord!
 * 24 -  Yahya (John the Baptist)](https://quran.com/19/4)
-* * __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
+* __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
+* __Surah Maryam 19/12-15 (Yahya AS)__: [يَـٰيَحْيَىٰ خُذِ ٱلْكِتَـٰبَ بِقُوَّةٍۢ ۖ وَءَاتَيْنَـٰهُ ٱلْحُكْمَ صَبِيًّۭا...وَحَنَانًۭا مِّن لَّدُنَّا وَزَكَوٰةًۭ ۖ وَكَانَ تَقِيًّۭا...وَبَرًّۢا بِوَٰلِدَيْهِ وَلَمْ يَكُن جَبَّارًا عَصِيًّۭا...وَسَلَـٰمٌ عَلَيْهِ يَوْمَ وُلِدَ وَيَوْمَ يَمُوتُ وَيَوْمَ يُبْعَثُ حَيًّۭا](https://quran.com/19/12-15)
 * 25 -  __Isa (Jesus)__: 
 * 26 -  __Muhammad PBUH__: Surah 47
     * [Inside Roza-e-Rasool](https://www.youtube.com/shorts/Q1BHAT6nmDo)
@@ -88,3 +89,4 @@ https://quranwbw.com/18/65
 > * __Surah An-Najm 53/10__: [فَأَوْحَىٰٓ إِلَىٰ عَبْدِهِۦ مَآ أَوْحَىٰ](https://quran.com/53/10)
 > * ashhadu anna Muhammadan abduhu wa rasula
 
+***

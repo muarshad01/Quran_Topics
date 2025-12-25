@@ -42,90 +42,87 @@ Here's a more detailed explanation:
 ***
 
 
-Surah Al A’ala (87:14)
+* __Surah Al A’ala (87:14)__:
 
 He/she has certainly succeeded who purifies himself/herself.
 
-Surah Ash Shams (91:9)
+* __Surah Ash Shams (91:9)__:
 
 Indeed he/she succeeds who purifies his/her ownself.
 
-Surah Al Buruj (85:11)
+* __Surah Al Buruj (85:11)__:
 
 Indeed, those who believe [(Have faith (1)in Allah, as He is, with all His names and attributes and acceptance of all His commands; (2)in His Angels, (3) His books, (4) all His Messengers, (5) the day of Judgement, (6) in that the fate good and bad is predetermined by Allah and (7) in the coming to life after death (resurrection)] and do righteous good deeds, for them will be (in the life to come) Gardens under which rivers flow (Paradise). That is the great success.
 
-Surah Al Araf (7:8)
+* __Surah Al Araf (7:8)__:
 
 And the weighing (of deeds) on that day (Day of Judgement) will be the true/just (weighing). So as for those whose scale (of good deeds) will be heavy, they will be the successful ones (by entering Paradise).  
 
-Surah Al Araf (7:69)
+* __Surah Al Araf (7:69)__:
 
 “Do you wonder that there has come to you a Reminder (and an advice) from your Lord through a man from amongst you that he may warn you? And remember that He made you successors after the people of Nuh (Noah), and increased you amply in stature. So remember the graces (bestowed upon you) from Allah, so that you may be successful.”  
 
-Surah Al Araf (7:157)
+* __Surah Al Araf (7:157)__:
 
 Those who follow the Messenger, the (Ummi/unlettered) Prophet, who can neither read nor write (i.e. Muhammad ﷺ) whom they find mentioned in the Taurat /Torah (Deut, xviii, 15) and the Injeel/Gospel (John xiv, 16), – he commands them what is just/right (Al-Ma’ruf); and forbids them what is evil/wrong (Al-Munkar); he allows them as lawful At-Taiyibat [(i.e. all good and pure) as regards things, deeds, beliefs, persons, foods, etc.], and prohibits them as unlawful Al-Khaba’ith (i.e. all evil and impure as regards things, deeds, beliefs, persons, foods, etc.), he releases them from their heavy burdens (of Allah’s Covenant), and from the fetters (bindings) that were upon them. So those who believe in him (Muhammad ﷺ), honour him, help him, and follow the light (the Quran) which has been sent down with him, it is they who will be successful.  
 
-
-Surah Al Qasas (28:67)
+* __Surah Al Qasas (28:67)__:
 
 But as for him/her who repented (from disbelief, polytheism, sins, etc.), believed (in the Oneness of Allah, and in His Messenger Muhammad ﷺ), and did righteous deeds (in the life of this world), then he/she will be among those who are successful.  
 
-Surah Yunus (10:63-64)
+* __Surah Yunus (10:63-64)__:
 
 Those who believed (in the Oneness of Allah), and used to fear Allah much (by abstaining from evil deeds and sins and by doing righteous deeds). (10:63) They shall have good news in this world’s life and in the hereafter. The words of Allah do not change. This is indeed the supreme success. (10:64)  
 
-Surah Yusuf (12:23)
+* __Surah Yusuf (12:23)__:
 
 And she, in whose house he [Yusuf (pease be upon him)] was, sought to seduce him (to do an evil act), she closed the doors and said: “Come on, O you.” He said: “I seek refuge in Allah (or Allah forbid)! Truly, he (your husband) is my master! He made my stay agreeable! (So I will never betray him). Indeed, the Zalimun (wrong and evil-doers) will never be successful.”  
 
-Surah Al Anam (6:16)
+* __Surah Al Anam (6:16)__:
 
 One who will be saved from the torment on the Day of Judgment will certainly have received Allah’s mercy and this will be a manifest/obvious success/triumph.  
 
-Surah As Saffat (37:60)
+* __Surah As Saffat (37:60)__:
 
 Truly, this is the supreme success! (Please read from Verses 40 to 60 that describe life in heaven, to get a correct understanding and background of this Verse).  
 
-Surah Luqman (31:2-5)
+* __Surah Luqman (31:2-5)__:
 
 These are Verses of the Wise Book (the Quran). (31:2) A guidance and mercy for the doers of good. (31:3) Those who establish regular Prayer, and give regular Charity, and have (in their hearts) the assurance/faith of the Hereafter. (31:4) These are on (true) guidance from their Lord: and these are the ones who are successful. (31:5)  
 
-Surah Az Zumar (39:61)
-
+* __Surah Az Zumar (39:61)__:
 
 And Allah will deliver those who feared Him (the pious, righteous, virtuous) to their places of success (Paradise). Evil shall touch them not, nor shall they grieve.  
 
-Surah Ghafer/Momin (40:9)
+* __Surah Ghafer/Momin (40:9)__:
 
 And protect them from the evil consequences (of their deeds). And he/she whom You protect from evil consequences on that Day ( Day of Judgement) – You will have given him/her mercy. And that is the supreme success. (These are the invocations for believers made by the Angels bearing the Throne of Allah).  
 
-Surah Ad Dukhan (44:51-57)
+* __Surah Ad Dukhan (44:51-57)__:
 
 Indeed, the righteous will be in a place of Security (Paradise); (44:51) Among Gardens and Springs; (44:52) Dressed in fine silk and in rich brocade, they will face each other; (44:53) So (it will be), and We shall marry them with companions pure, most beautiful of eye. (44:54) They will be offered all kinds of fruits, in peace and security. (44:55) They will not taste death therein except the first death (of this world which they have already been through), and He will have protected them from the punishment of Hellfire. (44:56) As a Bounty from your Lord! That will be the supreme success! (44:57)  
 
-Surah Al Jathiya (45:30)
+* __Surah Al Jathiya (45:30)__:
 
 Then, as for those who believed and did righteous good deeds, their Lord will admit them to His Mercy. That will be the evident success.  
 
-Surah Al Muminoon (23:1-11)
+* __Surah Al Muminoon (23:1-11)__:
 
 Successful indeed are the believers. (23:1) Those who offer their prayers with all solemnity and full submissiveness. (23:2) And those who turn away from all that is frivolous (dirty, false, evil, vain talk, falsehood, and all that Allah has forbidden). (23:3) Who are intent on inner purity / who are active in deeds of charity (pay Zakat) (both meanings are intended, purification of the soul as well as wealth). (23:4) And those who guard their chastity (i.e. private parts, from illegal sexual acts) (23:5) (not giving way to their desires) with any but their spouses – that is, those whom they rightfully possess (through wedlock): for then, behold, they are free of all blame, (23:6) But whoever seeks to go beyond that, these are they that exceed the limits (are transgressors/aggressors) (23:7) Those who faithfully observe their trusts and their covenants; (23:8) And those who strictly guard their prayers (i.e. they persistently offer their prayers at their appointed times). (23:9) These are indeed the inheritors. (23:10) Who shall inherit the Firdaus (the highest part of Paradise). They shall dwell therein forever. (23:11)  
 
-Surah Al Muminoon (23:102)
-
+* __Surah Al Muminoon (23:102)__:
 
 And those whose scales (of good deeds) are heavy – it is they who are the successful.  
 
-Surah Al Muminoon (23:109-111)
+* __Surah Al Muminoon (23:109-111)__:
 
 Indeed ! There was a party of My slaves, who used to say: “Our Lord! We believe, so forgive us, and have mercy on us, for You are the Best of all who show mercy!” (23:109) But you took them in mockery to the point that they made you forget My remembrance, and you used to laugh at them. (23:110) Indeed, I have rewarded them this Day for their patient endurance – they are indeed the ones that are successful. (23:111)  
 
-Surah An Naba (78:31-36)  
+* __Surah An Naba (78:31-36)__:
 
 Indeed, for the righteous, there will be a success (Paradise); (78:31) They will have gardens and vineyards, (78:32) and beautiful / handsome companions / spouses well-matched, (78:33) and a continuously filled cup (of happiness/ pure vine) overflowing. (78:34) They shall not hear therein any vain words nor lying. (People of Paradise will remain secure against idle, false and indecent talk, gossiping, lying, any use of abusive language, slandering; calumnies and false accusations which are so common in the world.) (78:35) Recompense from thy Lord, a gift, (amply) sufficient. (i.e. not merely in accordance with their good deeds but far in excess of them, in accordance with Allah’s unlimited bounty.) (78:36)  
 
-Surah Ar Rum (30:38)
+* __Surah Ar Rum (30:38)__:
 
 So give the relative his right, as well as the needy and the traveller. That is best for those who desire the countenance of Allah, and it is they who will be the successful.  
 

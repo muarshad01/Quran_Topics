@@ -1,7 +1,9 @@
 * https://www.youtube.com/shorts/7kjL0OwKS0s
 * https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi
 
-*  __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ILM-KA-RANG juda hoo-jata-hai.__
+*  Joo bhi Allah say miltay-hayn __kHALOOS-SAY-MOHABBAT__...unn-kay __ILM-KA-RANG__ juda hoo-jata-hai.
+* Ilm-e-Ilahi in Alfaaz in Quran
+* Ilm-e-Ilahi in Noor is Muhammad PBUH
 
 ***
 

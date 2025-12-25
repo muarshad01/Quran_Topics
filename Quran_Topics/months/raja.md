@@ -18,34 +18,20 @@
 ***
 
 #### [Rewards of Rajab Fasting! | رجب کے روزوں کی فضیلت | SSA Shah](https://www.youtube.com/watch?v=RhAdemUONeM)
-* 15 Fasts
+* 15 (7+8) Fasts
 * 1 Fast: 30 years of Fasting reward
 * 1 Fast: One door of Hell is closed. Since [Hell has 7 doors](https://quran.com/15/43-44), If you keep 7 fasts ALL seven doors are closed.
 * 1 Fast: Open a door of Jannah. Keep 8 fasts...opens ALL 8 doors of Jannah.
 
-🌿 The 8 Gates of Jannah (According to Authentic Hadith)
 The Prophet ﷺ informed us that Jannah has eight gates, each for a special group of believers.
-1️⃣ Baab As-Salaah (Prayer Gate)
-For those who were punctual and devoted in their five daily Salah.
-2️⃣ Baab Al-Jihad
-For those who strove sincerely in the path of Allah.
-3️⃣ Baab As-Sadaqah
-For the generous believers who gave charity often and secretly.
-4️⃣ Baab Ar-Rayyān
-For those who used to fast regularly, especially fasting in Ramadan.
-5️⃣ Baab Al-Hajj
-For those who completed Hajj sincerely for Allah.
-6️⃣ Baab Al-Kaazimeen al-Ghaiz
-For those who controlled their anger and forgave others.
-7️⃣ Baab Al-Ayman
-A special gate for the righteous who will enter without reckoning.
-8️⃣ Baab Az-Zikr
-For those who remembered Allah frequently.
----
-📖 Authentic Reference
-The Prophet Muhammad ﷺ said:
-“Jannah has eight gates…”
-— (Sahih al-Bukhari & Sahih Muslim)
+1. Baab As-Salaah (Prayer Gate)
+2. Baab Al-Jihad
+3. Baab As-Sadaqah
+4. Baab Ar-Rayyān
+5. Baab Al-Hajj
+6. Baab Al-Kaazimeen al-Ghaiz
+7. Baab Al-Ayman
+8. Baab Az-Zikr
 
 ***
 

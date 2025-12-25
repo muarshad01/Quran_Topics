@@ -118,7 +118,7 @@
 
 #### Imam Jafar al-Sadiq
 * Four-levels of understanding-of-Quran:
-1. Nas
+1. Naas
 2. Muslim
 3. Momim
 4. Mutaqqi

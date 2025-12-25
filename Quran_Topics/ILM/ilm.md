@@ -1,15 +1,18 @@
 #### [Javed Ghamidi’s Qualification](https://www.youtube.com/shorts/7kjL0OwKS0s)
 * [Amin Ahsan Islahi](https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi)
+
+***
+
 *  Joo bhi Allah say miltay-hayn __kHALOOS-SAY-MOHABBAT-SAY__...unn-kay __ILM-KA-RANG__ juda hoo-jata-hai.
 * Ilm-e-Ilahi in Alfaaz in Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
+* Rabb say Qareeb-say-Qareeb tar hona-hai
 
 ***
 
 * __Surah Al-Baqarah 2/31 (Adam AS)__: [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا](https://quran.com/2/30-34)
 * __Surah Az-Zumar 39/9__: [قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ](https://quran.com/39/9)
 * __Surah Shu'araa (The Poets) 26/83__: [رَبِّ هَبْ لِى حُكْمًۭا وَأَلْحِقْنِى بِٱلصَّـٰلِحِينَ](https://quran.com/26/83)
-* Rabb say qareeb-say-qareeb tar hona-hai
 * __Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai__
 * __Surah Al-Furqan 25/63-66 (Walk Humbly ...Salaam to JAHIL)__ : [وَعِبَادُ ٱلرَّحْمَـٰنِ ٱلَّذِينَ يَمْشُونَ عَلَى ٱلْأَرْضِ هَوْنًۭا وَإِذَا خَاطَبَهُمُ ٱلْجَـٰهِلُونَ قَالُوا۟ سَلَـٰمًۭا](https://quran.com/25/63-66)
 * __Surah 35/28 ( إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)

@@ -25,7 +25,7 @@ Here's a more detailed explanation:
  
 ### [Qurb-e-Ilahi | SSA Shah](https://www.youtube.com/shorts/TfzG9kI18FQ)
 * Rabb-say-Rabb koo maang legiay.
-* Woh loag, ginhayn __QURAQB-e-ILAHI__ ka maza-laag-gaya, woh JANNAT koh bhi thukra-daytay-hayn.
+* __Woh loag, ginhayn QURAQB-e-ILAHI ka maza-laag-gaya, woh JANNAT koh bhi thukra-daytay-hayn.__
 
 *** 
 

@@ -38,7 +38,7 @@
 * __Surah Al-Isra 17/59__: []()
 * __Surah Al-Hajj 22/42__: []()
 * __Surah Al-Furqan 25/38__: []()
-* __Surah Ash-Shu'ara 26141__: []()
+* __Surah Ash-Shu'ara 26/141__: []()
 
 * __Surah An-Naml 27/45__: []()
 * __Surah Al-Ankabut 29/38__: []()
@@ -46,19 +46,19 @@
 * __Surah Sad 38/13__: []()
 
 * __Surah Ghafir 40/31__: []()
+
 * __Surah Fussilat 41/13__: []()
 * __Surah Fussilat 41/17__: []()
 
 * __Surah Qaf 50/12__: []()
 * __Surah Adh-Dhariyat 51/43__: []()
-
 * __Surah An-Najm 53/51__: []()
 * __Surah Al-Qamar 54/23__: []()
 
 ***
 
-* __Surah Al-Haqqah 4__: []()
-* __Surah Al-Haqqah 5__: []()
+* __Surah Al-Haqqah 69/4__: []()
+* __Surah Al-Haqqah 69/5__: []()
 
 ***
 
@@ -116,44 +116,44 @@
 
 * __Surah 89/6__: []()
 
-* __Surah 7/65__: []()
-* __Surah 7/66__: []()
-* __Surah 7/67-69__: []()
-* __Surah 7/70__: []()
-* __Surah 7/71__: []()
-* __Surah 7/72__: []()
+***
 
-* __Surah 11/50-52__: []()
+* __Surah Al-A'raf 7/65__: []()
+* __Surah Al-A'raf 7/66__: []()
+* __Surah Al-A'raf 7/67-69__: []()
+* __Surah Al-A'raf 7/70__: []()
+* __Surah Al-A'raf 7/71__: []()
+* __Surah Al-A'raf 7/72__: []()
 
-* __Surah 11/53-57__: []()
+***
 
-* __Surah 11/58__: []()
+* __Surah Hud 11/50-52__: []()
+* __Surah Hud 11/53-57__: []()
+* __Surah Hud 11/58__: []()
+* __Surah Hud 11/59__: []()
+* __Surah Hud 11/60__: []()
+* __Surah Hud 11/89__: []()
 
-* __Surah 11/59__: []()
+***
 
-* __Surah 11/60__: []()
+* __Surah Al-Furqan 25/38__: []()
 
-* __Surah 11/89__: []()
+* __Surah Ash-Shu'ara 26/123-140__: []()
 
-* __Surah 25/38__: []()
+* __Surah Al-Ankabut 29/38__: []()
 
-* __Surah 26/123-140__: []()
-
-* __Surah 29/38__: []()
-
-* __Surah 41/13__: []()
-
-* __Surah 41/15__: []()
+* __Surah Fussilat 41/13__: []()
+* __Surah Fussilat 41/15__: []()
 
 * __Surah 46/21-26__: []()
 
-* __Surah 51/41-42__: []()
+* __Surah Adh-Dhariyat 51/41-42__: []()
 
-* __Surah 54/19-20__: []()
+* __Surah Al-Qamar 54/19-20__: []()
 
-* __Surah 69/4__: []()
-* __Surah 69/6__: []()
+* __Surah Al-Haqqah 69/4__: []()
+* __Surah Al-Haqqah 69/6__: []()
 
-* __Surah 89/6__: []()
+* __Surah Al-Fajr 89/6__: []()
 
 ***

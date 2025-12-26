@@ -1,3 +1,7 @@
+#### [All Quranic Verses about Jesus](https://www.getquranic.com/all-quranic-verses-about-jesus/)
+
+***
+
 * __Surah Ale-Imran 3/59 (إِنَّ مَثَلَ عِيسَىٰ عِندَ ٱللَّهِ كَمَثَلِ ءَادَمَ)__: [إِنَّ مَثَلَ عِيسَىٰ عِندَ ٱللَّهِ كَمَثَلِ ءَادَمَ ۖ خَلَقَهُۥ مِن تُرَابٍۢ ثُمَّ قَالَ لَهُۥ كُن فَيَكُونُ](https://quran.com/3/59)
   * Both didn't have father
 

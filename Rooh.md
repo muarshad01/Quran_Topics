@@ -3,3 +3,7 @@
 * Rooh is like Horse Rider. Rooh is Noor! Rooh ko fanah-nahi-hai.
 
 ***
+
+#### [Insaan Ki Rooh Main Allah Ka Noor Kab Aata Hai? | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=IvkzWUR23xg)
+
+***

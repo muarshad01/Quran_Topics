@@ -1,5 +1,60 @@
 #### [All Quranic Verses about Jesus](https://www.getquranic.com/all-quranic-verses-about-jesus/)
 
+* __Surah Al-Baqarah 2/87__: []()
+* __Surah Al-Baqarah 2/136__: []()
+* __Surah Al-Baqarah 2/253__: []()
+
+***
+
+* __Surah Ali-Imran 3/45__: []()
+* __Surah Ali-Imran 3/52__: []()
+* __Surah Ali-Imran 3/59__: []()
+* __Surah Ali-Imran 3/84__: []()
+
+***
+
+* __Surah An-Nisa 4/157__: []()
+* __Surah An-Nisa 4/159__: []()
+* __Surah An-Nisa 4/163__: []()
+* __Surah An-Nisa 4/171__: []()
+* __Surah An-Nisa 4/172__: []()
+
+***
+
+* __Surah Al-Ma’idah 5/17__: []()
+* __Surah Al-Ma’idah 5/46__: []()
+* __Surah Al-Ma’idah 5/72__: []()
+* __Surah Al-Ma’idah 5/75__: []()
+* __Surah Al-Ma’idah 5/78__: []()
+* __Surah Al-Ma’idah 5/110__: []()
+* __Surah Al-Ma’idah 5/112__: []()
+* __Surah Al-Ma’idah 5/114__: []()
+* __Surah Al-Ma’idah 5/116__: []()
+* __Surah Al-Ma’idah 5/116-117__: []()
+
+* __Surah Al-Anam 6/85__: []()
+* __Surah At-Tawbah 9/31__: []()
+
+* __Surah Maryam 19/30-34__: []()
+* __Surah Maryam 19/36__: []()
+
+* __Surah Al-Anbya 21/91__: []()
+
+* __Surah Al-Mu’minin 23/50__: []()
+
+* __Surah Al-Ahzab 33/7-8__: []()
+
+* __Surah Ash-Shuraa 42/13__: []()
+
+* __Surah Az-Zukhruf 43/57-59__: []()
+* __Surah Az-Zukhruf 43/61__: []()
+* __Surah Az-Zukhruf 43/63-64__: []()
+
+* __Surah Al-Hadid 57/27__: []()
+
+* __Surah As-Saf 61/6__: []()
+* __Surah As-Saf 61/14__: []()
+
 ***
 
 * __Surah Ale-Imran 3/59 (إِنَّ مَثَلَ عِيسَىٰ عِندَ ٱللَّهِ كَمَثَلِ ءَادَمَ)__: [إِنَّ مَثَلَ عِيسَىٰ عِندَ ٱللَّهِ كَمَثَلِ ءَادَمَ ۖ خَلَقَهُۥ مِن تُرَابٍۢ ثُمَّ قَالَ لَهُۥ كُن فَيَكُونُ](https://quran.com/3/59)

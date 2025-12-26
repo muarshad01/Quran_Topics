@@ -72,8 +72,6 @@
 
 * The word عاد mentioned 24 times in Quran in 23 verses but as a topic there are 58 instances of verses where it is discussed.
 
-* __Surah 7/65__: []()
-
 * __Surah 7/74__: []()
 
 * __Surah 9/70__: []()
@@ -103,18 +101,8 @@
 
 * __Surah 46/21__: []()
 
-* __Surah 50/13__: []()
 
-* __Surah 51/41__: []()
 
-* __Surah 53/50__: []()
-
-* __Surah 54/18__: []()
-
-* __Surah 69/4__: []()
-* __Surah 69/6__: []()
-
-* __Surah 89/6__: []()
 
 ***
 
@@ -147,8 +135,14 @@
 
 * __Surah 46/21-26__: []()
 
+
+* __Surah 50/13__: []()
+
 * __Surah Adh-Dhariyat 51/41-42__: []()
 
+* __Surah 53/50__: []()
+
+* __Surah 54/18__: []()
 * __Surah Al-Qamar 54/19-20__: []()
 
 * __Surah Al-Haqqah 69/4__: []()

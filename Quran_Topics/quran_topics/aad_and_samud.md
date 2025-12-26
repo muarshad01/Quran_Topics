@@ -173,7 +173,7 @@
 
 ***
 
-#### [dsfسورہ الحجر میں قوم ثمود کےمکمل احوال رزق کی فراوانی سےعذاب الہی تک مفسرقرآن مفتی منیراخون](https://www.youtube.com/watch?v=FVDVAGwa9Rc)
+#### [Samud | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=FVDVAGwa9Rc)
 
 ***
 

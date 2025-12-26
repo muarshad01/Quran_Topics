@@ -101,6 +101,6 @@ And ˹on Judgment Day˺ Allah will say, “O Jesus, son of Mary! Remember My fav
 
 ***
 
-#### [Hazrat Maryam A.S ki walida ki dua – Aisi niyat jis ne tareekh badal di! | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=GOOzFjLhl3M)
+#### [Hazrat Maryam AS Mother Dua – Aisi Niyat Jis-ne Tareekh Badal-di! | Mufti MuneerAkhoon](https://www.youtube.com/watch?v=GOOzFjLhl3M)
 
 ***

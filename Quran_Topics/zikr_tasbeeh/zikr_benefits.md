@@ -63,15 +63,18 @@
 ***
 
 #### [Zikar Ky Zindgi-Pr-Asaraat | Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
+* 100% impact on life.
+* Study of Quran. Zikr of Allah SWT.
+* No matter of life is not solvable:
 1. Physical
 2. Psychological
 3. Economical
 4. Social
 5. Moral
-* Attitudes, Behavior, Temperament, Moral, Genes Change (Genetic Problems), All-issues
+* Attitudes, Behavior, Moral, Genes Change (Genetic Problems) and Repair, Temperament, All-issues
 * __Under Debt__: `Ya-Zuljalal Wal-Ikram`
 * ...
-* __Don't leave Zir ever...All problems will be solved!__
+* __Don't leave Zikr ever...ALL problems will be solved!__
 
 ***
 

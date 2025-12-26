@@ -32,25 +32,46 @@
 * __Surah Al-Ma’idah 5/116__: []()
 * __Surah Al-Ma’idah 5/116-117__: []()
 
+***
+
 * __Surah Al-Anam 6/85__: []()
+
+***
+
 * __Surah At-Tawbah 9/31__: []()
+
+***
 
 * __Surah Maryam 19/30-34__: []()
 * __Surah Maryam 19/36__: []()
 
+***
+
 * __Surah Al-Anbya 21/91__: []()
+
+***
 
 * __Surah Al-Mu’minin 23/50__: []()
 
+***
+
 * __Surah Al-Ahzab 33/7-8__: []()
 
+***
+
 * __Surah Ash-Shuraa 42/13__: []()
+
+***
 
 * __Surah Az-Zukhruf 43/57-59__: []()
 * __Surah Az-Zukhruf 43/61__: []()
 * __Surah Az-Zukhruf 43/63-64__: []()
 
+***
+
 * __Surah Al-Hadid 57/27__: []()
+
+***
 
 * __Surah As-Saf 61/6__: []()
 * __Surah As-Saf 61/14__: []()

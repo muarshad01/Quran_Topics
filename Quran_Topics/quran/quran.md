@@ -1,5 +1,6 @@
 #### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 * Malik ibn Anas (711–795), also known as Imam Malik, was a Muslim scholar, jurist, muhaddith.
+
 ***
 
 * __Surah Al-Isra 17/9 (يَهْدِى لِلَّتِى هِىَ أَقْوَمُ...أَجْرًۭا كَبِيرًۭا)__: [إِنَّ هَـٰذَا ٱلْقُرْءَانَ يَهْدِى لِلَّتِى هِىَ أَقْوَمُ وَيُبَشِّرُ ٱلْمُؤْمِنِينَ ٱلَّذِينَ يَعْمَلُونَ ٱلصَّـٰلِحَـٰتِ أَنَّ لَهُمْ أَجْرًۭا كَبِيرًۭا](https://quran.com/17/9)

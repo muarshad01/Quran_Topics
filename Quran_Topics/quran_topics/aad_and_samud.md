@@ -14,33 +14,57 @@
 
 ***
 
-#### [Qur'an verses on thamud](https://myislam.org/quran-verses/people-of-thamud/)
-* __Surah Al-A'raf 73__: []()
-* __Surah At-Taubah 70__: []()
-* __Surah Hud 61__: []()
-* __Surah Hud 68__: []()
-* __Surah Hud 69__: []()
-* __Surah Hud 95__: []()
-* __Surah Ibrahim 9__: []()
-* __Surah Al-Isra 59__: []()
-* __Surah Al-Hajj 42__: []()
-* __Surah Al-Furqan 38__: []()
-* __Surah Ash-Shu'ara 141__: []()
-* __Surah An-Naml 45__: []()
-* __Surah Al-Ankabut 38__: []()
-* __Surah Sad 13__: []()
-* __Surah Ghafir 31__: []()
-* __Surah Fussilat 13__: []()
-* __Surah Fussilat 17__: []()
-* __Surah Qaf 12__: []()
-* __Surah Adh-Dhariyat 43__: []()
-* __Surah An-Najm 51__: []()
-* __Surah Al-Qamar 23__: []()
+#### [Qur'an verses on Thamud](https://myislam.org/quran-verses/people-of-thamud/)
+
+* __Surah Al-A'raf 7/73__: []()
+
+***
+
+* __Surah At-Taubah 9/70__: []()
+
+***
+
+* __Surah Hud 11/61__: []()
+* __Surah Hud 11/68__: []()
+* __Surah Hud 11/69__: []()
+* __Surah Hud 11/95__: []()
+
+*** 
+
+* __Surah Ibrahim 14/9__: []()
+
+***
+
+* __Surah Al-Isra 17/59__: []()
+* __Surah Al-Hajj 22/42__: []()
+* __Surah Al-Furqan 25/38__: []()
+* __Surah Ash-Shu'ara 26141__: []()
+
+* __Surah An-Naml 27/45__: []()
+* __Surah Al-Ankabut 29/38__: []()
+
+* __Surah Sad 38/13__: []()
+
+* __Surah Ghafir 40/31__: []()
+* __Surah Fussilat 41/13__: []()
+* __Surah Fussilat 41/17__: []()
+
+* __Surah Qaf 50/12__: []()
+* __Surah Adh-Dhariyat 51/43__: []()
+
+* __Surah An-Najm 53/51__: []()
+* __Surah Al-Qamar 54/23__: []()
+
+***
+
 * __Surah Al-Haqqah 4__: []()
 * __Surah Al-Haqqah 5__: []()
-* __Surah Al-Buruj 18__: []()
-* __Surah Al-Fajr 9__: []()
-* __Surah Ash-Shams 11__: []()
+
+***
+
+* __Surah Al-Buruj 85/18__: []()
+* __Surah Al-Fajr 89/9__: []()
+* __Surah Ash-Shams 91/11__: []()
 
 ***
 

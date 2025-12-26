@@ -10,14 +10,12 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 ```
 
 ```
-* Arabic: اَللَّهُمَّ كَفَانِي عِزّاً أَنْ تَكُونَ لِي رَبّاً وَكَفَانِي فَخْراً أَنْ أَكُونَ لَكَ عَبْداً
-* Translation: "O Allah, it is sufficient for me as an honor that You are my Lord, and it is sufficient for me as a glory that I am Your servant (slave)." 
+Arabic: اَللَّهُمَّ كَفَانِي عِزّاً أَنْ تَكُونَ لِي رَبّاً وَكَفَانِي فَخْراً أَنْ أَكُونَ لَكَ عَبْداً
+Translation: "O Allah, it is sufficient for me as an honor that You are my Lord, and it is sufficient for me as a glory that I am Your servant (slave)." 
 ```
-
 ***
 
-#### Tumhara-Aur-Rabb Ka-Rishta Sirf-Shukar Ka-Hai
-* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا][We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quran.com/76/3)
+* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
 * __Surah Al-Insan 76/1-3__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا ١...إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍۢ نَّبْتَلِيهِ فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا ٢...إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا ٣](https://quran.com/76/1-3)
 
 ***

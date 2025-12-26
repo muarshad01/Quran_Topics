@@ -119,9 +119,9 @@
 ---
 05. Muhammad al-Baqir (https://www.youtube.com/shorts/Q0CGKBWWXHI)
 06. Jafar al-Sadiq (https://www.youtube.com/shorts/zYJCFrAXpYY)
-07. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4)
+07. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4) - 7th
 08. Ali al-Rida
-09. Muhammad al-Taqi (also known as al-Jawad)
+09. Muhammad al-Taqi (also known as al-Jawad) - 9th
 10. Ali al-Hadi (also known as al-Naqi)
 11. Hasan al-Askari
 12. Muhammad al-Mahdi (also known as al-Qaim) 

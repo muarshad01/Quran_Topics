@@ -222,9 +222,9 @@
 
 ***
 
-#### Different Quran Topics
+#### Miscalleneous
 
-| No  | Different Quran Topics | Last Updated |
+| No. | Miscalleneous | Last Updated |
 |---|---|---|
 |1. | [Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md)|12/06/2025|
 |2. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
@@ -233,44 +233,37 @@
 |5.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
 |6.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
 |7.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
-
-***
-
-#### Miscalleneous
-
-| No. | Miscalleneous | Last Updated |
-|---|---|---|
-|1. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) |12/06/2025|
-|2. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
-|3. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) |12/06/2025|
-|4. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)|12/06/2025|
-|5. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
-|6. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sadaqah_in_quran.md) |  12/06/2025|
-|6.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) ||
-|7. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow_in_quran.md) |  12/06/2025|
-|8. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
-|10. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
-|11. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|
-|12. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) |12/06/2025|
-|13. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/digits.md) |12/06/2025|
-|14. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Numbers.md) |12/06/2025|
-|15. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) |12/06/2025|
-|16. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) |12/06/2025|
-|17. | [Kashf](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/kashf.md) |12/06/2025|
-|17. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) |12/06/2025|
-|18.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
-|19.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|
-|20. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) |12/06/2025|
-|21. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) |12/06/2025|
-|22. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) |12/06/2025|
-|23. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
-|25. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
-|26. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
-|27. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|
-|28. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
-|29. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
-|30. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
-|31. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
-|33. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
+|8. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) |12/06/2025|
+|9. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
+|10. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) |12/06/2025|
+|11. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)|12/06/2025|
+|12. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
+|13. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sadaqah_in_quran.md) |  12/06/2025|
+|14.| [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) ||
+|15. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow_in_quran.md) |  12/06/2025|
+|16. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
+|17. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
+|18. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|
+|19. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) |12/06/2025|
+|20. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/digits.md) |12/06/2025|
+|21. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Numbers.md) |12/06/2025|
+|22. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) |12/06/2025|
+|23. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) |12/06/2025|
+|24. | [Kashf](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/kashf.md) |12/06/2025|
+|25. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) |12/06/2025|
+|26.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
+|27.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|
+|28. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) |12/06/2025|
+|29. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) |12/06/2025|
+|30. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) |12/06/2025|
+|31. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
+|32. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
+|33. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
+|34. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|
+|35. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
+|36. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
+|37. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
+|38. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
+|39. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
 
 ***

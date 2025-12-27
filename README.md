@@ -255,3 +255,12 @@
 |33. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
 
 ***
+
+| No. | Allah Creations | Last Updated |
+|---|---|---|
+|1. | [Clouds](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/clouds.md) |12/27/2025|
+|2. | [Mountains](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/mountains.md) |12/27/2025|
+|3. | [Fish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fish.md) |12/27/2025|
+|4. | [Plants](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/plants.md) |12/27/2025|
+|5. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) |12/27/2025|
+|5. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/start.md) |12/27/2025|

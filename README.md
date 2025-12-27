@@ -248,7 +248,7 @@
 
 ***
 
-| No. | Non Quranic Topics | Last Updated |
+| No. | Other Topics | Last Updated |
 |---|---|---|
 |1. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
 |2. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|

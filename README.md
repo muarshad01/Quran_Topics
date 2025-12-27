@@ -103,7 +103,7 @@
 | 3. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sabeel.md) | 12/06/2025 |
 | 1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
 | 4. | [Imaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
-| 5. | [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) ||
+| 5. | [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) |12/27/2025|
 | 6. | [Haqq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/haqq.md) |12/27/2025|
 
 ***

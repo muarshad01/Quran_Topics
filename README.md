@@ -263,4 +263,4 @@
 |3. | [Fish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fish.md) |12/27/2025|
 |4. | [Plants](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/plants.md) |12/27/2025|
 |5. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) |12/27/2025|
-|5. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/start.md) |12/27/2025|
+|5. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/stars.md) |12/27/2025|

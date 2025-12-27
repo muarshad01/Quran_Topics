@@ -158,6 +158,10 @@
 | 8. | [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
 | 9. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
 | 10. | [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
+| 11. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
+| 12. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
+|13. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) ||
+|14. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
 
 ***
 
@@ -226,25 +230,22 @@
 
 | No. | Miscalleneous | Last Updated |
 |---|---|---|
+|1. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)|12/06/2025|
+|2. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) |12/06/2025|
+|3. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) |12/06/2025|
+|4. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
+|5. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
+|6. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
+|7. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
+|---|---|---|
 |1. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sadaqah_in_quran.md) |  12/06/2025|
-|2. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) ||
 |3. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow_in_quran.md) | 12/06/2025|
-|4. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
 |5. | [Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md)|12/06/2025|
 |6. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
 |7. | [Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)|12/06/2025|
 |8. | [Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
-|9. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)|12/06/2025|
-|10. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
-|11. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) |12/06/2025|
-|12. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
-|13. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) |12/06/2025|
-|14. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
 |15.| [Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
 |16.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
-|17. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
-|18. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
-|19. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
 
 ***
 

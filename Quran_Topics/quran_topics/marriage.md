@@ -1,4 +1,21 @@
 #### [Spiritual process of ending the bonds of girls' relationships | Abdullah Bhatti](https://www.youtube.com/watch?v=AVZRF1B2B6s)
+* __Best Sadaqah__: If you've a divorced daughter / sister...taking care of her.
+1. Ya-Latifu Ya-Haleemu - 500 time
+2. Ya-Azizu Ya Salamu Ya Allah - 500 time
+3. Ya-Raqeebu Ya Hafeezu - 500 time
+4. Surah Taha Once
+
+***
+
+1. Ya Jabbaru Ya Qaharu - 500 time
+2. Ya Raqeebu Ya Hafeezu - 500 time
+3. Ya Latifu Ya Haleemu - 500 time
+* Surah Tariq - 101 time
+* Surah Shams - 41 time
+* __Surah Yunus 10/(81,84,85,86)__: [](https://quran.com/10/84-85) - 11 time
+* Ya Muzzilu Ya Mumitu
+
+***
 
 ***
 

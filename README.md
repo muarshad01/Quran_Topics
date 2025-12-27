@@ -226,6 +226,13 @@
 |11. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/stars.md) |12/27/2025|
 
 ***
+| No. | Rooh | Last Updated |
+|---|---|---|
+|1. | [Rooh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rooh.md.md) |12/27/2025|
+|2. | [Rohaniat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohaniat.md) |12/27/2025|
+|3. | [Rohani Lataif](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohani_lataif.md) |12/27/2025|
+
+***
 
 #### Miscalleneous
 
@@ -255,7 +262,6 @@
 |21. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) |12/06/2025|
 |22. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) |12/06/2025|
 |23. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
-|24. | [Rohani Lataif](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohani_lataif.md) |12/06/2025|
 |25. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
 |26. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
 |27. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|

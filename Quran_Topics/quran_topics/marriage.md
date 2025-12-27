@@ -23,6 +23,25 @@
 
 ***
 
+* Surah Al-Baqarah CD/Casette daily OR ayats 285-286
+* __Surah Al-Qalam 68/51__: [وَإِن يَكَادُ ٱلَّذِينَ كَفَرُوا۟ لَيُزْلِقُونَكَ بِأَبْصَـٰرِهِمْ لَمَّا سَمِعُوا۟ ٱلذِّكْرَ وَيَقُولُونَ إِنَّهُۥ لَمَجْنُونٌۭ](https://quran.com/al-qalam) - 11 time
+
+***
+
+* After Isha quran/com/1/1 -- 1100 times
+* Surah Yaseen - 1 time
+* __7 Mubeens - repeat every Mubeen 11 time__
+* Ya Latifu Ya Haleemu - 500 time
+* Ya Allah Ya Wakeelu Ya Naseeru - 500 time
+* Ya Raqeebu Ya Hafeezu - 500 time
+
+***
+
+* Ya Razzaqu Ya Basitu - 500 time
+* Ya Ghaniu Ya Mughniu - 500 time
+* quran/com/1/1 -- 500 times
+* Surah Tahu
+
 ***
 
 #### Marriage

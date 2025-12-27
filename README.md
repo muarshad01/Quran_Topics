@@ -99,10 +99,12 @@
 
 | No.  | Hidayat Sirat Sabeel Imaan| Last Updated |
 |---|---|---|
-|1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
-|2. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sirat.md) | 12/06/2025 |
-|3. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sabeel.md) | 12/06/2025 |
-|4. | [Imaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
+| 1. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sirat.md) | 12/06/2025 |
+| 3. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sabeel.md) | 12/06/2025 |
+| 1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
+| 4. | [Imaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
+| 5. | [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) ||
+| 6. | [Haqq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/haqq.md) |12/27/2025|
 
 ***
 
@@ -251,15 +253,5 @@
 |30. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
 |31. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
 |33. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
-
-***
-
-#### TODO
-
-| No.  | TODO | Last Updated |
-|---|---|---|
-|1.| [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) ||
-|2.| [Haqq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/haqq.md) |12/27/2025|
-|3.| [Anfiqu](...) ||
 
 ***

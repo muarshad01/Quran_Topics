@@ -256,7 +256,7 @@
 
 ***
 
-| No. | Allah Creations | Last Updated |
+| No. | Allah SWT Creations | Last Updated |
 |---|---|---|
 |1. | [Clouds](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/clouds.md) |12/27/2025|
 |2. | [Mountains](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/mountains.md) |12/27/2025|

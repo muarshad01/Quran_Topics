@@ -211,6 +211,22 @@
 
 ***
 
+| No. | Allah SWT Creations | Last Updated |
+|---|---|---|
+|1. |[Creation in 6 days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/creation_6_days.md)|12/06/2025|
+|2. |[7 Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)|12/06/2025|
+|3. | [Gates in Sky](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gates_in_sky.md)| 12/06/2025|
+|4. | [Jannat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)|12/06/2025|
+|5. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 12/06/2025 |
+|6. | [Clouds](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/clouds.md) |12/27/2025|
+|7. | [Mountains](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/mountains.md) |12/27/2025|
+|8. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) |12/27/2025|
+|9. | [Fish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fish.md) |12/27/2025|
+|10. | [Plants](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/plants.md) |12/27/2025|
+|11. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/stars.md) |12/27/2025|
+
+***
+
 #### Miscalleneous
 
 | No. | Miscalleneous | Last Updated |
@@ -250,17 +266,3 @@
 |33. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
 
 ***
-
-| No. | Allah SWT Creations | Last Updated |
-|---|---|---|
-|1. |[Creation in 6 days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/creation_6_days.md)|12/06/2025|
-|2. |[7 Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)|12/06/2025|
-|3. | [Gates in Sky](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gates_in_sky.md)| 12/06/2025|
-|4. | [Jannat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)|12/06/2025|
-|5. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 12/06/2025 |
-|6. | [Clouds](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/clouds.md) |12/27/2025|
-|7. | [Mountains](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/mountains.md) |12/27/2025|
-|8. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) |12/27/2025|
-|9. | [Fish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fish.md) |12/27/2025|
-|10. | [Plants](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/plants.md) |12/27/2025|
-|11. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/stars.md) |12/27/2025|

@@ -144,36 +144,18 @@
 
 ***
 
-#### Different Quran Topics
-
-| No  | Different Quran Topics | Last Updated |
-|---|---|---|
-|6. | [Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md)|12/06/2025|
-|7. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
-|9. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
-|10. |[Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)|12/06/2025|
-|11. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/east_and_west.md) |12/06/2025|
-|13. | [Types of Clay (Teen, Turab, Salsal)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/teen_turab_salsal.md) | 12/06/2025| 
-|14. |[Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
-|18.| [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
-|19.| [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
-|22.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)|12/06/2025|
-|23.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
-|24.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
-|25.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
-|26.| [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
-
-***
-
 | No  | Different Quranic Terms | Last Updated |
 |---|---|---|
-| 1.| [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 12/06/2025|
+| 1. | [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 12/06/2025|
 | 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
 | 3. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) |12/06/2025|
 | 4. | [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul-albab.md)| 12/06/2025|
 | 5. | [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| 12/06/2025|
 | 5. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) |12/06/2025|
 | 6. | [Dabbat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) |12/27/2025|
+| 7. | [Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
+| 8. | [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
+| 9. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
 
 ***
 
@@ -236,6 +218,26 @@
 
 ***
 
+#### Different Quran Topics
+
+| No  | Different Quran Topics | Last Updated |
+|---|---|---|
+|1. | [Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md)|12/06/2025|
+|2. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
+|3. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
+|4. |[Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)|12/06/2025|
+|5. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/east_and_west.md) |12/06/2025|
+|6. | [Types of Clay (Teen, Turab, Salsal)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/teen_turab_salsal.md) | 12/06/2025| 
+|7. |[Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
+|8.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)|12/06/2025|
+|8.| [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
+|9.| [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
+|11.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
+|12.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
+|13.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
+|14.| [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
+
+***
 #### Miscalleneous
 
 | No. | Miscalleneous | Last Updated |

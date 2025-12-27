@@ -199,6 +199,7 @@
 
 | No. | Allah SWT Creations | Last Updated |
 |---|---|---|
+|0. |[Big Bang](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/big_bang.md.md)|12/27/2025|
 |1. |[Creation in 6 days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/creation_6_days.md)|12/06/2025|
 |2. |[7 Heavens and Earth](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)|12/06/2025|
 |3. | [Gates in Sky](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gates_in_sky.md)| 12/06/2025|

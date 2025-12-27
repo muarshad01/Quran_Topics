@@ -83,6 +83,8 @@
 |8. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) |12/6/2025|
 |9. | [Saints](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/saints.md); [Saint Ranks](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/saint_ranks.md); [Saint Levels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/levels.md); [Darwaish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/darwaish.md); [Faqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/faqeer-jahil-haqeer.md)|12/6/2025|
 |10. | [Woman](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/woman.md)|12/6/2025|
+|11. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md) | 12/06/2025 |
+|12. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.md) |12/06/2025|
 
 ***
 
@@ -148,7 +150,6 @@
 |---|---|---|
 |6. | [Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md)|12/06/2025|
 |7. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
-|8. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.md) |12/06/2025|
 |9. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 12/06/2025 |
 |10. |[Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)|12/06/2025|
 |11. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/east_and_west.md) |12/06/2025|
@@ -160,7 +161,7 @@
 |23.|[Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
 |24.|[Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
 |25.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
-|26. | [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
+|26.| [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
 
 ***
 
@@ -207,9 +208,8 @@
 |3. | [Satan makes you forget](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/sata_makes_you_forget.md) | 12/06/2025 |
 |4. | [Dajjal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/dajjal.md) | 12/06/2025 |
 |5. | [Illumanati](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/illumanati.md) | 12/06/2025 |
-|6. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md) | 12/06/2025 |
-|7. | [Occult](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/occult.md) | 12/06/2025 |
-|8. | [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/jadu_treatment.md) | 12/06/2025 |
+|6. | [Occult](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/occult.md) | 12/06/2025 |
+|7. | [Jadu Treatment](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/jadu_treatment.md) | 12/06/2025 |
 
 ***
 

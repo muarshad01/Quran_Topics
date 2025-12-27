@@ -169,7 +169,6 @@
 |25.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 12/06/2025|
 |26. | [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
 |29. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) |12/06/2025|
-|27. | [Aad and Samud](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/aad_and_samud.md) |12/06/2025|
 
 ***
 
@@ -179,6 +178,7 @@
 |2. | [Talut and Jaloot](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/talut_and_jalut.md) |12/27/2025|
 |3. | [Habeel and Kabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/habeel_kabeel.md) |12/27/2025|
 |4. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) |12/27/2025|
+|5. | [Aad and Samud](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/aad_and_samud.md) |12/27/2025|
 
 ***
 

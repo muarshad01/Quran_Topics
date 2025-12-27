@@ -245,6 +245,10 @@
 |17. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
 |18. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
 |19. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
+
+***
+
+| No. | Non Quranic Topics | Last Updated |
 |---|---|---|
 |1. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
 |2. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|

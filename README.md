@@ -175,10 +175,10 @@
 
 | No  | Stories | Last Updated |
 |---|---|---|
-|1. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) |12/27/2025|
+|1.| [Harut and Marut](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 12/27/2025|
 |2. | [Talut and Jaloot](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/talut_and_jalut.md) |12/27/2025|
 |3. | [Habeel and Kabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/habeel_kabeel.md) |12/27/2025|
-|4.| [Harut and Marut](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 12/27/2025|
+|4. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) |12/27/2025|
 
 ***
 

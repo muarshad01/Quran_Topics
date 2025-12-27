@@ -17,6 +17,12 @@
 
 ***
 
+* Surah Tariq - 101 time
+* Surah Shams - 41 time
+* Surah Muminoon - Last 4 ayats - 11 time
+
+***
+
 ***
 
 #### Marriage

@@ -108,7 +108,7 @@
 | 5. | [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) |12/27/2025|
 | 6. | [Haqq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/haqq.md) |12/27/2025|
 | 7. | [Deen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/deen_islam.md) |12/27/2025|
-| 8. | [Deen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/ummah.md) |12/27/2025|
+| 8. | [Ummah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/ummah.md) |12/27/2025|
 
 ***
 

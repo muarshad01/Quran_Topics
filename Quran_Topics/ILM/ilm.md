@@ -1,5 +1,5 @@
-*  Joo bhi Allah say miltay-hayn khaloos-say-Mohabbat-say...unn-kay Ilm-ka-Rang juda hoo-jata-hai.
-* Ilm-e-Ilahi in Alfaaz in Quran
+* Joo bhi Allah say miltay-hayn KHALOOS-say-MOHABBAT-say...unn-kay ILM-ka-RANG juda hoo-jata-hai.
+* Ilm-e-Ilahi in Alfaaz is Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
 * Rabb say Qareeb-say-Qareeb tar hona-hai
 * Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai 
@@ -16,12 +16,6 @@
 > * __Surah An-Nahl 16/78 (لَا تَعْلَمُونَ شَيْـًۭٔا)__: [وَٱللَّهُ أَخْرَجَكُم مِّنۢ بُطُونِ أُمَّهَـٰتِكُمْ لَا تَعْلَمُونَ شَيْـًۭٔا وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۙ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/16/78)
 > * __Surah An-Nahl 16/70 (إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا)__: [وَٱللَّهُ خَلَقَكُمْ ثُمَّ يَتَوَفَّىٰكُمْ ۚ وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا ۚ إِنَّ ٱللَّهَ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/16/70)
 > * __Surah AL-Isra 17/85 (Little Ilm: وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
-
-***
-
-#### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Professor ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
-* __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
-* __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
 ***
 
@@ -310,4 +304,11 @@
 #### [Javed Ghamidi’s Qualification](https://www.youtube.com/shorts/7kjL0OwKS0s)
 * [Amin Ahsan Islahi](https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi)
 
+***
+
+#### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Prof ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
+* __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
+* __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
+
+***
 ***

@@ -1,8 +1,3 @@
-#### [Javed Ghamidi’s Qualification](https://www.youtube.com/shorts/7kjL0OwKS0s)
-* [Amin Ahsan Islahi](https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi)
-
-***
-
 *  Joo bhi Allah say miltay-hayn khaloos-say-Mohabbat-say...unn-kay Ilm-ka-Rang juda hoo-jata-hai.
 * Ilm-e-Ilahi in Alfaaz in Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
@@ -309,3 +304,10 @@
 > * __Surah Ale-Imran 3/48__: [وَيُعَلِّمُهُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَٱلتَّوْرَىٰةَ وَٱلْإِنجِيلَ](https://quran.com/3/48)
 > * __Surah An-Nisa 4/113 (Muhammad PBUH: وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ)__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكَ وَرَحْمَتُهُۥ لَهَمَّت طَّآئِفَةٌۭ مِّنْهُمْ أَن يُضِلُّوكَ وَمَا يُضِلُّونَ إِلَّآ أَنفُسَهُمْ ۖ وَمَا يَضُرُّونَكَ مِن شَىْءٍۢ ۚ وَأَنزَلَ ٱللَّهُ عَلَيْكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا ١١٣](https://quran.com/4/113)
 > * __Surah Al-Anam 6/115 (وَتَمَّتْ كَلِمَتُ رَبِّكَ صِدْقًۭا وَعَدْلًۭا ۚ)__: [وَتَمَّتْ كَلِمَتُ رَبِّكَ صِدْقًۭا وَعَدْلًۭا ۚ لَّا مُبَدِّلَ لِكَلِمَـٰتِهِۦ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/6/115)
+
+***
+
+#### [Javed Ghamidi’s Qualification](https://www.youtube.com/shorts/7kjL0OwKS0s)
+* [Amin Ahsan Islahi](https://en.wikipedia.org/wiki/Amin_Ahsan_Islahi)
+
+***

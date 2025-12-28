@@ -283,5 +283,7 @@
 |26. | [Taqdeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/taqdeer.md) |12/27/2025|
 |27. | [Time Dilation](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/time-dilation.md) |12/27/2025|
 |28. | [Ishq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Ishq.md) |12/27/2025|
-
+|29. | [Job](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/job.md) |12/27/2025|
+|30. | [Eid ul Adha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/eid-ul-adha.md) |12/27/2025|
+|31. | [Nazr-e-Baad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/nazr-e-baad.md) |12/27/2025|
 ***

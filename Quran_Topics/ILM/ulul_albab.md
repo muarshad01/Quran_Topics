@@ -1,4 +1,4 @@
-#### Ulul Albab (أُولُو الأَلْبَابِ) 
+#### Ulul-Albab (أُولُو الأَلْبَابِ) 
 1. "People of Understanding
 2. "People of Intellect
 3. "Those with Pure Minds"

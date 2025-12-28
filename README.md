@@ -288,4 +288,7 @@
 |29. | [Job](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/job.md) |12/27/2025|
 |30. | [Eid ul Adha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/eid-ul-adha.md) |12/27/2025|
 |31. | [Nazr-e-Baad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/nazr-e-baad.md) |12/27/2025|
+|32. | [Qiyamah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/qiyamah.md) |12/27/2025|
+|33. | [Abad, Ibadah, Bashar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/abad_ibadat_bashar.md) |12/27/2025|
+
 ***

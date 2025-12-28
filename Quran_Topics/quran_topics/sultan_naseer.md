@@ -1,9 +1,9 @@
-#### [Quran Se Nikal Saktay Ho Iss Ayat Ko Shan-e-Rasool SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TPz-m9UG6WM)
+#### [Quran Se Nikal Saktay Ho Iss Ayat Ko | Shan-e-Rasool SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TPz-m9UG6WM)
 * __Surah An-Nahl 16/89__: [وَيَوْمَ نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
 
 ***
 
-#### [Sultan-e-Naseer | سُلطاناًنصِيرَاً (القرآن) یہ اللہ سےکب مانگی جاتی ہے؟ | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GS5pT5uiZWU)
+#### [Sultan-e-Naseer | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=GS5pT5uiZWU)
 * __Surah 17/80__: [وَقُل رَّبِّ أَدْخِلْنِى مُدْخَلَ صِدْقٍۢ وَأَخْرِجْنِى مُخْرَجَ صِدْقٍۢ وَٱجْعَل لِّى مِن لَّدُنكَ سُلْطَـٰنًۭا نَّصِيرًۭا](https://quran.com/17/80)
 
 ***

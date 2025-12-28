@@ -17,3 +17,7 @@
 * In favor of self against God
 
 ***
+
+#### [Occultism, Numerology and Quran, Apka burj konsa hai | Prof ARA](https://www.youtube.com/watch?v=bMaQvVRJMys)
+
+***

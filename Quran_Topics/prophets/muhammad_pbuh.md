@@ -550,3 +550,7 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 #### [Dosre Nabiyon or Muhammad Rasool Allah (SAW) Mein Farq? | Allama Talib Johri](https://www.youtube.com/watch?v=ZgstUdw9Sq8)
 
 ***
+
+#### [Quran Me Nabi Noor Bantnay Walay | Allama Talib Johari](https://www.youtube.com/watch?v=1K7kNpyPGwA)
+
+***

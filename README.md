@@ -121,11 +121,14 @@
 
 ***
 
+
 #### Ilm
 
 | No. | Ilm | Last Updated |
 |---|---|---|
-|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md); [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md)| 12/06/2025 |
+|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md); [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md), [Ulul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_ilm.md)
+, [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul-albab.md)
+| 12/06/2025 |
 |2. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 12/06/2025 |
 |3. | [Utul Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| 12/06/2025 |
 |4. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/jahil_foolish.md)  | 12/06/2025 |
@@ -151,7 +154,6 @@
 | 1. | [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 12/06/2025|
 | 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
 | 3. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) |12/06/2025|
-| 4. | [Ulul Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul-albab.md)| 12/06/2025|
 | 5. | [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| 12/06/2025|
 | 5. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) |12/06/2025|
 | 6. | [Dabbat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) |12/27/2025|

@@ -14,3 +14,14 @@
 * __Surah Al-Araf 7/188__: [قُل لَّآ أَمْلِكُ لِنَفْسِى نَفْعًۭا وَلَا ضَرًّا إِلَّا مَا شَآءَ ٱللَّهُ ۚ وَلَوْ كُنتُ أَعْلَمُ ٱلْغَيْبَ لَٱسْتَكْثَرْتُ مِنَ ٱلْخَيْرِ وَمَا مَسَّنِىَ ٱلسُّوٓءُ ۚ إِنْ أَنَا۠ إِلَّا نَذِيرٌۭ وَبَشِيرٌۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/7/188)
 
 ***
+
+#### Aloom-e-Batni (Rohani Aloom) 
+* Allah SWT has kept 4 with himself. Ilm-e-Ghyab is part of them:
+1. Alm-e-ghybb Alqaa
+2. Alm-e-ghyab Ilhami
+3. Alm-e-ghyab Imtani
+4. Alm-e-ghyab Ataii
+
+* Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
+
+***

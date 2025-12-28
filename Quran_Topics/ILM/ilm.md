@@ -128,7 +128,7 @@
 ## Irfan-ul-Haq
 
 #### [Kitaab-Ka-Ilm | Hikmat-ka-Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
-* __Surah Al-Anam 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ...وَهُوَ ٱلَّذِى يَتَوَفَّىٰكُم بِٱلَّيْلِ وَيَعْلَمُ مَا جَرَحْتُم بِٱلنَّهَارِ ثُمَّ يَبْعَثُكُمْ فِيهِ لِيُقْضَىٰٓ أَجَلٌۭ مُّسَمًّۭى ۖ ثُمَّ إِلَيْهِ مَرْجِعُكُمْ ثُمَّ يُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ](https://quran.com/6/59-60)
+* __Surah Al-Anam 6/59 ( وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ)__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ...وَهُوَ ٱلَّذِى يَتَوَفَّىٰكُم بِٱلَّيْلِ وَيَعْلَمُ مَا جَرَحْتُم بِٱلنَّهَارِ ثُمَّ يَبْعَثُكُمْ فِيهِ لِيُقْضَىٰٓ أَجَلٌۭ مُّسَمًّۭى ۖ ثُمَّ إِلَيْهِ مَرْجِعُكُمْ ثُمَّ يُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ](https://quran.com/6/59-60)
 * __Surah Al-Jumuah 62/2__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/62/2)
 * __Surah Al-Ala 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quran.com/87/6)
 
@@ -136,7 +136,7 @@
 
 #### [Naseeb-aur Ataa mayn Faraq | Irfan-ul-Haq](https://www.youtube.com/shorts/MTrJr-N5_Pg)
 * Naseeb bhi Ataa hai
-* Saying is self-made...is saying KUFR.
+* Saying I'm self-made...is saying KUFR.
 * ATAA-uss-par-hooti-hay, joo IJAZ-kay-rastay-koo ikhtiyaar-karta-hai
 
 ***
@@ -153,9 +153,9 @@
 ## Prof ARA
 
 #### [Knowledge-of-Unseen, Gayb-ka-Ilm | Prof ARA](https://www.youtube.com/watch?v=vedcTB1FQt0)
-* __Surah 7/188__: [قُل لَّآ أَمْلِكُ لِنَفْسِى نَفْعًۭا وَلَا ضَرًّا إِلَّا مَا شَآءَ ٱللَّهُ ۚ وَلَوْ كُنتُ أَعْلَمُ ٱلْغَيْبَ لَٱسْتَكْثَرْتُ مِنَ ٱلْخَيْرِ وَمَا مَسَّنِىَ ٱلسُّوٓءُ ۚ إِنْ أَنَا۠ إِلَّا نَذِيرٌۭ وَبَشِيرٌۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/7/188)
+* __Surah Al-Araf 7/188__: [قُل لَّآ أَمْلِكُ لِنَفْسِى نَفْعًۭا وَلَا ضَرًّا إِلَّا مَا شَآءَ ٱللَّهُ ۚ وَلَوْ كُنتُ أَعْلَمُ ٱلْغَيْبَ لَٱسْتَكْثَرْتُ مِنَ ٱلْخَيْرِ وَمَا مَسَّنِىَ ٱلسُّوٓءُ ۚ إِنْ أَنَا۠ إِلَّا نَذِيرٌۭ وَبَشِيرٌۭ لِّقَوْمٍۢ يُؤْمِنُونَ](https://quran.com/7/188)
 * Prophet Muhammad SAW know the name of His last Ummati too.
-* 10-Horse -riders, who will go to talk to Dajjal, I know them...
+* 10-Horse-riders, who will go to talk to Dajjal, I know them...
 
 ***
 
@@ -168,7 +168,7 @@
 
 ***
 
-## Israr Ahmed
+## Dr Israr Ahmed
 
 #### [Fikr, Tension Aur Gham Se Nijat | Peace of Heart in Islam | Dr Israr Ahmed](https://www.youtube.com/watch?v=DS9kWNcmkD4)
 * Five Question:
@@ -176,7 +176,7 @@
 2. Especially your YOUNG age
 3. Where did you EARN
 4. Where did you SPEND
-5. How much did you ACTED-UPON-the-ILM that you acquired
+5. How much did you __ACTED-UPON-the-ILM__ that you acquired
 
 ***
 

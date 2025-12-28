@@ -8,7 +8,7 @@
 
 ***
 
-#### [The explanation of Sultan-e-Naseer | Prof. ARA](https://www.youtube.com/watch?v=pTraj0tBun8)
+#### [The explanation of Sultan-e-Naseer | Prof ARA](https://www.youtube.com/watch?v=pTraj0tBun8)
 * Govt ki Nokri ...
 * Allah SWT ki Job ... a good pay master.
 * Letter-of-appointment

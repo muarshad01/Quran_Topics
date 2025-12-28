@@ -126,9 +126,13 @@
 
 | No. | Ilm | Last Updated |
 |---|---|---|
-|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md), [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md), [Ulul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_ilm.md), [Ulul-Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_albab.md), [Utul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)| 12/06/2025 |
-|2. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 12/06/2025 |
-|3. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/jahil_foolish.md)  | 12/06/2025 |
+|1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md) |01/01/2026|
+|2. | [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md) |01/01/2026|
+|3. | [Ulul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_ilm.md) |01/01/2026| 
+|4. | [Ulul-Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_albab.md)|01/01/2026|
+|5. | [Utul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)|01/01/2026|
+|6. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)|01/01/2026|
+|7. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/jahil_foolish.md)|01/01/2026|
 
 ***
 

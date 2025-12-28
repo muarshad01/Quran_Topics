@@ -60,6 +60,7 @@
 ***
 
 * __Surah Qaf 50/12__: [كَذَّبَتْ قَبْلَهُمْ قَوْمُ نُوحٍۢ وَأَصْحَـٰبُ ٱلرَّسِّ وَثَمُودُ](https://quran.com/50/12)
+  * __Ar-Rass__ means “well” or “water-pit”. This refers to a pagan people, along with Midian, to whom Allah sent Prophet Shu’aib (ﷺ).
 
 *** 
 

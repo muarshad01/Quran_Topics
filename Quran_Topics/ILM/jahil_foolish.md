@@ -1,29 +1,30 @@
-## Ignorant, Foolish
+#### Ignorant, Foolish
 
-*  __Surah Al-Baqarah 2/67__: [I seek refuge in Allah from acting foolishly!](https://quran.com/2/67)
-
-***
-
-* __Surah Al-Anam 6/65__: [Whoever among you commits evil ignorantly ˹or recklessly˺ then repents afterwards and mends their ways, then Allah is truly All-Forgiving, Most Merciful.”](https://quran.com/6/54)
+*  __Surah Al-Baqarah 2/67 (قَالَ أَعُوذُ بِٱللَّهِ أَنْ أَكُونَ مِنَ ٱلْجَـٰهِلِي)__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦٓ إِنَّ ٱللَّهَ يَأْمُرُكُمْ أَن تَذْبَحُوا۟ بَقَرَةًۭ ۖ قَالُوٓا۟ أَتَتَّخِذُنَا هُزُوًۭا ۖ قَالَ أَعُوذُ بِٱللَّهِ أَنْ أَكُونَ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/2/67)
 
 ***
 
-* __Surah Hud 11/29__: [But I can see that you are a people acting ignorantly.](quran.com/11/29)
-* __Surah Nuh 11/46__: [I warn you so you do not fall into ignorance.”](quran.com/11/46)
+* __Surah Al-Anam 6/65 (مَنْ عَمِلَ مِنكُمْ سُوٓءًۢا بِجَهَـٰلَةٍۢ ثُمَّ تَابَ مِنۢ بَعْدِهِۦ وَأَصْلَحَ فَأَنَّهُۥ غَفُورٌۭ رَّحِيمٌۭ)__: [Whoever among you commits evil ignorantly ˹or recklessly˺ then repents afterwards and mends their ways, then Allah is truly All-Forgiving, Most Merciful.”](https://quran.com/6/54)
 
 ***
 
-* __Surah Al-Ahza  33/72__: [Indeed, We offered the trust to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,](https://quran.com/33/72)
+* __Surah Hud 11/29 (وَلَـٰكِنِّىٓ أَرَىٰكُمْ قَوْمًۭا تَجْهَلُونَ)__: [But I can see that you are a people acting ignorantly.](quran.com/11/29)
+* __Surah Nuh 11/46 (إِنِّىٓ أَعِظُكَ أَن تَكُونَ مِنَ ٱلْجَـٰهِلِينَ)__: [I warn you so you do not fall into ignorance.”](quran.com/11/46)
+
+***
+
+* __Surah An-Nahl 16/70 (وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا ۚ)__: [وَٱللَّهُ خَلَقَكُمْ ثُمَّ يَتَوَفَّىٰكُمْ ۚ وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا ۚ إِنَّ ٱللَّهَ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/16/70)
+
+***
+
+* __Surah Al-Furqan 25/63-66 (وَإِذَا خَاطَبَهُمُ ٱلْجَـٰهِلُونَ قَالُوا۟ سَلَـٰمًۭا)__ : [وَعِبَادُ ٱلرَّحْمَـٰنِ ٱلَّذِينَ يَمْشُونَ عَلَى ٱلْأَرْضِ هَوْنًۭا وَإِذَا خَاطَبَهُمُ ٱلْجَـٰهِلُونَ قَالُوا۟ سَلَـٰمًۭا](https://quran.com/25/63-66)
+
+***
+
+* __Surah Al-Ahzab 33/72 (إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا)__: [إِنَّا عَرَضْنَا ٱلْأَمَانَةَ عَلَى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلْجِبَالِ فَأَبَيْنَ أَن يَحْمِلْنَهَا وَأَشْفَقْنَ مِنْهَا وَحَمَلَهَا ٱلْإِنسَـٰنُ ۖ إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا ٧٢](https://quran.com/33/72)
+
+***
+
+* __Surah Az-Zumar 39/9 (قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ إِنَّمَا يَتَذَكَّرُ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ)__: [أَمَّنْ هُوَ قَـٰنِتٌ ءَانَآءَ ٱلَّيْلِ سَاجِدًۭا وَقَآئِمًۭا يَحْذَرُ ٱلْـَٔاخِرَةَ وَيَرْجُوا۟ رَحْمَةَ رَبِّهِۦ ۗ قُلْ هَلْ يَسْتَوِى ٱلَّذِينَ يَعْلَمُونَ وَٱلَّذِينَ لَا يَعْلَمُونَ ۗ إِنَّمَا يَتَذَكَّرُ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/39/9)
 
 *** 
-
-### Are those who know equal to those who do not know?
-* __Surah Al-Baqarah 39/9__: [˹Are they better˺ or those who worship ˹their Lord˺ devoutly in the hours of the night, prostrating and standing, fearing the Hereafter and hoping for the mercy of their Lord? Say, ˹O Prophet,˺ “Are those who know equal to those who do not know?” None will be mindful ˹of this˺ except people of reason.](https://quran.com/39/9)
-
-* __Surah 25/63-66 (Abaad-Dur-Rehman...say...Salaam-to-Jahil)__ : [](https://quran.com/25/63-66)
-
-*** 
-
-* __Surah An-Nahl 16/70 (You LEAVE World as JAHIL)__: [وَٱللَّهُ خَلَقَكُمْ ثُمَّ يَتَوَفَّىٰكُمْ ۚ وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا ۚ إِنَّ ٱللَّهَ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/16/70)
-
-***

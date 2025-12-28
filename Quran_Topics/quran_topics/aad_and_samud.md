@@ -168,6 +168,9 @@
 
 ***
 
+#### [Story of Qaum-e-Aad | Why Allah Destroyed Them? | Abdul Salam Arif](https://www.youtube.com/watch?v=M3FcnttMgVU)
+
+***
 
 #### [AADD: Rise of Civilization | Abdul Salam Arif](https://www.youtube.com/watch?v=yChwALuup7s)
 
@@ -180,4 +183,3 @@
 #### [Samud | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=FVDVAGwa9Rc)
 
 ***
-

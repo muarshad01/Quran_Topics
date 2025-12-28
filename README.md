@@ -273,5 +273,14 @@
 |18. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|
 |19. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
 |20. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
+|---|---|---|
+|21. | [Family](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/family.md) |12/27/2025|
+|22. | [Exercise](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/exercise.md) |12/27/2025|
+|23. | [Death](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/death.md) |12/27/2025|
+|24. | [Anger](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/anger_ghusa.md) |12/27/2025|
+|25. | [Justice](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/adal_justice.md) |12/27/2025|
+|26. | [Taqdeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/taqdeer.md) |12/27/2025|
+|27. | [Time Dilation](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/time-dilation.md) |12/27/2025|
+|28. | [Ishq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Ishq.md) |12/27/2025|
 
 ***

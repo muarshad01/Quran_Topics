@@ -1,9 +1,21 @@
-* Joo bhi Allah say miltay-hayn KHALOOS-say-MOHABBAT-say...unn-kay ILM-ka-RANG juda hoo-jata-hai.
+* Joo bhi Allah say miltay-hayn __KHALOOS-aur-MOHABBAT__ say, unn-kay __ILM-ka-RANG__ juda hoo-jata-hai.
 * Ilm-e-Ilahi in Alfaaz is Quran
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
 * Rabb say Qareeb-say-Qareeb tar hona-hai
-* Ilm aik Wasila-hai, Ilm Marfat-e-Ilahi ka zareea-hai 
+* Ilm aik WASILA-hai, Ilm Marfat-e-Ilahi ka zareea-hai 
+* If you want to ACQUIRE-Ilm then first become __OBEDIENT-with-everyone.__ -- Ali RA
+* Ilm __LISTENING__ say hasil-hota-hai aur __SPEAKING__ say zaya-ho-jata-hai.
+* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-EYE uss-par khol-deeta-hai - PBUH
+* Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
+* __Ilm-e-Ludni__: Tamaam-aloom ka ahataa-karta-hai
+* Shahibaan-e-Ilm-o-Baatin`,`Mardaan-e-Haq`
+  * Mehnat, Mushaqat, Koshish, Jadd-o-Jehad, Riazat, Mujahida, Mushahida is for Musilman.
+* Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
 
+#### Hadith
+* Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
+* Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith
+   
 ***
 
 * __Surah Al-Baqarah 2/31 (وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا)__: [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا ثُمَّ عَرَضَهُمْ عَلَى ٱلْمَلَـٰٓئِكَةِ فَقَالَ أَنۢبِـُٔونِى بِأَسْمَآءِ هَـٰٓؤُلَآءِ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/2/31)
@@ -20,21 +32,22 @@
 ***
 
 #### [Journey of Ilm From Murshid | SSA Shah](https://www.youtube.com/shorts/H_J0Gd0v_j0)
-* Mursihid koo ghoar say dekhtay rahyai, aun ki naqal kartay rahayn to MANZIL ko poonch jayan gay
-* When you meet murshid then LOCK-your-TONGUE and LEAVE-your-AQAL at home
-* ONLY keep your EYES-and-EARS open.
+* Mursihid-koo ghoar-say dekhtay-rahayn, aun ki naqal-kartay-rahayn to MANZIL ko poonch-jayan-gay
+* When you meet murshid then __LOCK-your-TONGUE and LEAVE-your-AQAL at home__
+* ONLY keep your __EYES-and-EARS open.__
 
 ***
 
 #### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
 * Ilm-ki-Neharain = 81,000
+* Total Stream of Alooms are 118 = 114 (Quran Surahs) + 4 (Ilm-e-Ghayab)
 
 ***
 
 #### [Rumi’s Definition of a Real Aalim | اصل عالم کون؟ | SSA Shah](https://www.youtube.com/watch?v=qtfZovv3P8g)
-* TWO types of ahl-e-ilm:
-1. Those who ride the horse of Ilm. Ilm-ki-RUKAB-mayn unn-kay Poan hotay-hayn aur ilm-ki-LAGAM unn-kay haath-mayn hooti-hai. Aur woh Ilm-ki-sawari-ko sahi-simat mayn doohranay-lagtay-hayn. REAL ilm walay.
-2. Ilm Insaan par sawari kar-raha-ho. Aus par Kitab-aur-Maloomat ka boojh lada-howa-ho.
+* TWO types of Ahl-e-ilm:
+1. Those who ride the horse-of-Ilm. Ilm-ki-RUKAB-mayn unn-kay Paon hotay-hayn aur ilm-ki-LAGAM unn-kay haath-mayn hooti-hai. Aur woh Ilm-ki-sawari-ko sahi-simat mayn doahrahnay-lagtay-hayn. REAL ilm walay!!!
+2. Ilm Insaan par sawari kar-raha-ho. Aus par Kitab-aur-Maloomat ka boojh lada-howa-hoo.
 
 ***
 
@@ -43,37 +56,13 @@
 
 ***
 
-#### Aloom-e-Batni (Rohani Aloom) 
-* Total Nehers of Alooms are 118 (114 + 4).
-* Allah SWT has kept 4 with himself. Ilm-e-ghyab is part of them:
-1. Alm-e-ghybb Alqaa
-2. Alm-e-ghyab Ilhami
-3. Alm-e-ghyab Imtani
-4. Alm-e-ghyab Ataii
-
-* Ilham, Wahi, Wijdan, Alqaa, dreams...(Khalis Khaliq gift-to-makhlooq)
-
-***
-
 #### [Hazrat Ali AS about Ilm](https://www.youtube.com/shorts/6LFWMAWAqWo)
-* If you want to acquire-Ilm then first become OBEDIENT-with-everyone. -- Ali RA
-* Ilm sun-nah say hasil-hota-hai aur bol-nay say zaya-ho-jata-hai.
-* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-aankh uss-par khol-deeta-hai - PBUH
-* Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
-* __Ilm-e-Ludni__: Tamaam-aloom ka ahataa-karta-hai
-* Shahibaan-e-Ilm-o-Baatin`,`Mardaan-e-Haq`
-  * Mehnat, Mushaqat, Koshish, Jadd-o-Jehad, Riazat, Mujahida, Mushahida is for Musilman.
-* Marfat-e-Ilahi Ka Zaraya Hai and become more closer to Him.
 
-#### Hadith
-* Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
-* Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith
-   
 ***
 
 #### [Manners of Sufi Path | SSA Shah](https://www.youtube.com/watch?v=PYOG-wGkR-E)
-* We just need to give him a hint...all other details Allah SWT shows him
-* He is Shah-e-Nazr/Shah-e-Ilm, even a hint is enough for him
+* We just need to give him a hint...Allah SWT shows him all other details
+* He is __Shah-e-Nazr/Shah-e-Ilm__, even a hint is enough for him
 * Faqeer ka dil-jeetoo
 
 ***
@@ -83,24 +72,24 @@
 1. AQAL, which is incomplete.
 2. ILM
 3. ISHQ
-* __Muqam-e-hairat__ mayn aqal dangh rah-jati.
+* __Muqam-e-hairat__ mayn Aqal dangh-rah-jati hai.
 * __Alam-e-hairat__ mayn Insaan-ki-zaban banad hoo-jaati-hai.
-* __Ilm has also incomplete__: At some point it finishes, only __ISHQ__ has the capacity to help us get to meet Allah SWT
+* __Ilm is also incomplete__: At some point it finishes, only __ISHQ__ has the capacity to help us get to meet Allah SWT
 * ISHQ say pehlay Mohabbat hai
 * Mohabbat mayn silah manga-nahi-jaata...
-* ISHQ mayn to Insaaan Rabb to Purakta-Jaata-hai, sirf iss umeed par, Mera Rabb, kabhi-toh jawab-dee-gaa.
+* ISHQ mayn toh Insaaan Rabb ko Purakta-Jaata-hai, sirf iss umeed par, Mera Rabb, kabhi-toh jawab-dee-gaa.
 
 ***
 
 #### [Murshid-se-Ilm Lena | SSA Shah](https://www.youtube.com/watch?v=Wgbp9I1Ob3U)
-* Murshid can give Ilm called Atai-e-Murshid.
+* Murshid can give Ilm called __Atai-e-Murshid__.
 
 ***
 
 #### [Why Allah Grants Knowledge to the Chosen? | SSA Shah](https://www.youtube.com/watch?v=w4UvN9ifGbk)
 * SOOCH bhi-mehdood, AQAL bhi-mehdood, ILM bhi-mehdood, Jiss ki Mohabbat-k-hadd bhi-mehdood
 * Allah SWT ILM ko bohot-aziz rakhta-hai; Usay ILM bohot pasand-hai
-* __Jiss-say woh-razi hoo-gai...usay ilm-ataa-karay-gaa__
+* __Jiss-say woh-razi hoo-gai...usay ilm-ataa-karay-gaa__ (https://quran.com/2/269)
 * Ilm say WISDOM paida hoti-hai...Essence-of-Wisdom is Allah SWT Himself
 * __Khud-shanassai say Haqq-Shanassi__
 
@@ -110,7 +99,7 @@
 * "Shah Shams Tabrez" refers to either the Persian Sufi poet Shams-i Tabrizi (1185–1248), known as Rumi's spiritual instructor.
 * Rohani Ustad
 * Rohani Ustad gives you Ilm, which takes you close to Allah SWT.
-* Ilm jab milta hai...
+* Ilm jab-milta-hai...
 * Ilm jo-app-ko Rabb-Tallah kay qareeb lay-jai
 * Uss ilm-ka-hasool kitaboon-say tuh mumkin nahi-hota
 
@@ -122,27 +111,26 @@
 ***
 
 #### [Sahib-e-Ilm ki Pehchan Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
-* When we meet a sahib-e-ilm, there are Two LITMUS tests:
-1. Na-maloom-sa atminaan-hota-hai,
-2. Hamaray-kandhon-say bohaj-uttar-gaya
-3. Kashish-hoo-gee, hamarah-baar-baar janay-ko dil-chahay-gaa
-4. He will not do a Nasiyat to us, but surprisingly, we turn-towards-Naiki
+* When we meet a __Sahib-e-ilm__, there are Two __LITMUS__ tests:
+1. Na-maloom-sa PEACE-hota-hai,
+2. Hamaray-kandhon-say BURDEN-uttar-gaya
+3. ATTRACTION-hoo-gee, hamarah-baar-baar janay-ko dil-chahay-gaa
+4. He will not do a ADVICE to us, but surprisingly, we turn-towards-Naiki
 
 ***
 
 #### [Discover the Path to Spiritual Sight | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
-* Rooh-ki-parwaz, insaan kay ilam-kay-saath directly-proportionate hai.
-* Ilm-kay-muqaam kay-hisab-say, uski-Rooh-ko saer-karney-ki ijazat-milti-hai
+* Rooh-ki-FLIGHT, insaan kay ilam-kay-saath directly-proportionate hai.
+* Ilm-kay-LEVEL kay-hisab-say, uski-Rooh-ko TOUR-karney-ki ijazat-milti-hai
 
 ***
 
 ## Irfan-ul-Haq
 
 #### [Kitaab-Ka-Ilm | Hikmat-ka-Darwaza | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQNHBEvQgps)
-
-* __Surah Al-Anam 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ...وَهُوَ ٱلَّذِى يَتَوَفَّىٰكُم بِٱلَّيْلِ وَيَعْلَمُ مَا جَرَحْتُم بِٱلنَّهَارِ ثُمَّ يَبْعَثُكُمْ فِيهِ لِيُقْضَىٰٓ أَجَلٌۭ مُّسَمًّۭى ۖ ثُمَّ إِلَيْهِ مَرْجِعُكُمْ ثُمَّ يُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ](https://quranwbw.com/6/59-60)
-* __Surah Al-Jumuah 62/2__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quranwbw.com/62/2)
-* __Surah 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quran.com/87/6)
+* __Surah Al-Anam 6/59__: [۞ وَعِندَهُۥ مَفَاتِحُ ٱلْغَيْبِ لَا يَعْلَمُهَآ إِلَّا هُوَ ۚ وَيَعْلَمُ مَا فِى ٱلْبَرِّ وَٱلْبَحْرِ ۚ وَمَا تَسْقُطُ مِن وَرَقَةٍ إِلَّا يَعْلَمُهَا وَلَا حَبَّةٍۢ فِى ظُلُمَـٰتِ ٱلْأَرْضِ وَلَا رَطْبٍۢ وَلَا يَابِسٍ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍۢ...وَهُوَ ٱلَّذِى يَتَوَفَّىٰكُم بِٱلَّيْلِ وَيَعْلَمُ مَا جَرَحْتُم بِٱلنَّهَارِ ثُمَّ يَبْعَثُكُمْ فِيهِ لِيُقْضَىٰٓ أَجَلٌۭ مُّسَمًّۭى ۖ ثُمَّ إِلَيْهِ مَرْجِعُكُمْ ثُمَّ يُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ](https://quran.com/6/59-60)
+* __Surah Al-Jumuah 62/2__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/62/2)
+* __Surah Al-Ala 87/6__: [سَنُقْرِئُكَ فَلَا تَنسَىٰٓ](https://quran.com/87/6)
 
 ***
 
@@ -310,5 +298,4 @@
 * __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ilm-ka-rang juda hoo-jata-hai.__
 * __Surah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
-***
 ***

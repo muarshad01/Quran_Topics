@@ -85,7 +85,7 @@
 |10. | [Woman](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/woman.md)|12/6/2025|
 |11. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md) | 12/06/2025 |
 |12. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.md) |12/06/2025|
-
+|13. | [Taghut](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/taghoot.md) |12/06/2025|
 ***
 
 #### Nafs and Tazkia

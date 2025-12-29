@@ -1,8 +1,8 @@
-#### [Existence of God | Allama Talib Johri](https://www.youtube.com/watch?v=67f_ntEQsps)
+#### [Existence of God || Allama Talib Johri](https://www.youtube.com/watch?v=67f_ntEQsps)
 
 ***
 
-####  [Allah ka Rasta | Allama Talib Johri](https://www.youtube.com/watch?v=DkWfPuXFTF8)
+####  [Allah ka Rasta | اللہ کا راستہ | Allama Talib Johri](https://www.youtube.com/watch?v=DkWfPuXFTF8)
 * __Surah An-Nahl 16/125 (ٱدْعُ إِلَىٰ سَبِيلِ رَبِّكَ...)__: [ٱدْعُ إِلَىٰ سَبِيلِ رَبِّكَ ...بِٱلْحِكْمَةِ... وَٱلْمَوْعِظَةِ ٱلْحَسَنَةِ ۖ... وَجَـٰدِلْهُم بِٱلَّتِى هِىَ أَحْسَنُ ۚ ...إِنَّ رَبَّكَ هُوَ أَعْلَمُ بِمَن ضَلَّ عَن سَبِيلِهِۦ ۖ وَهُوَ أَعْلَمُ بِٱلْمُهْتَدِينَ](https://quran.com/16/125)
 * Tableeq kay tareeqay:
 1. With Wisdom

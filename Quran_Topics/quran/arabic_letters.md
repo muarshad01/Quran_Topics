@@ -8,8 +8,16 @@
 * YEH - Woh - They
 * KAAF -
 * HEH - 
+
+* __Past Tense__: If they come at the end.
+
 ***
-Past Tense: If they come at the end.
+
+#### [Revision, Grammar Level 1l Part 1l Understand Quran Course l Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=abw2B0NTvKc)
+* __Surah 2/1251 (ٱللَّهِ وَقَتَلَ دَاوُۥدُ جَالُوتَ)__: [](https://quran.com/2/251)
+* Paish - Nay
+* Zabar - Koo
+
 ***
 
 #### [Alphabet “ALIF - 1”](https://www.youtube.com/watch?v=6-3XFxANjj4)

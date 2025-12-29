@@ -22,6 +22,9 @@
 
 #### [Revision, Grammar Level 1 | Part 2 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=W62Yg5NwBeY)
 
+***
+
+#### [PIMA Learn and Teach Quran Course | Level-1 | Class-1 | Dr. Khawaja Zafar Elahi](https://www.youtube.com/watch?v=W4D9SmxOOOI&list=PLnZCmdIulM29fMxnmqbE1FWHGqQmn_VEv&index=22)
 
 ***
 

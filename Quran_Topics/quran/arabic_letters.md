@@ -13,10 +13,15 @@
 
 ***
 
-#### [Revision, Grammar Level 1l Part 1l Understand Quran Course l Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=abw2B0NTvKc)
+#### [Revision, Grammar Level 1 | Part 1 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=abw2B0NTvKc)
 * __Surah 2/1251 (ٱللَّهِ وَقَتَلَ دَاوُۥدُ جَالُوتَ)__: [](https://quran.com/2/251)
 * Paish - Nay
 * Zabar - Koo
+
+***
+
+#### [Revision, Grammar Level 1 | Part 2 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=W62Yg5NwBeY)
+
 
 ***
 

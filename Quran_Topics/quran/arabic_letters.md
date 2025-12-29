@@ -1,3 +1,17 @@
+#### [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
+* Pronouns
+* 4 Often repeateed Arabic letters in Quran:
+* Alif, Taa, Nun, Yeh - ATNI
+* ALIF - Mayn - I
+* TAA - Toh - You
+* NUN - Hum - We
+* YEH - Woh - They
+* KAAF -
+* HEH - 
+***
+Past Tense: If they come at the end.
+***
+
 #### [Alphabet “ALIF - 1”](https://www.youtube.com/watch?v=6-3XFxANjj4)
 * `Alif` is first-letter of `Allah` SWT name
 * `Qalam` was asked to write on Loh-e-Mehfooz

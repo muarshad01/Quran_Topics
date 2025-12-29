@@ -13,6 +13,10 @@
 
 ***
 
+#### [Darood W Dua | Learn Quran translation / Terjuma in urdu without grammer](https://www.youtube.com/watch?v=a-jPM6SJ82E&list=PLTEgVp6nUOWYZkdrA-aFtc9tBkA4MUoMZ)
+
+***
+
 #### [Free course (Basic) Lesson 1-4](https://www.youtube.com/watch?v=XPryfBozwfM)
 
 ***

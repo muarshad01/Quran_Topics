@@ -27,9 +27,6 @@
 
 ***
 
-#### [Free course (Basic) Lesson 1-4](https://www.youtube.com/watch?v=XPryfBozwfM)
-
-***
 
 #### [Revision, Grammar Level 1 | Part 1 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=abw2B0NTvKc)
 * __Surah 2/1251 (ٱللَّهِ وَقَتَلَ دَاوُۥدُ جَالُوتَ)__: [](https://quran.com/2/251)

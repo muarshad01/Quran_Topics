@@ -1,6 +1,5 @@
-## [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
-* Pro-nouns [I, You, We, They]
-#### [Alif (ا), Taa (ت), Nun (ن), Yaa (ي)] (اتني)
+#### [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
+##### [Alif (ا), Taa (ت), Nun (ن), Yaa (ي)] (اتني)
 * They come at beginning
 1. Alif (ا) - Mayn (I) - Adkhlu
 2. Taa (ت)  - Toh (You) - Tadkhlu
@@ -9,7 +8,7 @@
 
 ***
 
-#### [Naa, Kaf, Hay, Ya] - (ناكهي)
+##### [Naa, Kaf, Hay, Ya] - (ناكهي)
 * They come at end-of-workd
 1. Na (نا) - Hamari (Our) - Kitabu-na - Rabbu-na
 2. Kaaf (ك) - Teri (Your) - Kitabu-ka - Rabbu-ka

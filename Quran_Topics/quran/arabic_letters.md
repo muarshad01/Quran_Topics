@@ -1,13 +1,22 @@
-#### [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
-* Pronouns
-* 4 Often repeateed Arabic letters in Quran:
-* Alif, Taa, Nun, Yeh - ATNI
-* ALIF - Mayn - I
-* TAA - Toh - You
-* NUN - Hum - We
-* YEH - Woh - They
-* KAAF -
-* HEH - 
+## [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
+* Pro-nouns [I, You, We, They]
+#### [Alif (ا), Taa (ت), Nun (ن), Yaa (ي)] (اتني)
+* They come at beginning
+1. Alif (ا) - Mayn (I) - Adkhlu
+2. Taa (ت)  - Toh (You) - Tadkhlu
+3. Nun (ن) - Hum (We) - Nadkhlu
+4. Yaa (ي) - Woh (They) - Yadkhlu
+
+***
+
+#### [Naa, Kaf, Hay, Ya] - (ناكهي)
+* They come at end-of-workd
+1. Na (نا) - Hamari (Our) - Kitabu-na - Rabbu-na
+2. Kaaf (ك) - Teri (Your) - Kitabu-ka - Rabbu-ka
+3. Haa (ه) - Uski (His) - Kitabu-Hu - Rabbu-Hu
+4. Yaa (ي) - Meri (Mine) - Kitab-yeh - Rabbi
+  
+***
 
 * __Past Tense__: If they come at the end.
 

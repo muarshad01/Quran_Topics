@@ -14,5 +14,9 @@
 ***
 
 #### [Toheed aur Ahle Adil (1:04:58) | Allama Talib Johri](https://www.youtube.com/watch?v=W_MkJMBi71o)
+* __Surah Ale-Imran 3/18 (شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ)__: [شَهِدَ ٱللَّهُ أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/3/18)
+* __Twice Repeated__: there is no god ˹worthy of worship˺ except Him (أَنَّهُۥ لَآ إِلَـٰهَ إِلَّا هُوَ)
 
-***
+*** 
+
+*** 

@@ -15,3 +15,7 @@
 #### [Waseela aur Shirk, Wasila kab shirak banta hai | Prof ARA](https://www.youtube.com/watch?v=rTlvDDizhCs)
 
 ***
+
+#### [Allama Talib Johri - Waseela ke Munkaroon ko Jawab](https://www.youtube.com/watch?v=L9kivfZu9to)
+
+***

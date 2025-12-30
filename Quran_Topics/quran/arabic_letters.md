@@ -19,14 +19,9 @@
   
 ***
 
-* __Past Tense__: If they come at the end.
-
-***
-
 #### [Darood W Dua | Learn Quran translation / Terjuma in urdu without grammer](https://www.youtube.com/watch?v=a-jPM6SJ82E&list=PLTEgVp6nUOWYZkdrA-aFtc9tBkA4MUoMZ)
 
 ***
-
 
 #### [Revision, Grammar Level 1 | Part 1 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=abw2B0NTvKc)
 * __Surah Al-Baqarah 2/1251 (وَقَتَلَ دَاوُۥدُ جَالُوتَ)__: [](https://quran.com/2/251)

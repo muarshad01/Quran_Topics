@@ -10,4 +10,6 @@
 
 ***
 
-#### [TOHEED AUR AHLE ADIL BY MAULANA TALIB JOHRI](https://www.youtube.com/watch?v=W_MkJMBi71o)
+#### [Toheed aur Ahle Adil | Allama Talib Johri](https://www.youtube.com/watch?v=W_MkJMBi71o)
+
+***

@@ -13,6 +13,6 @@
 
 ***
 
-#### [Toheed aur Ahle Adil | Allama Talib Johri](https://www.youtube.com/watch?v=W_MkJMBi71o)
+#### [Toheed aur Ahle Adil (1:04:58) | Allama Talib Johri](https://www.youtube.com/watch?v=W_MkJMBi71o)
 
 ***

@@ -1,6 +1,7 @@
 #### [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
 ##### [Alif (ا), Taa (ت), Nun (ن), Yaa (ي)] (اتني)
-* They come at beginning
+* If they come at beginning (Present / Future tense)
+* If they come at the end (Past tense)
 1. Alif (ا) - Mayn (I) - Adkhlu
 2. Taa (ت)  - Toh (You) - Tadkhlu
 3. Nun (ن) - Hum (We) - Nadkhlu
@@ -10,6 +11,7 @@
 
 ##### [Naa, Kaf, Hay, Ya] - (ناكهي)
 * They come at end-of-workd
+* They tell us about relationship of something-with-something
 1. Na (نا) - Hamari (Our) - Kitabu-na - Rabbu-na
 2. Kaaf (ك) - Teri (Your) - Kitabu-ka - Rabbu-ka
 3. Haa (ه) - Uski (His) - Kitabu-Hu - Rabbu-Hu

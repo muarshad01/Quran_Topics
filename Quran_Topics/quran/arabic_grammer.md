@@ -11,7 +11,7 @@
 
 ***
 
-#### [Urdu Lesson 14 | Muallim-ul-Quran](https://www.youtube.com/watch?v=7gvzXBy581A)
+#### [Urdu Lesson 14 | Muallim-ul-Quran](https://www.youtube.com/watch?v=7gvzXBy581A) -- 12/31/2025
 * Be" (بِ)
 * __Surah At-Taghuban 64/2 (وَٱللَّهُ بِمَا تَعْمَلُونَ بَصِيرٌ)__: [](https://quran.com/64/2)
 * __Surah An-Nisa 4/36 (وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا)__: [](https://quran.com/4/36)

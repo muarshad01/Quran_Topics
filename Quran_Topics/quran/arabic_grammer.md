@@ -2,7 +2,23 @@
 
 ***
 
-#### [[Urdu Lesson 09 | Muallim-ul-Quran]](https://www.youtube.com/watch?v=Z6I2JnOCfds)
+#### [Urdu Lesson 08 | Muallim-ul-Quran](https://www.youtube.com/watch?v=Zeqbjl39tjg&t=493s)
+
+***
+
+#### [Urdu Lesson 09 | Muallim-ul-Quran](https://www.youtube.com/watch?v=Z6I2JnOCfds)
+
+***
+
+#### [Urdu Lesson 10 | Muallim-ul-Quran](https://www.youtube.com/watch?v=3zEFsnSRv4Y)
+
+***
+
+#### [Urdu Lesson 11 | Muallim-ul-Quran](https://www.youtube.com/watch?v=I3SM4c7EDSY)
+
+***
+
+#### [Urdu Lesson 12 | Muallim-ul-Quran](https://www.youtube.com/watch?v=pKQtntSiPvo)
 
 ***
 

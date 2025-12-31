@@ -2,12 +2,12 @@
 
 ***
 
-#### [Urdu Lesson 13 | Muallim-ul-Quran ](https://www.youtube.com/watch?v=s7oUWHnQ0eI)
+#### [Urdu Lesson 13 | Muallim-ul-Quran](https://www.youtube.com/watch?v=s7oUWHnQ0eI)
 * lā (لا) and mā (ما)
 
 ***
 
-#### [Urdu Lesson 14 | Muallim-ul-Quran ](https://www.youtube.com/watch?v=7gvzXBy581A)
+#### [Urdu Lesson 14 | Muallim-ul-Quran](https://www.youtube.com/watch?v=7gvzXBy581A)
 * Be" (بِ)
 * __Surah At-Taghuban 64/2 (وَٱللَّهُ بِمَا تَعْمَلُونَ بَصِيرٌ)__: [](https://quran.com/64/2)
 * __Surah An-Nisa 4/36 (وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا)__: [](https://quran.com/4/36)

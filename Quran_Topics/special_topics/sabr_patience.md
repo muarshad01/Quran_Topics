@@ -163,3 +163,7 @@ And so are Badr and Hunayn in the battle of existence.
 ***
 
 * Ulul Azam: 5 [أُو۟لُوا۟ ٱلْعَزْمِ](https://quran.com/46/35)
+
+***
+
+* __Surah Al-Baqarah 2/175__: [أُو۟لَـٰٓئِكَ ٱلَّذِينَ ٱشْتَرَوُا۟ ...ٱلضَّلَـٰلَةَ بِٱلْهُدَىٰ وَٱلْعَذَابَ بِٱلْمَغْفِرَةِ ۚ... فَمَآ أَصْبَرَهُمْ عَلَى ٱلنَّارِ](https://quran.com/2/175)

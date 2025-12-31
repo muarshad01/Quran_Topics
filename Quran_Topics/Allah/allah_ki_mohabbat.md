@@ -127,7 +127,7 @@
 
 ***
 
-#### [Rab-K- Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
+#### [Rab-K-Mohabbat Ka Aalam | SSA Shah](https://www.youtube.com/watch?v=A4noy8SJ-B0)
 * Faqeer has very little worldly-resouces
 * However, he is very content-and-happy.
   
@@ -140,6 +140,10 @@
 
 ***
 
+#### [Whom Allah SWT Loves | Prof ARA](https://www.youtube.com/shorts/tFp0Tx95tyE)
+
+***
+
 #### [Sahabi Was Upset - Hadith](https://www.youtube.com/shorts/2ARfP9AiVLU)
 * You will be with-the-person at Judgement-day, whom you loved in Dunya.
 
@@ -149,7 +153,7 @@
 
 ***
 
-#### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof. ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
+#### [Khuda Kabi Kisi-Ki Talab-Ko Zaya-Nahi-Karta | Prof ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
 * Akhlas mate-i-faqeer
 * Tujhay zaib-nahi-deta kah mate-i-faqeer zaya-karay
 * Tujhay zaib-nahi-deta kah teri iss-talab ki-tahueen-hoo
@@ -160,15 +164,15 @@
 * https://www.youtube.com/shorts/RLLIfAJWqJE
 * [I do not hesitate about anything as much as I hesitate about [seizing] the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.](https://sunnah.com/qudsi40:25)
 
-#### [Whom Allah SWT Loves | Prof. ARA](https://www.youtube.com/shorts/tFp0Tx95tyE)
-
 ***
 
-#### [Mohabbat Kab Hoti Hai ? Hazrat Wasif Ali Wasif (R.A)](https://www.youtube.com/shorts/ClRZVQqg8HA)
+#### [Mohabbat Kab Hoti Hai | Hazrat Wasif Ali Wasif (R.A)](https://www.youtube.com/shorts/ClRZVQqg8HA)
 * Joo-cheezen Hasil-kar rehay-hoo...wohi-cheezen Nisar-karna sarooh-kar-doo.
 
 ***
 
 #### [Allah Apne Bande ko Kaise Yaad Krta Hai? | Irfan-ul-Haq](https://www.youtube.com/watch?v=7qeW2T7vpc8)
+* __Surah Al-Ahzab 33/41__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ٱذْكُرُوا۟ ٱللَّهَ ذِكْرًۭا كَثِيرًۭا](https://quran.com/33/41)
+* Duaa: Ask for Rehmat, Salamity, and Barakah always!!!
 
 ***

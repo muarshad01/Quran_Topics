@@ -2,6 +2,10 @@
 
 ***
 
+#### [[Urdu Lesson 09 | Muallim-ul-Quran]](https://www.youtube.com/watch?v=Z6I2JnOCfds)
+
+***
+
 #### [Urdu Lesson 13 | Muallim-ul-Quran](https://www.youtube.com/watch?v=s7oUWHnQ0eI)
 * lā (لا) and mā (ما)
 

@@ -13,3 +13,6 @@
 * __Surah Al-Ahqaf 46/35 (Just an hour of Day)__: [يَوْمَ يَرَوْنَ مَا يُوعَدُونَ لَمْ يَلْبَثُوٓا۟ إِلَّا سَاعَةًۭ مِّن نَّهَارٍۭ ۚ][So endure patiently, as did the Messengers of Firm Resolve.1 And do not ˹seek to˺ hasten ˹the torment˺ for the deniers. On the Day they see what they have been threatened with, it will be as if they had only stayed ˹in this world˺ for an hour of a day.2 ˹This is˺ a ˹sufficient˺ warning! Then, will anyone be destroyed except the rebellious people?](https://quranwbw.com/46/35)
 
 *** 
+
+* __Surah Al-Baqarah 2/175__: [أُو۟لَـٰٓئِكَ ٱلَّذِينَ ٱشْتَرَوُا۟ ...ٱلضَّلَـٰلَةَ بِٱلْهُدَىٰ وَٱلْعَذَابَ بِٱلْمَغْفِرَةِ ۚ... فَمَآ أَصْبَرَهُمْ عَلَى ٱلنَّارِ](https://quran.com/2/175)
+

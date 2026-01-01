@@ -29,6 +29,10 @@
 
 *** 
 
+* __Sura Al-Anbya 21/37 (Hasty: خُلِقَ ٱلْإِنسَـٰنُ مِنْ عَجَلٍۢ)__: [خُلِقَ ٱلْإِنسَـٰنُ مِنْ عَجَلٍۢ ۚ... سَأُو۟رِيكُمْ ءَايَـٰتِى فَلَا تَسْتَعْجِلُونِ](https://quran.com/21/37)
+
+***
+
 * __Surah Fussilat 41/49 ()__: [لَّا يَسْـَٔمُ ٱلْإِنسَـٰنُ مِن دُعَآءِ ٱلْخَيْرِ... وَإِن مَّسَّهُ ٱلشَّرُّ فَيَـُٔوسٌۭ قَنُوطٌۭ](https://quran.com/41/49)
 * __Surah Fussilat 41/50 ()__: [وَلَئِنْ أَذَقْنَـٰهُ رَحْمَةًۭ مِّنَّا مِنۢ بَعْدِ ضَرَّآءَ مَسَّتْهُ لَيَقُولَنَّ هَـٰذَا لِى وَمَآ أَظُنُّ ٱلسَّاعَةَ قَآئِمَةًۭ وَلَئِن رُّجِعْتُ إِلَىٰ رَبِّىٓ إِنَّ لِى عِندَهُۥ لَلْحُسْنَىٰ ۚ فَلَنُنَبِّئَنَّ ٱلَّذِينَ كَفَرُوا۟ بِمَا عَمِلُوا۟ وَلَنُذِيقَنَّهُم مِّنْ عَذَابٍ غَلِيظٍۢ](https://quran.com/41/50)
 * __Surah Fussilat 41/51 ()__: [وَإِذَآ أَنْعَمْنَا عَلَى ٱلْإِنسَـٰنِ أَعْرَضَ وَنَـَٔا بِجَانِبِهِۦ... وَإِذَا مَسَّهُ ٱلشَّرُّ فَذُو دُعَآءٍ عَرِيضٍۢ](https://quran.com/41/51)
@@ -80,7 +84,7 @@
 
 ***
 
-#### [Quran Mein Insan Ko Jahil Aur Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
+#### [Quran Mein Insan Ko Jahil-aur-Zalim Kiyon Kaha Gya...!! | Allama Talib jhori](https://www.youtube.com/watch?v=AbXeB3KcmVM)
 * __Insaan__: (Fire, Water, Air, Soil)
 * __Surah Al-Insan 76/1__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا](https://quran.com/76/1)
 * __Surah Al-Insan 76/2 (نَّبْتَلِيهِ)__: [إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍۢ... نَّبْتَلِيهِ... فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا](https://quran.com/76/2)
@@ -101,9 +105,9 @@
 
 ***
 
-#### [Insano ke do groh (10 mins) | انسانوں کے دو گروہ | Allama Talib Johri](https://www.youtube.com/watch?v=3nqxEHeLqwY)
+#### [Insano ke 2 Groups (10 mins) | انسانوں کے دو گروہ | Allama Talib Johri](https://www.youtube.com/watch?v=3nqxEHeLqwY)
 * __Surah Al-Asr 103/1-3__: [وَٱلْعَصْرِ...إِنَّ ٱلْإِنسَـٰنَ لَفِى خُسْرٍ...إِلَّا ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ وَتَوَاصَوْا۟ بِٱلْحَقِّ وَتَوَاصَوْا۟ بِٱلصَّبْرِ](https://quran.com/103/1-3)
-* TWO Groups:
+* __TWO Groups__:
 * __Surah Hud 11/40 (Nuh AS: وَمَآ ءَامَنَ مَعَهُۥٓ إِلَّا قَلِيلٌۭ)__: [حَتَّىٰٓ إِذَا جَآءَ أَمْرُنَا وَفَارَ ٱلتَّنُّورُ قُلْنَا ٱحْمِلْ فِيهَا مِن كُلٍّۢ زَوْجَيْنِ ٱثْنَيْنِ وَأَهْلَكَ إِلَّا مَن سَبَقَ عَلَيْهِ ٱلْقَوْلُ وَمَنْ ءَامَنَ ۚ وَمَآ ءَامَنَ مَعَهُۥٓ إِلَّا قَلِيلٌۭ](https://quran.com/11/40)
 * __Surah Ibrahim 14/36 (Ibrahim AS: إِنَّهُنَّ أَضْلَلْنَ كَثِيرًۭا مِّنَ ٱلنَّاسِ ۖ)__: [رَبِّ إِنَّهُنَّ أَضْلَلْنَ كَثِيرًۭا مِّنَ ٱلنَّاسِ ۖ فَمَن تَبِعَنِى فَإِنَّهُۥ مِنِّى ۖ وَمَنْ عَصَانِى فَإِنَّكَ غَفُورٌۭ رَّحِيمٌۭ](https://quran.com/14/36)
 * MUSA AS Quam worshipped COW
@@ -182,24 +186,23 @@
 
 ***
 
-
 #### [Man's two biggest Mistakes | Prof ARA](https://www.youtube.com/watch?v=4OyeTQe9HCg)
 
 ***
 
-#### [The Spiritual Reason Behind Mood Changes | انسانی مزاج کی تبدیلی کی روحانی وجہ](https://www.youtube.com/watch?v=HVwA0eNJqUo)
-1. Fire (Anger - Ghusay ki shidat)
-2. Water (Narmi aur Shaistagi)
-3. Air (Taazi - hawa mayn talwarayn chalata phiray gaa)
-4. Soil (Himility / Aajzi aur Inkisaar)
+#### [The Spiritual Reason Behind Mood Changes | انسانی مزاج کی تبدیلی کی روحانی وجہ | SSA Shah](https://www.youtube.com/watch?v=HVwA0eNJqUo)
+1. Soil (Himility / Aajzi aur Inkisaar)
+2. Fire (Anger - Ghusay ki sheedat)
+3. Water (Narmi aur Shaistagi)
+4. Air (Teezi - hawa mayn talwarayn chalata phiray gaa)
 
-* Hearts were created 7,000 years before Insani Putla
+* Hearts were created 7,000 years before Insani Body
 * Rooh were created 7,000 years before Insani Heart
 * Rooh -> Heart -> Insaan
 
 ***
 
-#### [Sharf e Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
+#### [Sharf-e-Insaniyat | شرفِ انسانیت | Allama Talib Johri](https://www.youtube.com/watch?v=quxgTOc2WVI)
 
 ***
 

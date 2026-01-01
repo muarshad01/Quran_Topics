@@ -35,3 +35,7 @@
 #### [Does God Exist? | Maulana Tariq Jamil | Live from UK | 30 Dec 25](https://www.youtube.com/watch?v=CZHyB7C2Kgk)
 
 ***
+
+* __Surah Al-Anam 6/21__: [وَمَنْ أَظْلَمُ مِمَّنِ ٱفْتَرَىٰ عَلَى ٱللَّهِ كَذِبًا أَوْ كَذَّبَ بِـَٔايَـٰتِهِۦٓ ۗ... إِنَّهُۥ لَا يُفْلِحُ ٱلظَّـٰلِمُونَ](https://quran.com/6/21)
+
+*** 

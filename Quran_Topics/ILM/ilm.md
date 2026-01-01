@@ -1,12 +1,12 @@
 * Joo bhi Allah say miltay-hayn __KHALOOS-aur-MOHABBAT__ say, unn-kay __ILM-ka-RANG__ juda hoo-jata-hai.
-* Ilm-e-Ilahi in Alfaaz is Quran
-* Ilm-e-Ilahi in Noor is Muhammad PBUH
-* Rabb say Qareeb-say-Qareeb tar hona-hai
-* Ilm aik WASILA-hai, Ilm Marfat-e-Ilahi ka zareea-hai 
-* If you want to ACQUIRE-Ilm then first become __OBEDIENT-with-everyone.__ -- Ali RA
+* If you want to __ACQUIRE__-Ilm then first become __OBEDIENT-with-everyone.__ -- Ali RA
 * Ilm __LISTENING__ say hasil-hota-hai aur __SPEAKING__ say zaya-ho-jata-hai.
-* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-EYE uss-par khol-deeta-hai - PBUH
-* Ghor-o-Fikr insaan ko Rabb say mila-deta-hai.
+* Ilm-e-Ilahi in __ALFAAZ__ is Quran
+* Ilm-e-Ilahi in __NOOR__ is Muhammad PBUH
+* Ilm aik __WASILA__-hai, Ilm __MARFAT__-e-Ilahi ka zareea-hai 
+* Rabb say Qareeb-say-Qareeb tar hona-hai
+* Allah jisay apna-Ilm dena chahata-hai...sab-say-pehlay uss-ki-__EYE__ uss-par khol-deeta-hai - PBUH
+* __Ghor-o-Fikr__ insaan ko Rabb say mila-deta-hai.
 * __Ilm-e-Ludni__: Tamaam-aloom ka ahataa-karta-hai
 * Shahibaan-e-Ilm-o-Baatin`,`Mardaan-e-Haq`
   * Mehnat, Mushaqat, Koshish, Jadd-o-Jehad, Riazat, Mujahida, Mushahida is for Musilman.

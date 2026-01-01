@@ -3,10 +3,10 @@
 ***
 
 #### [Urdu Lesson 08 | Muallim-ul-Quran](https://www.youtube.com/watch?v=Zeqbjl39tjg) -- 01/01/2026
+* The following [Huma" (هما), Kuma" (كُمَا), Tūmā (تُومَا)] words come at the end of a word and depict TWO
 * __Huma" (هما)__: Dual pronoun meaning "they (two)," as in "both of them". Woh Doono!!! 
 * __Kuma" (كُمَا)__: Dual possessive pronoun meaning "you two (masculine/feminine)" or a dual pronoun for "they (two)," depending on context. Tum Doono!!!
 * __Tūmā (تُومَا)__:  Tum Doono!!
-* Come at the end of word and depict TWO
 #### __Huma (هما)__
 * __Surah Al-Isra 17/24 (رَّبِّ ٱرْحَمْهُمَا)__: [وَٱخْفِضْ لَهُمَا جَنَاحَ ٱلذُّلِّ مِنَ ٱلرَّحْمَةِ وَقُل... رَّبِّ ٱرْحَمْهُمَا... كَمَا رَبَّيَانِى صَغِيرًۭا](https://quran.com/17/24)
 * __Surah Ale-Imran 3/122 (وَٱللَّهُ وَلِيُّهُمَا )__: [إِذْ هَمَّت طَّآئِفَتَانِ مِنكُمْ أَن تَفْشَلَا وَٱللَّهُ وَلِيُّهُمَا ۗ وَعَلَى ٱللَّهِ فَلْيَتَوَكَّلِ ٱلْمُؤْمِنُونَ](https://quran.com/3/122)

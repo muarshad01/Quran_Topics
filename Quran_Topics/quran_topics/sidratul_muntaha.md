@@ -27,17 +27,6 @@
 
 ***
 
-#### [Man's Two Biggest Mistakes | Prof ARA](https://www.youtube.com/watch?v=4OyeTQe9HCg)
-* Our earth is the hight Zameen of 7-earths -- 4:00
-* ...
-* Before creation of universe...there were clouds...
-* ....
-* What Allah SWT was doing before creation of Universe?
-* ...
-* He was in Clouds...above and below which was air.
-* ...
-***
-
 
 #### [What exactly did the Prophet (saw) see on the night of Mi'raj? Nouman Ali khan lectures](https://www.youtube.com/watch?v=I26vKYT1_Tg)
 

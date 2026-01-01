@@ -6,9 +6,10 @@
 
 ***
 
-* __Surah Al-Anam 6/22__: [](https://quran.com/6/222)
+* __Surah Al-Anam 6/22__: [](https://quran.com/6/22)
 * __Surah Al-Anam 6/23 (وَٱللَّهِ رَبِّنَا مَا كُنَّا مُشْرِكِينَ)__: [ثُمَّ لَمْ تَكُن فِتْنَتُهُمْ إِلَّآ أَن قَالُوا۟... وَٱللَّهِ رَبِّنَا مَا كُنَّا مُشْرِكِينَ](https://quran.com/6/23)
-
+* __Surah Al-Anam 6/24__: [](https://quran.com/6/24)
+  
 ***
 
 * __Surah Ar-Raad 13/18 (Give Ranson)__: [لَوْ أَنَّ لَهُم مَّا فِى ٱلْأَرْضِ جَمِيعًۭا وَمِثْلَهُۥ مَعَهُۥ لَٱفْتَدَوْا۟ بِهِۦٓ ۚ][Those who respond to ˹the call of˺ their Lord will have the finest reward. As for those who do not respond to Him, even if they were to possess everything in the world twice over, they would certainly offer it to ransom themselves. They will face strict judgment, and Hell will be their home. What an evil place to rest!](https://quran.com/13/18)

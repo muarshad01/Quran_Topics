@@ -185,10 +185,6 @@
 
 ***
 
-#### [Man's two biggest Mistakes | Prof ARA](https://www.youtube.com/watch?v=4OyeTQe9HCg)
-
-***
-
 #### [The Spiritual Reason Behind Mood Changes | انسانی مزاج کی تبدیلی کی روحانی وجہ | SSA Shah](https://www.youtube.com/watch?v=HVwA0eNJqUo)
 1. Soil (Himility / Aajzi aur Inkisaar)
 2. Fire (Anger - Ghusay ki sheedat)
@@ -206,5 +202,15 @@
 ***
 
 #### [Insaan Ko Jald Baaz Paida Kiya Gaya Hai | Prof ARA](https://www.youtube.com/shorts/iIcV-MAQzZE)
+
+***
+
+#### [Man's Two Biggest Mistakes | Prof ARA](https://www.youtube.com/watch?v=4OyeTQe9HCg)
+* How we can assume that there is no other life ...?
+* How we can assume that there are no other advanced creationss...13 Billion Years!!!
+* __Surah Al-Anbya 21/30 (وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ)__: [أَوَلَمْ يَرَ ٱلَّذِينَ كَفَرُوٓا۟ أَنَّ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ كَانَتَا رَتْقًۭا فَفَتَقْنَـٰهُمَا ۖ وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا يُؤْمِنُونَ](https://quran.com/21/30)
+* __Surah Ar-Rad 13/2 (وَٱلْقَمَرَ ۖ كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّۭى ۚ)__: [ٱللَّهُ ٱلَّذِى رَفَعَ ٱلسَّمَـٰوَٰتِ بِغَيْرِ عَمَدٍۢ تَرَوْنَهَا ۖ ثُمَّ ٱسْتَوَىٰ عَلَى ٱلْعَرْشِ ۖ وَسَخَّرَ ٱلشَّمْسَ وَٱلْقَمَرَ ۖ كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّۭى ۚ يُدَبِّرُ ٱلْأَمْرَ يُفَصِّلُ ٱلْـَٔايَـٰتِ لَعَلَّكُم بِلِقَآءِ رَبِّكُمْ تُوقِنُونَ](https://quran.com/13/2)
+* Our earth is the hight Zameen of 7-earths -- 4:00
+* If you throw a rope down...it will reach the 7-th earth.
 
 ***

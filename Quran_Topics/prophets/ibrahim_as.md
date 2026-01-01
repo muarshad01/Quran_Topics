@@ -602,3 +602,5 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 * __Surah Al-Alaa 87/19__: [the Scriptures of Abraham and Moses.](https://quranwbw.com/87/19)
 
 ***
+
+* https://www.youtube.com/shorts/7KxfWDupIrI

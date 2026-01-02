@@ -1,3 +1,11 @@
+* __Surah Al-Baqarah 2/259 (لَمْ يَتَسَنَّهْ ۖ)__: [أَوْ كَٱلَّذِى مَرَّ عَلَىٰ قَرْيَةٍۢ... وَهِىَ خَاوِيَةٌ عَلَىٰ عُرُوشِهَا... قَالَ أَنَّىٰ يُحْىِۦ هَـٰذِهِ ٱللَّهُ بَعْدَ مَوْتِهَا ۖ... فَأَمَاتَهُ ٱللَّهُ مِا۟ئَةَ عَامٍۢ ثُمَّ بَعَثَهُۥ... ۖ قَالَ كَمْ لَبِثْتَ ۖ قَالَ لَبِثْتُ يَوْمًا أَوْ بَعْضَ يَوْمٍۢ ۖ قَالَ بَل لَّبِثْتَ مِا۟ئَةَ عَامٍۢ... فَٱنظُرْ إِلَىٰ طَعَامِكَ وَشَرَابِكَ لَمْ يَتَسَنَّهْ... ۖ وَٱنظُرْ إِلَىٰ حِمَارِكَ وَلِنَجْعَلَكَ ءَايَةًۭ لِّلنَّاسِ ۖ ...وَٱنظُرْ إِلَى ٱلْعِظَامِ كَيْفَ نُنشِزُهَا ثُمَّ نَكْسُوهَا لَحْمًۭا ۚ فَلَمَّا تَبَيَّنَ لَهُۥ... قَالَ أَعْلَمُ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ](https://quran.com/2/259)
+* 3-dimensions of time are exhibeted (`TIME-REVERSAL`):
+1. Unzair (1-day or less-than-a-day) (فَأَمَاتَهُ ٱللَّهُ مِا۟ئَةَ عَامٍۢ ثُمَّ بَعَثَهُۥ ۖ قَالَ كَمْ لَبِثْتَ ۖ قَالَ لَبِثْتُ يَوْمًا أَوْ بَعْضَ يَوْمٍۢ ۖ قَالَ بَل لَّبِثْتَ مِا۟ئَةَ)
+2. Food and drink was same (No time passed)(فَٱنظُرْ إِلَىٰ طَعَامِكَ وَشَرَابِكَ لَمْ يَتَسَنَّهْ)
+3. Donkey (100 years had passed)
+
+***
+
 #### [Technology That Allah Used on Ashab-e-Kahf](https://www.youtube.com/watch?v=gfKRJJTZv5k)
 
 #### Dilation of time
@@ -16,12 +24,6 @@
 * 1st day (1 year), 2nd day (1 month), 3rd day (1 week)
 
 #### Uzair AS in Surah Baqarah
-* __Surah Baqarah 2/259__: [Or like the one who passed-by-a-town and it had tumbled-over-its-roofs. He said: "Oh! How will Allah ever bring-it-to-life after its death?" So Allah caused him to die-for-a hundred-years, then raised him up (again). He said: "How long did you remain (dead)?" He (the man) said: "(Perhaps) I remained (dead) a-day-or-part-of-a-day". He said: "Nay, you have remained (dead) for a hundred years, look at your food and your drink, they show no change; and look at your donkey! And thus We have made of you a sign for the people. Look at the bones, how We bring them together and clothe them with flesh". When this was clearly shown to him, he said, "I know (now) that Allah is Able to do all things](https://quranwbw.com/2#259)
-* Three dimensions of time exhibeted
-   * Food and drink was same (No time passed)
-   * Unzair (1-day or less-than-a-day)
-   * Donkey (100 years had passed)
-* `TIME-REVERSIBLE`
 
 ***
 

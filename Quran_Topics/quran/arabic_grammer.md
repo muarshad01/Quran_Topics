@@ -2,6 +2,37 @@
 
 ***
 
+#### [02/19 Muallim-ul-Quran | Urdu Lesson 01 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=9vqUgQeURz0)
+***
+
+#### [03/19 Muallim-ul-Quran | Urdu Lesson 02 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=dTZW5y33Ojo)
+
+***
+
+#### [04/19 Muallim-ul-Quran | Urdu Lesson 03 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=5H3Gw4-Ft88)
+
+***
+
+#### [05/19 Muallim-ul-Quran | Urdu Lesson 04 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=nh_19ZG1OZ4)
+
+***
+
+#### [06/19 Muallim-ul-Quran | Urdu Lesson 05 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=HpBs8rAUPzA)
+
+***
+
+#### [07/19 Muallim-ul-Quran | Urdu Test 1 معلم القرآن ٹیسٹ نمبر](https://www.youtube.com/watch?v=gxj-X1KaRvQ)
+
+***
+
+#### [08/19 Muallim-ul-Quran | Urdu Lesson 06 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=zp8BkGuUiOE)
+
+***
+
+#### [Urdu Lesson 07 | Muallim-ul-Quran](https://www.youtube.com/watch?v=3dq2-TrnLvc)
+
+***
+
 #### [Urdu Lesson 08 | Muallim-ul-Quran](https://www.youtube.com/watch?v=Zeqbjl39tjg) -- 01/01/2026
 * __The following [Huma" (هما), Kuma" (كُمَا), Tūmā (تُومَا)] words come at the end of a word and depict TWO__
 * __Huma" (هما)__: Dual pronoun meaning "they (two)," as in "both of them". Woh Doono!!! 
@@ -43,6 +74,9 @@
 
 #### [Urdu Lesson 10 | Muallim-ul-Quran](https://www.youtube.com/watch?v=3zEFsnSRv4Y)
 
+***
+
+#### [13/19 Muallim-ul-Quran | Urdu Test 2 معلم القرآن ٹیسٹ نمبر](https://www.youtube.com/watch?v=UmC2D1483cw)
 ***
 
 #### [Urdu Lesson 11 | Muallim-ul-Quran](https://www.youtube.com/watch?v=I3SM4c7EDSY)
@@ -103,5 +137,12 @@
 * __Surah Yusuf 12/17 (وَمَآ أَنتَ بِمُؤْمِنٍۢ لَّنَا)__: [](https://quran.com/12/17)
 * __Surah Al-Baqarah 2/167 (وَمَا هُم بِخَـٰرِجِينَ مِنَ ٱلنَّارِ)__: [](https://quran.com/12/167)
 * __Surah Al-Baqarah  2/8 (وَمَا هُم بِمُؤْمِنِينَ)__: [](https://quran.com/12/8)
+
+***
+
+#### [Urdu Lesson 15 | Muallim-ul-Quran](https://www.youtube.com/watch?v=J2YBQ6XeFU0)
+***
+
+#### [Urdu Test 3| Muallim-ul-Quran](https://www.youtube.com/watch?v=DA-JFxcJumc)
 
 ***

@@ -28,3 +28,7 @@
 #### [Time and Temporality in Quran: Theoretical and Practical Dimensions | Dr Abdus Salam Arif Explained](https://www.youtube.com/watch?v=HsNvop_79lc)
 
 ***
+
+* __Surah Maryam 19/23 (Forgotten: مَّنسِيًّۭا)__: [فَأَجَآءَهَا ٱلْمَخَاضُ إِلَىٰ جِذْعِ ٱلنَّخْلَةِ قَالَتْ يَـٰلَيْتَنِى مِتُّ قَبْلَ هَـٰذَا وَكُنتُ نَسْيًۭا مَّنسِيًّۭا](https://quran.com/19/23)
+
+*** 

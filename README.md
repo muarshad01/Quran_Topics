@@ -79,7 +79,7 @@
 |3. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/momin.md) | 12/6/2025 |
 |4. | Muttaqi ||
 |5. | [Salaheen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/Salaheen.md)| 12/6/2025 |
-|6. | [Awabeen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/awabeen.md)| 12/6/2025 |
+|6. | [Awabeen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/awabeen.md)| 02/01/2026 |
 |7.| [Kafir (Unbeliever)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/kafirs.md) | 12/6/2025 |
 |8. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) |12/6/2025|
 |9. | [Saints](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/saints.md); [Saint Ranks](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/saint_ranks.md); [Saint Levels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/levels.md); [Darwaish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/darwaish.md); [Faqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/faqeer-jahil-haqeer.md)|12/6/2025|

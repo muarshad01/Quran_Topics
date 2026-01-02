@@ -25,7 +25,7 @@
 
 #### [Maqam-e-Fuqar Kaise Hasil Hota Hai? | SSA Shah](https://www.youtube.com/watch?v=oYN4xOalZkc)
 * This is only possible through two ways:
-1. Ishq-of-Rabb
+1. __Ishq-of-Rabb__
 2. Rabb ko itna bara maan lay keh uss say koi question naa kiya jaa sakay
 * Lower your head and accpet every order with great abad and itheram.
 * __Bandagi kay-saath, merey-liay mera-Rabb hi-kaafi-hai ([فَسَيَكْفِيكَهُمُ ٱللَّهُ ۚ وَهُوَ ٱلسَّمِيعُ ٱلْعَلِيمُ ](https://quran.com/2/137)).__
@@ -55,7 +55,7 @@
 
 #### Faqeer (The Word `Naas`)
 * __Surah Faatir 35/15 (Faqeer)__: [۞ يَـٰٓأَيُّهَا ٱلنَّاسُ أَنتُمُ ٱلْفُقَرَآءُ إِلَى ٱللَّهِ ۖ وَٱللَّهُ هُوَ ٱلْغَنِىُّ ٱلْحَمِيدُ](https://quranwbw.com/35/15)
-* __Surah Muhammad 47/38__: [هَـٰٓأَنتُمْ هَـٰٓؤُلَآءِ تُدْعَوْنَ لِتُنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ فَمِنكُم مَّن يَبْخَلُ ۖ وَمَن يَبْخَلْ فَإِنَّمَا يَبْخَلُ عَن نَّفْسِهِۦ ۚ وَٱللَّهُ ٱلْغَنِىُّ وَأَنتُمُ ٱلْفُقَرَآءُ ۚ وَإِن تَتَوَلَّوْا۟ يَسْتَبْدِلْ قَوْمًا غَيْرَكُمْ ثُمَّ لَا يَكُونُوٓا۟ أَمْثَـٰلَكُم](https://quran.com/47/38)
+* __Surah Muhammad 47/38__: [هَـٰٓأَنتُمْ هَـٰٓؤُلَآءِ تُدْعَوْنَ لِتُنفِقُوا۟ فِى سَبِيلِ ٱللَّهِ فَمِنكُم مَّن يَبْخَلُ ۖ وَمَن يَبْخَلْ فَإِنَّمَا يَبْخَلُ عَن نَّفْسِهِۦ ۚ... وَٱللَّهُ ٱلْغَنِىُّ وَأَنتُمُ ٱلْفُقَرَآءُ ۚ... وَإِن تَتَوَلَّوْا۟ يَسْتَبْدِلْ قَوْمًا غَيْرَكُمْ ثُمَّ لَا يَكُونُوٓا۟ أَمْثَـٰلَكُم](https://quran.com/47/38)
 
 #### Haqeer
 * __Surah YaSeen 36/77__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
@@ -119,4 +119,5 @@
 #### [Signs of a Genuine Faqeer | حقیقی فقیر کی پہچان—دو زبردست ٹیسٹ | SSA Shah](https://www.youtube.com/watch?v=_iT2O7iMTq0)
 1. Litmus Test (You'll feel attraction; Meet to want him again; Feel peace of mind.)
 2. Long-term Test (Faqeer doesn't advice...but you start following good path...)
+
 ***

@@ -37,7 +37,8 @@
 
 ***
 
-* __Surah Saad 38/30__: [And We blessed David with Solomon—what an excellent servant ˹he was˺! Indeed, he ˹constantly˺ turned ˹to Allah˺.](https://quranwbw.com/38/30)
+* __Surah Saad 38/30__: [وَوَهَبْنَا لِدَاوُۥدَ سُلَيْمَـٰنَ ۚ... نِعْمَ ٱلْعَبْدُ ۖ إِنَّهُۥٓ أَوَّابٌ](https://quran.com/38/30)
+
 * __Surah Saad 38/34__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34)
 
 ***

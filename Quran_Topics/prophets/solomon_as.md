@@ -36,7 +36,7 @@
 * __Surah Saba 34/12__: [And to Solomon ˹We subjected˺ the wind: its morning stride was a month’s journey and so was its evening stride. And We caused a stream of molten copper to flow for him, and ˹We subjected˺ some of the jinn to work under him by his Lord’s Will. And whoever of them deviated from Our command, We made them taste the torment of the blaze.](https://quranwbw.com/34/12)
 
 ***
-
+* __Surah Saad 38/20__: [وَشَدَدْنَا مُلْكَهُۥ... وَءَاتَيْنَـٰهُ ٱلْحِكْمَةَ وَفَصْلَ ٱلْخِطَابِ](https://quran.com/38/20)
 * __Surah Saad 38/30__: [وَوَهَبْنَا لِدَاوُۥدَ سُلَيْمَـٰنَ ۚ... نِعْمَ ٱلْعَبْدُ ۖ إِنَّهُۥٓ أَوَّابٌ](https://quran.com/38/30)
 
 * __Surah Saad 38/34__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34)

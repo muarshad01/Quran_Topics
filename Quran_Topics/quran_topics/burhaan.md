@@ -42,3 +42,5 @@
 * __Apnay-app-ko Allah-ki-Panah mayn-deh-deayn. Uss say madad-maang-layn__
 
 ***
+
+* __Surah 23/117__: []()

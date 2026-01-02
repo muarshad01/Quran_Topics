@@ -1,15 +1,3 @@
-#### [Munafiq Ki-Nishaani | Signs-of-a-Hypocrite | Irfan-ul-Haq](https://www.youtube.com/watch?v=BCrSjrHBGks)
-
-***
-
-#### [Ibadat Bohoth ai Lekin Kuch Qabool Nahi Horha | Irfan-ul-Haq](https://www.youtube.com/watch?v=zRSo6AB5W1o)
-* The chief of the hypocrites, __Abdullah bin Ubayy bin Salul__, the enemy of the Prophet. Abdullah bin Ubayy's full name is Abdullah bin Ubayy bin Salul, after his mother.
-* Masjid al-Dirar
-* __Surah At-Tawba 9/80__: [˹It does not matter˺ whether you ˹O Prophet˺ pray for them to be forgiven or not. Even if you pray for their forgiveness seventy times, Allah will never forgive them. That is because they have lost faith in Allah and His Messenger. And Allah does not guide the rebellious people.](https://quranwbw.com/9/80)
-* __Surah At-Tawba 9/84__: [And do not ever offer ˹funeral˺ prayers for any of their dead, nor stand by their grave ˹at burial˺, for they have lost faith in Allah and His Messenger and died rebellious.](https://quranwbw.com/9/84)
-
-***
-
 * __Surah Al-Baqarah  2/8-20__: [](https://quranwbw.com/2/8-20)
 * __Surah Al-Baqarah 2/14-15__: [](https://quranwbw.com/2/14-15)
 
@@ -57,5 +45,17 @@
 * __Surah Al-Munafiqun 63/4__: [۞ وَإِذَا رَأَيْتَهُمْ تُعْجِبُكَ أَجْسَامُهُمْ ۖ وَإِن يَقُولُوا۟ تَسْمَعْ لِقَوْلِهِمْ ۖ كَأَنَّهُمْ خُشُبٌۭ مُّسَنَّدَةٌۭ ۖ يَحْسَبُونَ كُلَّ صَيْحَةٍ عَلَيْهِمْ ۚ هُمُ ٱلْعَدُوُّ فَٱحْذَرْهُمْ ۚ قَـٰتَلَهُمُ ٱللَّهُ ۖ أَنَّىٰ يُؤْفَكُونَ ٤](https://quranwbw.com/63/4)
 * __Surah Al-Munafiqun 63/5-6__: [وَإِذَا قِيلَ لَهُمْ تَعَالَوْا۟ يَسْتَغْفِرْ لَكُمْ رَسُولُ ٱللَّهِ لَوَّوْا۟ رُءُوسَهُمْ وَرَأَيْتَهُمْ يَصُدُّونَ وَهُم مُّسْتَكْبِرُونَ ٥...سَوَآءٌ عَلَيْهِمْ أَسْتَغْفَرْتَ لَهُمْ أَمْ لَمْ تَسْتَغْفِرْ لَهُمْ لَن يَغْفِرَ ٱللَّهُ لَهُمْ ۚ إِنَّ ٱللَّهَ لَا يَهْدِى ٱلْقَوْمَ ٱلْفَـٰسِقِينَ](https://quranwbw.com/63/5-6)
 * __Surah Al-Munafiqun 63/7-8__: [هُمُ ٱلَّذِينَ يَقُولُونَ لَا تُنفِقُوا۟ عَلَىٰ مَنْ عِندَ رَسُولِ ٱللَّهِ حَتَّىٰ يَنفَضُّوا۟ ۗ وَلِلَّهِ خَزَآئِنُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَلَـٰكِنَّ ٱلْمُنَـٰفِقِينَ لَا يَفْقَهُونَ......يَقُولُونَ لَئِن رَّجَعْنَآ إِلَى ٱلْمَدِينَةِ لَيُخْرِجَنَّ ٱلْأَعَزُّ مِنْهَا ٱلْأَذَلَّ ۚ وَلِلَّهِ ٱلْعِزَّةُ وَلِرَسُولِهِۦ وَلِلْمُؤْمِنِينَ وَلَـٰكِنَّ ٱلْمُنَـٰفِقِينَ لَا يَعْلَمُونَ](https://quranwbw.com/63/7-8)
+
+***
+
+#### [Ibadat Bohoth ai Lekin Kuch Qabool Nahi Horha | Irfan-ul-Haq](https://www.youtube.com/watch?v=zRSo6AB5W1o)
+* The chief of the hypocrites, __Abdullah bin Ubayy bin Salul__, the enemy of the Prophet. Abdullah bin Ubayy's full name is Abdullah bin Ubayy bin Salul, after his mother.
+* Masjid al-Dirar
+* __Surah At-Tawba 9/80__: [˹It does not matter˺ whether you ˹O Prophet˺ pray for them to be forgiven or not. Even if you pray for their forgiveness seventy times, Allah will never forgive them. That is because they have lost faith in Allah and His Messenger. And Allah does not guide the rebellious people.](https://quranwbw.com/9/80)
+* __Surah At-Tawba 9/84__: [And do not ever offer ˹funeral˺ prayers for any of their dead, nor stand by their grave ˹at burial˺, for they have lost faith in Allah and His Messenger and died rebellious.](https://quranwbw.com/9/84)
+
+***
+
+#### [Munafiq Ki-Nishaani | Signs-of-a-Hypocrite | Irfan-ul-Haq](https://www.youtube.com/watch?v=BCrSjrHBGks)
 
 ***

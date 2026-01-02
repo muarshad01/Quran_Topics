@@ -1,3 +1,10 @@
+
+#### 7 paths
+* __Surah 23/17 (فَوْقَكُمْ سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا فَوْقَكُمْ سَبْعَ طَرَآئِقَ وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
+* https://www.youtube.com/watch?v=dYRxt2iN60c
+
+***
+
 ## Seven Heavens and Earths
 * __Surah Talaq 65/12__: [Allah is the One Who created seven heavens ˹in layers˺, and likewise for the earth](https://quran.com/65/12)
   * `Mislahunna`

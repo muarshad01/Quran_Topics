@@ -79,7 +79,7 @@
 #### [13/19 Muallim-ul-Quran | Urdu Test 2 معلم القرآن ٹیسٹ نمبر](https://www.youtube.com/watch?v=UmC2D1483cw)
 ***
 
-#### [Urdu Lesson 11 | Muallim-ul-Quran](https://www.youtube.com/watch?v=I3SM4c7EDSY)
+#### [14/19 Muallim-ul-Quran | Urdu Lesson 11 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=I3SM4c7EDSY)
 1. __Inni (أن)__ with a (Zair under Nun)
 2. __Yanni (ين)__ with a (Zair under Nun)
 * __Surah Al-Baqarah 2/102 (They both Teach: (يُعَلِّمَانِ)__: [وَٱتَّبَعُوا۟ مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟ يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
@@ -111,16 +111,16 @@
 
 ***
 
-#### [Urdu Lesson 12 | Muallim-ul-Quran](https://www.youtube.com/watch?v=pKQtntSiPvo)
+#### [15/19 Muallim-ul-Quran | Urdu Lesson 12 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=pKQtntSiPvo)
 
 ***
 
-#### [Urdu Lesson 13 | Muallim-ul-Quran](https://www.youtube.com/watch?v=s7oUWHnQ0eI)
+#### [16/19 Muallim-ul-Quran | Urdu Lesson 13 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=s7oUWHnQ0eI)
 * __lā (لا) and mā (ما)__
 
 ***
 
-#### [Urdu Lesson 14 | Muallim-ul-Quran](https://www.youtube.com/watch?v=7gvzXBy581A) -- 12/31/2025
+#### [17/19 Muallim-ul-Quran | Urdu Lesson 14 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=7gvzXBy581A) -- 12/31/2025
 * Be" (بِ)
 * __Surah At-Taghuban 64/2 (وَٱللَّهُ بِمَا تَعْمَلُونَ بَصِيرٌ)__: [](https://quran.com/64/2)
 * __Surah An-Nisa 4/36 (وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا)__: [](https://quran.com/4/36)
@@ -140,9 +140,9 @@
 
 ***
 
-#### [Urdu Lesson 15 | Muallim-ul-Quran](https://www.youtube.com/watch?v=J2YBQ6XeFU0)
+#### [18/19 Muallim-ul-Quran | Urdu Lesson 15 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=J2YBQ6XeFU0)
 ***
 
-#### [Urdu Test 3| Muallim-ul-Quran](https://www.youtube.com/watch?v=DA-JFxcJumc)
+#### [19/19 Muallim-ul-Quran | Urdu Test 3 معلم القرآن ٹیسٹ نمبر](https://www.youtube.com/watch?v=DA-JFxcJumc)
 
 ***

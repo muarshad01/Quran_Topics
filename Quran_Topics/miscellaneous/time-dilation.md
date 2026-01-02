@@ -11,7 +11,7 @@
 
 *** 
 
-#### [Technology That Allah Used on Ashab-e-Kahf](https://www.youtube.com/watch?v=gfKRJJTZv5k)
+#### [Technology That Allah Used on Ashab-e-Kahf | Abdus Salam Arif](https://www.youtube.com/watch?v=gfKRJJTZv5k)
 
 #### Dilation of time
 * `Time dilation` is a physical phenomenon in which time moves differently-for-different-observers in-the-same-inertial-frame (in which there is no acceleration between them).

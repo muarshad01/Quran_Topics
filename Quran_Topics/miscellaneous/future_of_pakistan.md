@@ -1,5 +1,5 @@
 #### [New Year 2026: A Spiritual Perspective on Pakistan & the World | Syed Sarfaraz Ahmad Shah](https://www.youtube.com/@FatimaSaifofficial)
-* Many Indian Tahreeks will be successful and it will be divided.
+* Many Indian Movements will be successful and it will be divided.
   
 ***
 

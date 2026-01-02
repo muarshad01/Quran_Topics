@@ -2,7 +2,7 @@
 
 ***
 
-#### [Rishtay Aur Sabr-o-Bardasht](https://www.youtube.com/shorts/MDFbeKDnm9I)
+#### [Rishtay Aur Sabr-o-Bardasht | SSA Shah](https://www.youtube.com/shorts/MDFbeKDnm9I)
 * FAQEER wo hai, jis-nay __DUNYA-ko-TUKHRAYA__
 
 ***

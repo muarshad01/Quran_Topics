@@ -113,3 +113,8 @@
 #### [Nigahe-e-Faqar Mein | Bal-e--Jibril 45 Ghazal with Explanation](https://www.youtube.com/watch?v=_mzRfTq_r00)
 
 ***
+
+#### [Signs of a Genuine Faqeer | حقیقی فقیر کی پہچان—دو زبردست ٹیسٹ | SSA Shah](https://www.youtube.com/watch?v=_iT2O7iMTq0)
+1. Litmus Test (You'll feel attraction; Meet to want him again; Feel peace of mind.)
+2. Long-term Test (Faqeer doesn't advice...but you start following good path...)
+***

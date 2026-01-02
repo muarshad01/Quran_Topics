@@ -1,5 +1,4 @@
 * __Surah Al-Baqarah  2/8-20__: [](https://quranwbw.com/2/8-20)
-* __Surah Al-Baqarah 2/14-15__: [](https://quranwbw.com/2/14-15)
 
 ***
 

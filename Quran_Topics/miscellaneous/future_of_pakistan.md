@@ -1,3 +1,8 @@
+#### [New Year 2026: A Spiritual Perspective on Pakistan & the World | Syed Sarfaraz Ahmad Shah](https://www.youtube.com/@FatimaSaifofficial)
+* Many Indian Tahreeks will be successful and it will be divided.
+  
+***
+
 #### [Defeat Is Not-our-Destiny, Victory is-Our Legacy | Professor ARA](https://www.youtube.com/watch?v=ks8Aawt_MSQ)
 * __Surah 17/70__: [۞ وَلَقَدْ كَرَّمْنَا بَنِىٓ ءَادَمَ](https://quran.com/17/70)
 

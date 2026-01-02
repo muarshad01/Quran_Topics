@@ -32,10 +32,6 @@
 
 ***
 
-#### [Time and Temporality in Quran: Theoretical and Practical Dimensions | Dr Abdus Salam Arif Explained](https://www.youtube.com/watch?v=HsNvop_79lc)
-
-***
-
 #### [Israel Ki Dajjal Ko Lany Ki Tyari | Abdus Salam Arif](https://www.youtube.com/watch?v=1hgzyd8iSrM)
 * __Surah Tawba 09/37 (ٱلنَّسِىٓءُ)__: [إِنَّمَا ٱلنَّسِىٓءُ زِيَادَةٌۭ فِى ٱلْكُفْرِ ۖ يُضَلُّ بِهِ ٱلَّذِينَ كَفَرُوا۟ يُحِلُّونَهُۥ عَامًۭا وَيُحَرِّمُونَهُۥ عَامًۭا لِّيُوَاطِـُٔوا۟ عِدَّةَ مَا حَرَّمَ ٱللَّهُ فَيُحِلُّوا۟ مَا حَرَّمَ ٱللَّهُ ۚ زُيِّنَ لَهُمْ سُوٓءُ أَعْمَـٰلِهِمْ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلْكَـٰفِرِينَ](https://quran.com/9/37)
 
@@ -53,5 +49,9 @@
 * __Surah Taha 20/88 (فَنَسِىَ)__: [فَأَخْرَجَ لَهُمْ عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌۭ ...فَقَالُوا۟ هَـٰذَآ إِلَـٰهُكُمْ وَإِلَـٰهُ مُوسَىٰ فَنَسِىَ](https://quran.com/20/88)
 * __Surah Al-Anbiyaa 21/8__: [وَمَا جَعَلْنَـٰهُمْ جَسَدًۭا لَّا يَأْكُلُونَ ٱلطَّعَامَ وَمَا كَانُوا۟ خَـٰلِدِينَ](https://quran.com/21/8)
 * __Surah Saad 38/34__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا ثُمَّ أَنَابَ](https://quran.com/38/34)
+
+***
+
+#### [Time and Temporality in Quran: Theoretical and Practical Dimensions | Dr Abdus Salam Arif Explained](https://www.youtube.com/watch?v=HsNvop_79lc)
 
 ***

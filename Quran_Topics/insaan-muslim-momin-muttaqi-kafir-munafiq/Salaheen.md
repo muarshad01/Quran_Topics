@@ -1,4 +1,4 @@
-#### [(29) Chapter: The invocation of the Prophet (saws) "O Allah! The Highest Companion"](https://sunnah.com/bukhari:6348)-- Sahih al-Bukhari 6348
+#### [(29) Chapter: The invocation of the Prophet (saws) "O Allah! The Highest Companion" (اللَّهُمَّ الرَّفِيقَ الأَعْلَى ‏"‏‏.‏)](https://sunnah.com/bukhari:6348)-- Sahih al-Bukhari 6348
 
 ***
 

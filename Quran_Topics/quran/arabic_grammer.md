@@ -16,9 +16,6 @@
 
 #### [05/19 Muallim-ul-Quran | Urdu Lesson 04 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=nh_19ZG1OZ4)
 
-
-
-
 ***
 
 #### [06/19 Muallim-ul-Quran | Urdu Lesson 05 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=HpBs8rAUPzA)
@@ -41,7 +38,7 @@
 * Kunti (كنتِ)
 * Alimti (علمتِ)
 * Nasarti (نصرتِ)
-### Too (تُ): May Nay; Both Muzakir and Mounis
+#### Too (تُ): May Nay; Both Muzakir and Mounis
 * __Surah Al-Baqarah 2/47 (أَنْعَمْتُ)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ ...أَنْعَمْتُ... عَلَيْكُمْ وَأَنِّى فَضَّلْتُكُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/47)
 * __Surah Adh-Dhariyat 51/56__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/51/56)
 * __Surah Al-Qasas 28/16 (ظَلَمْتُ نَفْسِى)__: [قَالَ رَبِّ إِنِّى... ظَلَمْتُ نَفْسِى... فَٱغْفِرْ لِى فَغَفَرَ لَهُۥٓ ۚ إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/28/16)

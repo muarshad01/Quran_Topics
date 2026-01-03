@@ -23,8 +23,7 @@
 
 #### [06/19 Muallim-ul-Quran | Urdu Lesson 05 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=HpBs8rAUPzA)
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_05.png
-" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_05.png" width="300" height="300" />
 
 #### Taa (تَ): Wahid Muzakir
 * __Surah Ale-Imran 3/191 (وَٱلْأَرْضِ رَبَّنَا مَا خَلَقْتَ هَـٰذَا بَـٰطِلًۭا)__: [ٱلَّذِينَ يَذْكُرُونَ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِهِمْ... وَيَتَفَكَّرُونَ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ...رَبَّنَا مَا خَلَقْتَ هَـٰذَا بَـٰطِلًۭا ...سُبْحَـٰنَكَ فَقِنَا عَذَابَ ٱلنَّارِ](https://quran.com/3/191)

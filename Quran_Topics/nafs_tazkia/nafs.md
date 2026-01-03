@@ -88,3 +88,8 @@
 #### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟ | SSA Shah](https://www.youtube.com/watch?v=XB1lK4VqDXA)
 
 ***
+
+* __Surah 81/14__: []()
+* __Surah 82/5__: []()
+
+*** 

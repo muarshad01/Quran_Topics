@@ -88,7 +88,7 @@
    * Remain in Halat-e-Soyoh
 * 12: `Raqeeb al Al'Haqq`: Don't reveal themselves
    * Mansur Al-Hallaj
-   * Bayazid Bastami 
+   * Bayazid Bastami (Jo aik bhi sunnat tarak karta hai, woh rohaniyat ki khosboo bhi nahi paa sakta!)
 * 13: `QUTUB`: Only 3 (`Syed Mohammad Baba Taj-ud-din`)
    * Compass: Qutub Numa, they protect the 4 corners (East, West, North, South) of Earth
    * Performs his duty on `1/3-rd` of world

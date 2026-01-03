@@ -1,3 +1,7 @@
+#### [This Will Change How You See the World | SSA Shah | Powerful Spiritual Message](https://www.youtube.com/watch?v=f0QO_j6HFc8)
+* India will be divided into 20 parts. @52:40
+***
+
 #### [New Year 2026: A Spiritual Perspective on Pakistan & the World | Syed Sarfaraz Ahmad Shah](https://www.youtube.com/@FatimaSaifofficial)
 * Many Indian Movements will be successful and it will be divided.
   

@@ -1,4 +1,8 @@
-* https://musjidulhaq.com/2015/06/15/four-exemplary-women-mentioned-in-the-holy-quran/
+#### [Four Exemplary Women Mentioned In The Holy Quran](https://musjidulhaq.com/2015/06/15/four-exemplary-women-mentioned-in-the-holy-quran/)
+1. __Waailah__: She was Hazrat Loot’s – peace be upon him – wife.
+2. __Waahela__: She was the wife of Hazrat Nooh – peace be upon him.
+3. __Maryam__ - Mother of Jesus AS
+4. __Aasiyah__ - Wife of Pharaoh
 
 ***
 

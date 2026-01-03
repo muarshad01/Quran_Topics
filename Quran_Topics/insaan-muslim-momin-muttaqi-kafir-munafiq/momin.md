@@ -15,15 +15,6 @@ Grade: Muttafaqun Alayhi (authenticity agreed upon) according to Al-Bukhari and 
 ```
 ***
 
-#### [Forty Rules of Love | Irfan-ul-Haq](https://www.youtube.com/watch?v=PgEgW_8ojY0)
-
-#### [Quranic Values in Action: Attributes of becoming a Momin](https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/)
-#### [Attributes of True Believers (Momin)](https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/)
-#### [15 Traits of a Momin According to the Quran](https://islamicmentors.com/15-traits-of-a-momin/)
-#### [True Believer or Momin – 10 Signs As in Quran and Hadith](https://islam180.com/signs-of-a-true-believer-momin/)
-
-*** 
-
 * __Surah Al-Baqarah 2/3-4__: [](https://quran.com/2/3-5)
 * __Surah Al-Baqarah 2/62__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَٱلَّذِينَ هَادُوا۟ وَٱلنَّصَـٰرَىٰ وَٱلصَّـٰبِـِٔينَ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَعَمِلَ صَـٰلِحًۭا فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/62)
 * __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةً وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
@@ -228,5 +219,25 @@ Grade: Muttafaqun Alayhi (authenticity agreed upon) according to Al-Bukhari and 
 * “None of you truly believes until he loves for his brother what he loves for himself.” — Bukhari & Muslim
 
 * “A believer is not one who taunts, curses, speaks obscenely or is abusive.” — Tirmidhi
+
+***
+
+#### [Forty Rules of Love | Irfan-ul-Haq](https://www.youtube.com/watch?v=PgEgW_8ojY0)
+
+***
+
+#### [Quranic Values in Action: Attributes of becoming a Momin](https://www.islamicity.org/92127/quranic-values-in-action-attributes-of-becoming-a-momin/)
+
+***
+
+#### [Attributes of True Believers (Momin)](https://tehreekdawatefaqr.com/attributes-of-true-believers-momin/)
+
+***
+
+#### [15 Traits of a Momin According to the Quran](https://islamicmentors.com/15-traits-of-a-momin/)
+
+***
+
+#### [True Believer or Momin – 10 Signs As in Quran and Hadith](https://islam180.com/signs-of-a-true-believer-momin/)
 
 ***

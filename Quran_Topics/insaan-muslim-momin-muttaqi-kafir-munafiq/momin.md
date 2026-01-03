@@ -1,3 +1,7 @@
+* TAQWA-aur-ILM ki rahoon-par bohot-agay-niklay -- SSA Shah
+
+***
+
 * __Surah Al-Baqarah 2/3-4__: [](https://quran.com/2/3-5)
 * __Surah Al-Baqarah 2/62__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَٱلَّذِينَ هَادُوا۟ وَٱلنَّصَـٰرَىٰ وَٱلصَّـٰبِـِٔينَ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَعَمِلَ صَـٰلِحًۭا فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/62)
 * __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةً وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
@@ -150,7 +154,7 @@
 ***
 
 #### [3-Qualities of Pious Men | SSA Shah](https://www.youtube.com/watch?v=Ye5ijz8oigA)
-* GF: Giving (أَنْفِقُوا) and Forgiving (وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ)
+* __GF__: Giving (أَنْفِقُوا) and Forgiving (وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ)
 1. __Forgiving__: Darr-guzar-aur-muaff karnay ki-siffat ([وَٱلْكَـٰظِمِينَ ٱلْغَيْظَ وَٱلْعَافِينَ عَنِ ٱلنَّاسِ ۗ](https://quran.com/3/134))
 2. __Giving__: Apni zarooriat-ko pase-pushat daal-kar, doosron-kay-kam-anay ki-siffat
 3. Dastar-khawn wasee-rakhney ki-siffat

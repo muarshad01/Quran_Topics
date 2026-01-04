@@ -8,10 +8,10 @@
 * The - (ال)
 * A - Tanwin - Two Zabar, Two Zeer, Two Paish
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-1.png" width="200" height="200" />
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-2.png" width="200" height="200" />
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-3.png" width="200" height="200" />
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-4.png" width="200" height="200" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-1.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-2.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-3.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_01-4.png" width="300" height="300" />
 
 ***
 

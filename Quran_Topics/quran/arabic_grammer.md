@@ -1,3 +1,5 @@
+#### [Quran Tehreek](https://www.youtube.com/@qurantehreek)
+
 #### [Learn Quran in Urdu](https://www.youtube.com/@LEARNQURANINURDU-LearnQuran/videos)
 
 #### [Quran Dictionary](https://corpus.quran.com/qurandictionary.jsp)
@@ -338,5 +340,46 @@
 ***
 
 #### [19/19 Muallim-ul-Quran | Urdu Test 3 معلم القرآن ٹیسٹ نمبر](https://www.youtube.com/watch?v=DA-JFxcJumc)
+
+***
+***
+
+#### [Translate Quran with Symbolic way of learning without difficult ArabicGrammar by yourself stepbystep](https://www.youtube.com/watch?v=WzBKKrA2-Kg)
+##### [Alif (ا), Taa (ت), Nun (ن), Yaa (ي)]  - (اتني)
+* If they come at beginning (Present / Future tense)
+* If they come at the end (Past tense)
+1. Alif (ا) - Mayn (I) - Adkhlu
+2. Taa (ت)  - Toh (You) - Tadkhlu
+3. Nun (ن) - Hum (We) - Nadkhlu
+4. Yaa (ي) - Woh (They) - Yadkhlu
+
+***
+
+##### [Naa, Kaf, Hay, Ya] - (ناكهي)
+* They come at end-of-workd
+* They tell us about relationship of something-with-something
+1. Na (نا) - Hamari (Our) - Kitabu-na - Rabbu-na
+2. Kaaf (ك) - Teri (Your) - Kitabu-ka - Rabbu-ka
+3. Haa (ه) - Uski (His) - Kitabu-Hu - Rabbu-Hu
+4. Yaa (ي) - Meri (Mine) - Kitab-yeh - Rabbi
+  
+***
+
+#### [Darood W Dua | Learn Quran translation / Terjuma in urdu without grammer](https://www.youtube.com/watch?v=a-jPM6SJ82E&list=PLTEgVp6nUOWYZkdrA-aFtc9tBkA4MUoMZ)
+
+***
+
+#### [Revision, Grammar Level 1 | Part 1 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=abw2B0NTvKc)
+* __Surah Al-Baqarah 2/1251 (وَقَتَلَ دَاوُۥدُ جَالُوتَ)__: [](https://quran.com/2/251)
+* Paish - Nay
+* Zabar - Koo
+
+***
+
+#### [Revision, Grammar Level 1 | Part 2 | Understand Quran Course | Dr.Khawaja Zafar Elahi](https://www.youtube.com/watch?v=W62Yg5NwBeY)
+
+***
+
+#### [PIMA Learn and Teach Quran Course | Level-1 | Class-1 | Dr. Khawaja Zafar Elahi](https://www.youtube.com/watch?v=W4D9SmxOOOI&list=PLnZCmdIulM29fMxnmqbE1FWHGqQmn_VEv&index=22)
 
 ***

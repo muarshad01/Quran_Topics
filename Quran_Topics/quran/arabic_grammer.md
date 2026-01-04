@@ -294,8 +294,11 @@
 
 ***
 
-#### [17/19 Muallim-ul-Quran | Urdu Lesson 14 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=7gvzXBy581A) -- 12/31/2025
+#### [17/19 Muallim-ul-Quran | Urdu Lesson 14 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=7gvzXBy581A)
 * Be" (بِ)
+
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_14.png" width="300" height="300" />
+
 * __Surah At-Taghuban 64/2 (وَٱللَّهُ بِمَا تَعْمَلُونَ بَصِيرٌ)__: [](https://quran.com/64/2)
 * __Surah An-Nisa 4/36 (وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا)__: [](https://quran.com/4/36)
 * __Surah Ale-Imran 3/3 (نَزَّلَ عَلَيْكَ ٱلْكِتَـٰبَ بِٱلْحَقِّ)__: [](https://quran.com/3/3)

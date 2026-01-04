@@ -297,6 +297,7 @@
 ***
 
 #### [15/19 Muallim-ul-Quran | Urdu Lesson 12 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=pKQtntSiPvo)
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_12.png" width="300" height="300" />
 
 ***
 

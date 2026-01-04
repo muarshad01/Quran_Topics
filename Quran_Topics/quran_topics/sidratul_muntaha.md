@@ -35,3 +35,7 @@
 #### [surah najm tafseer by nouman ali khan | nouman ali khan lectures](https://www.youtube.com/watch?v=ZaQRdbtVvqw)
 
 ***
+
+#### [Sidra Tul Muntaha Secrets | Sidrat al-Muntaha Ky Nichy Rivers Ky Raaz | Ft. Abdul Salam Arif](https://www.youtube.com/watch?v=FjRs3koYhO0)
+
+***

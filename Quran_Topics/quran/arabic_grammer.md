@@ -254,6 +254,8 @@
 
 #### [12/19 Muallim-ul-Quran | Urdu Lesson 10 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=3zEFsnSRv4Y)
 
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_10.png" width="300" height="300" />
+
 ***
 
 #### [13/19 Muallim-ul-Quran | Urdu Test 2 معلم القرآن ٹیسٹ نمبر](https://www.youtube.com/watch?v=UmC2D1483cw)

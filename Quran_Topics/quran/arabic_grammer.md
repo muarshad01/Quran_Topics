@@ -203,7 +203,7 @@
 
 #### [10/19 Muallim-ul-Quran | Urdu Lesson 08 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=Zeqbjl39tjg) -- 01/01/2026
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_8.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_08.png" width="300" height="300" />
 
 * __The following [Huma" (هما), Kuma" (كُمَا), Tūmā (تُومَا)] words come at the end of a word and depict TWO__
 * __Huma" (هما)__: Dual pronoun meaning "they (two)," as in "both of them". Woh Doono!!! 

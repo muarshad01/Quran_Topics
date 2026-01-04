@@ -6,6 +6,10 @@
 
 ***
 
+#### [Wo Musalman Jin Ki Rooh Arsh Elahi K Nechy Sajda Karti Hai | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=E6_C1fawm_s)
+
+***
+
 * __Surah Al-A'raf 7/206__: [إِنَّ ٱلَّذِينَ عِندَ رَبِّكَ لَا يَسْتَكْبِرُونَ عَنْ عِبَادَتِهِۦ وَيُسَبِّحُونَهُۥ وَلَهُۥ يَسْجُدُونَ ۩](https://quranwbw.com/7/206)
 
 * __Surah Sajdah 13/15__: [وَلِلَّهِ يَسْجُدُ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ طَوْعًۭا وَكَرْهًۭا وَظِلَـٰلُهُم بِٱلْغُدُوِّ وَٱلْـَٔاصَالِ ۩](https://quran.com/13/15)

@@ -246,6 +246,9 @@
 ***
 
 #### [11/19 Muallim-ul-Quran | Urdu Lesson 09 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=Z6I2JnOCfds)
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_09-1.png" width="200" height="200" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_09-2.png" width="200" height="200" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_09-3.png" width="200" height="200" />
 
 ***
 

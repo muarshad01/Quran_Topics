@@ -23,8 +23,6 @@
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_02-3.png" width="300" height="300" />
 
-
-
 #### Aitni (اتنى)
 
 #### I (أ) - Mayn
@@ -204,6 +202,8 @@
 ***
 
 #### [09/19 Muallim-ul-Quran | Urdu Lesson 07 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=3dq2-TrnLvc)
+
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_07.png" width="300" height="300" />
 
 ***
 

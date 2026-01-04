@@ -6,6 +6,10 @@
 
 ***
 
+#### [Muallimulquran - Playlist](https://www.youtube.com/playlist?list=PLltWGYg21tg-5lgsker79H8yrifglA6UG)
+
+***
+
 #### [02/19 Muallim-ul-Quran | Urdu Lesson 01 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=9vqUgQeURz0)
 * The - (ال)
 * A - Tanwin - Two Zabar, Two Zeer, Two Paish

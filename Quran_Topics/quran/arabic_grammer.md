@@ -304,6 +304,9 @@
 #### [16/19 Muallim-ul-Quran | Urdu Lesson 13 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=s7oUWHnQ0eI)
 * __lā (لا) and mā (ما)__
 
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_13-1.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_13-2.png" width="300" height="300" />
+
 ***
 
 #### [17/19 Muallim-ul-Quran | Urdu Lesson 14 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=7gvzXBy581A)

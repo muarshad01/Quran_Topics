@@ -1,5 +1,7 @@
 #### [Learn Quran in Urdu](https://www.youtube.com/@LEARNQURANINURDU-LearnQuran/videos)
 
+#### [Quran Dictionary](https://corpus.quran.com/qurandictionary.jsp)
+
 ***
 
 #### [02/19 Muallim-ul-Quran | Urdu Lesson 01 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=9vqUgQeURz0)

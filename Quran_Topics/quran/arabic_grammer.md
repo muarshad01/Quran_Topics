@@ -10,8 +10,10 @@
 
 #### [03/19 Muallim-ul-Quran | Urdu Lesson 02 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=dTZW5y33Ojo)
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_02-1.png" width="300" height="300" />
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_02-2.png" width="300" height="300" />
+
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_02-1.png" width="300" height="300" />
+
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_02-3.png" width="300" height="300" />
 
 

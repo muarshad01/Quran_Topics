@@ -195,8 +195,8 @@
 
 #### [08/19 Muallim-ul-Quran | Urdu Lesson 06 معلم القرآن سبق نمبر](https://www.youtube.com/watch?v=zp8BkGuUiOE)
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_06-1.png" width="300" height="300" />
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson_06-2.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson-06-1.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/quran_grammer/lesson-06-2.png" width="300" height="300" />
 
 * __Surah As-Saffat 37/19 (هِىَ زَجْرَةٌۭ)__: [فَإِنَّمَا ...هِىَ زَجْرَةٌۭ ...وَٰحِدَةٌۭ فَإِذَا هُمْ يَنظُرُونَ](https://quran.com/37/19)
 * __Surah At-Tur 52/9__: [يَوْمَ ...تَمُورُ ٱلسَّمَآءُ... مَوْرًۭا](https://quran.com/52/9)

@@ -9,7 +9,7 @@
 
 #### Misbaah - Fanous (Lantern)
 * Human `HEART` is like a `Fanous (Lantern)`
-* __Surah Al-Hujurat 49/14 (وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ...)__: [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
+* __Surah Al-Hujurat 49/14 (وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ...)__: [ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ... وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ... لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
 * If the glass-of-Lantern is foggy then the-light-will-not-be-able-to-spread-out and will remain trapped-inside
 * Once we clean / purify our HEART (i.e. clean the Lantern glass) then the Lantern light, which fells upon it, refrects and spreads out in all directions
 * Heart has 10 impurities (Al-Ghazali [1058 – 1111])

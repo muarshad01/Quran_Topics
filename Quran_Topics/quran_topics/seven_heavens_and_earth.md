@@ -24,10 +24,6 @@
 
 ***
 
-#### [Dunia Zameen aur Surah Talaq | Sahil Adeem](https://www.youtube.com/watch?v=AayDuy89h94)
-
-***
-
 #### [Every Sky have a Separate Earth? | دنیا ،زمین اور ارض | Sahil Adeem](https://www.youtube.com/watch?v=EMgWDRMGwWU)
 
 ***

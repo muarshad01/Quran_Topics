@@ -3,6 +3,10 @@
 
 ***
 
+#### [Iblees ko kis ne gumrah kiya? Gunnah ka asal zimmedar kaun? Hairat angez haqeeqat! | Mufti Muneer](https://www.youtube.com/watch?v=OGek7vLuKKY)
+
+***
+
 * __Surah At-Tahrim 66/6__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ قُوٓا۟ أَنفُسَكُمْ وَأَهْلِيكُمْ نَارًۭا وَقُودُهَا ٱلنَّاسُ وَٱلْحِجَارَةُ عَلَيْهَا مَلَـٰٓئِكَةٌ غِلَاظٌۭ شِدَادٌۭ لَّا يَعْصُونَ ٱللَّهَ مَآ أَمَرَهُمْ وَيَفْعَلُونَ مَا يُؤْمَرُونَ](https://quran.com/66/6)
 
 ***

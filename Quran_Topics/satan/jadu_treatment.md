@@ -335,3 +335,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Jaadu Karne Wala Ghar Ya Daftar Mein Ho To Kesay Pata Chaly? | Abdullah Bhatti | Faqeer Di Dua](https://www.youtube.com/watch?v=k-bzYoT8hcA)
+
+***
+
+#### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Abdullah Bhatti |Faqeer Di Dua](https://www.youtube.com/watch?v=JOiGIOVyd9M)

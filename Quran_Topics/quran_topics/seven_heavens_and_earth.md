@@ -16,7 +16,7 @@
 
 ***
 
-#### [7 Zameen Aur 7 Asman | Abdus Salam Analysis](https://www.youtube.com/watch?v=ibFk3gd69po)
+#### [7 Zameen Aur 7 Asman | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=ibFk3gd69po)
 
 ***
 

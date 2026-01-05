@@ -559,3 +559,12 @@ The name "Muhammad" (in Arabic: مُحَمَّدٌ) appears 4-time and Ahmed 1-t
 
 
 * __Surah Al-Anam 6/50 (قُل لَّآ أَقُولُ)__: [قُل لَّآ أَقُولُ... لَكُمْ عِندِى خَزَآئِنُ ٱللَّهِ وَلَآ أَعْلَمُ ٱلْغَيْبَ وَلَآ أَقُولُ لَكُمْ إِنِّى مَلَكٌ ۖ إِنْ أَتَّبِعُ إِلَّا مَا يُوحَىٰٓ إِلَىَّ ۚ قُلْ هَلْ يَسْتَوِى ٱلْأَعْمَىٰ وَٱلْبَصِيرُ ۚ أَفَلَا تَتَفَكَّرُونَ](https://quran.com/6/50)
+
+***
+
+#### Prophet PBUH prayer
+* `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`
+* `al-masakeen`, which refers to the needy. 
+  * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
+
+***

@@ -64,7 +64,7 @@
 |5. (-AA-)| [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 01/01/2026 |
 |6. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 12/06/2025 |
 |7. | [Allah SWT - Blessing](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_blessings.md) | 12/6/2025 |
-|8. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 12/6/2025 |
+|8. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 05/01/2026 |
 |9. | [Fazl (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_fazl.md)| 12/6/2025 |
 
 ***

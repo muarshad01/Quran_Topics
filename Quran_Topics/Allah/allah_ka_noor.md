@@ -88,8 +88,8 @@
 ***
 
 #### [Surah Noor Ayat 35 | Abdul Salam Arif](https://www.youtube.com/watch?v=5OOqltEafDY)
-   *  Samavaat and `Noor (type of Energy)`, there are two things
-   * __Surah Talaq 65/12 (7 Heavens & Earths__): [Allah is the One Who created seven heavens ˹in layers˺, and likewise for the earth. The ˹divine˺ command descends between them so you may know that Allah is Most Capable of everything and that Allah certainly encompasses all things in ˹His˺ knowledge.](https://quran.com/65/12)
+*  Samavaat and `Noor (is a type of Energy)`, there are two things
+* __Surah At-Talaq 65/12 (7 Heavens and Earths__): [ٱللَّهُ ٱلَّذِى... خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ ...يَتَنَزَّلُ ٱلْأَمْرُ بَيْنَهُنَّ... لِتَعْلَمُوٓا۟ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ وَأَنَّ ٱللَّهَ قَدْ أَحَاطَ بِكُلِّ شَىْءٍ عِلْمًۢا](https://quran.com/65/12)
 
 ***
 

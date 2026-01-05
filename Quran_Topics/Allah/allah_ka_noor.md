@@ -71,30 +71,11 @@
  
 ***
 
-#### [Noor kia hy | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
-
-***
-
 #### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
 
 ***
 
-#### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
-
-***
-
-#### [What Is The Meaning of | Allahu nurus Samawati wal ard'| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
-
-***
-
-* Paki: Intellectual Paki and Maturity
-
-***
-
-#### Prophet PBUH prayer
-* `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`
-* `al-masakeen`, which refers to the needy. 
-  * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
+#### [What Is The Meaning of "Allahu Nurus Samawati Wal-ard"| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
 
 ***
 
@@ -102,9 +83,16 @@
 
 ***
 
-#### Surah Noor
-* [Surah Noor Ayat 35](https://www.youtube.com/watch?v=5OOqltEafDY)
+#### [Nobel Prize 2025: Quran and Quantum Physics - Hidden Truths Revealed | Podcast with Saqlain Imam](https://www.youtube.com/watch?v=qvhpbfpKh8A)
+
+***
+
+#### [Surah Noor Ayat 35 | Abdul Salam Arif](https://www.youtube.com/watch?v=5OOqltEafDY)
    *  Samavaat and `Noor (type of Energy)`, there are two things
    * __Surah Talaq 65/12 (7 Heavens & Earths__): [Allah is the One Who created seven heavens ˹in layers˺, and likewise for the earth. The ˹divine˺ command descends between them so you may know that Allah is Most Capable of everything and that Allah certainly encompasses all things in ˹His˺ knowledge.](https://quran.com/65/12)
+
+***
+
+* Paki: Intellectual Paki and Maturity
 
 ***

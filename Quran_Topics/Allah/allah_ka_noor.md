@@ -54,18 +54,6 @@
 
 ***
 
-#### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
-* __Surah Noor 24/35 (Allah SWT is Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ مَثَلُ نُورِهِۦ كَمِشْكَوٰةٍۢ فِيهَا مِصْبَاحٌ ۖ ٱلْمِصْبَاحُ فِى زُجَاجَةٍ ۖ ٱلزُّجَاجَةُ كَأَنَّهَا كَوْكَبٌۭ دُرِّىٌّۭ يُوقَدُ مِن شَجَرَةٍۢ مُّبَـٰرَكَةٍۢ زَيْتُونَةٍۢ لَّا شَرْقِيَّةٍۢ وَلَا غَرْبِيَّةٍۢ يَكَادُ زَيْتُهَا يُضِىٓءُ وَلَوْ لَمْ تَمْسَسْهُ نَارٌۭ ۚ نُّورٌ عَلَىٰ نُورٍۢ ۗ يَهْدِى ٱللَّهُ لِنُورِهِۦ مَن يَشَآءُ ۚ وَيَضْرِبُ ٱللَّهُ ٱلْأَمْثَـٰلَ لِلنَّاسِ ۗ وَٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمٌۭ](https://quran.com/24/35)
-* __Surah Ash-Shuraa 42/52 (Kitab is Noor; Imaan is Noor)__: [وَكَذَٰلِكَ أَوْحَيْنَآ إِلَيْكَ رُوحًۭا مِّنْ أَمْرِنَا ۚ مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا نَّهْدِى بِهِۦ مَن نَّشَآءُ مِنْ عِبَادِنَا ۚ وَإِنَّكَ لَتَهْدِىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ](https://quran.com/42/52)
-* __Surah 5/15 (Shahib Quran is Noor)__: [يَـٰٓأَهْلَ ٱلْكِتَـٰبِ قَدْ جَآءَكُمْ رَسُولُنَا يُبَيِّنُ لَكُمْ كَثِيرًۭا مِّمَّا كُنتُمْ تُخْفُونَ مِنَ ٱلْكِتَـٰبِ وَيَعْفُوا۟ عَن كَثِيرٍۢ ۚ قَدْ جَآءَكُم مِّنَ ٱللَّهِ نُورٌۭ وَكِتَـٰبٌۭ مُّبِينٌۭ](https://quran.com/5/15)
-4. Islam is Noor: []()
-5. Ilm is Noor: []()
-* Woh Ilm dya, jo zulumat ko door-kar-deh
-* Ilm, hikmat, danai, kitaab-ki-rooshi
-* Sara deen doosray-kay haqq-ko pechana-hai
-
-***
-
 #### [Noor-kia-hay | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
 * Hazrat Ali RA was 27 years younger than Prophet Muhammad (PBUH)
 * Christian Bishob `Noor-e-nabuwat`

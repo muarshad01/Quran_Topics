@@ -252,3 +252,7 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 #### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
 
 ***
+
+#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)
+
+***

@@ -58,7 +58,7 @@
 |   | Allah SWT | Last Updated |
 |---|---|---|
 |1. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | 12/06/2025 |
-|2. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 12/06/2025 |
+|2. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 01/05/2026 |
 |3. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) | 12/06/2025 |
 |4. | [Allah SWT - Rehmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_rehmat.md) |12/6/2025 |
 |5. (-AA-)| [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 01/01/2026 |

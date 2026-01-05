@@ -75,11 +75,11 @@
 
 ***
 
-#### [What Is The Meaning of "Allahu Nurus Samawati Wal-ard"| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
+#### [Falsafa-e-Noor | Allama Talib Johri](https://www.youtube.com/watch?v=KBZ8utqcegc)
 
 ***
 
-#### [Falsafa-e-Noor | Allama Talib Johri](https://www.youtube.com/watch?v=KBZ8utqcegc)
+#### [What Is The Meaning of "Allahu Nurus Samawati Wal-ard"| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
 
 ***
 

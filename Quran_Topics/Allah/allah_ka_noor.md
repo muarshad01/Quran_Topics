@@ -29,10 +29,10 @@
 
 #### Concentric Circles of Noor
 * Nool-ul-Alqaa (Laqa: So bright that it became blackish-shiny) [فَمَن كَانَ يَرْجُوا۟ لِقَآءَ رَبِّهِۦ](https://quran.com/18/110)
-* Noor-ul-Marwareed (Prophet PBUH; very shiny-white; Like a drop) - Wajha Takhleeq-e-Kainaat
+* Noor-ul-Marwareed (Prophet PBUH; very white-shiny; Like a drop) - Wajha Takhleeq-e-Kainaat
 * Noor-ul-Huda:
-  * Noor-ul-Huda-Al-momineen [Noor-ul-mutaqeen] (All Anbiaa; Messengers)
-  * Noor-ul-Huda-Al-alameen (All other human beings; Aulia Ikram)
+    * Noor-ul-Huda-Al-momineen [Noor-ul-mutaqeen] (All Anbiaa; Messengers)
+    * Noor-ul-Huda-Al-alameen (All other human beings; Aulia Ikram)
 * Wardatul-Noor-ul Huda
 
 ***
@@ -42,10 +42,10 @@
 * Rohe-Insani was brought to 3th heaven and was given a bath in Noor (`The Moving Soul`).
 * Afterwards, all Rooh were placed in `Alam-e-Arwah`.
 * There is a VOID in the centre-of-heart. Rooh lives in that VOID. Opposote to heard is NAFAS.
-* __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ وَمَن يُرِدْ أَن يُضِلَّهُۥ يَجْعَلْ صَدْرَهُۥ ضَيِّقًا حَرَجًۭا كَأَنَّمَا يَصَّعَّدُ فِى ٱلسَّمَآءِ ۚ كَذَٰلِكَ يَجْعَلُ ٱللَّهُ ٱلرِّجْسَ عَلَى ٱلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/6/125)
-  * Ilm
-  * Aqal
-  * Essance-of-windom is Rabb.
+* __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ... يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ... وَمَن يُرِدْ أَن يُضِلَّهُۥ يَجْعَلْ صَدْرَهُۥ ضَيِّقًا حَرَجًۭا كَأَنَّمَا يَصَّعَّدُ فِى ٱلسَّمَآءِ... ۚ كَذَٰلِكَ يَجْعَلُ ٱللَّهُ ٱلرِّجْسَ عَلَى ٱلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/6/125)
+* Ilm
+* Aqal
+* Essance-of-windom is Rabb.
 
 ***
 

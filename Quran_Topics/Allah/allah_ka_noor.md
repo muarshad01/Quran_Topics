@@ -90,3 +90,7 @@
 * Paki: Intellectual Paki and Maturity
 
 ***
+
+#### [Stormy Sea [24:40] | Ep 14 | Striking Examples in the Quran | Nouman Ali Khan | Ramadan 2025](https://www.youtube.com/watch?v=Hpk_zfd0au0)
+
+***

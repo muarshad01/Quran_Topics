@@ -41,3 +41,6 @@
 #### 7 Zameen Aur 7 Asman
 * [7 Zameen Aur 7 Asman | Quran Pak Main Chupa Purisrar Raaz | Quran & Science | Abdus Salam Analysis](https://www.youtube.com/watch?v=ibFk3gd69po)
 
+***
+
+* __Surah At-Talaq 65/12 (7 Heavens and Earths__): [ٱللَّهُ ٱلَّذِى... خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ ...يَتَنَزَّلُ ٱلْأَمْرُ بَيْنَهُنَّ... لِتَعْلَمُوٓا۟ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ وَأَنَّ ٱللَّهَ قَدْ أَحَاطَ بِكُلِّ شَىْءٍ عِلْمًۢا](https://quran.com/65/12)

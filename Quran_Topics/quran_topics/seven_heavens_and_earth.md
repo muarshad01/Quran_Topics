@@ -1,46 +1,34 @@
-
-#### 7 paths
-* __Surah 23/17 (فَوْقَكُمْ سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا فَوْقَكُمْ سَبْعَ طَرَآئِقَ وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
-* https://www.youtube.com/watch?v=dYRxt2iN60c
+#### Al-Ardh, Dunia, and Zameen
+* `Al-Ardh` and `Dunya` are mentioned in Quran
+* `Zameen (Earth, this planet)` is not mentioned in Quran
 
 ***
 
-## Seven Heavens and Earths
-* __Surah Talaq 65/12__: [Allah is the One Who created seven heavens ˹in layers˺, and likewise for the earth](https://quran.com/65/12)
-  * `Mislahunna`
-* __Surah Mulk 67/3__: [˹He is the One˺ Who created seven heavens, one above the other.](https://quran.com/67/3)
+* __Surah Al-Muminun 23/17 (7 Paths: فَوْقَكُمْ سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا فَوْقَكُمْ سَبْعَ طَرَآئِقَ وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
+* __Surah At-Talaq 65/12 (خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ)__: [ٱللَّهُ ٱلَّذِى... خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ ...يَتَنَزَّلُ ٱلْأَمْرُ بَيْنَهُنَّ... لِتَعْلَمُوٓا۟ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ وَأَنَّ ٱللَّهَ قَدْ أَحَاطَ بِكُلِّ شَىْءٍ عِلْمًۢا](https://quran.com/65/12)
+* __Surah Al-Mulk 67/3 (ٱلَّذِى خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا ۖ)__: [ٱلَّذِى خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا ۖ... مَّا تَرَىٰ فِى خَلْقِ ٱلرَّحْمَـٰنِ مِن تَفَـٰوُتٍۢ ۖ فَٱرْجِعِ ٱلْبَصَرَ هَلْ تَرَىٰ مِن فُطُورٍۢ](https://quran.com/67/3)
 
 *** 
 
-## Beast from the Earth
-* __Surah An-Namal 27/82__:[...We will bring forth for them a beast from the earth...](https://quran.com/27/82)
-
-***
-
-### Al-Ardh, Dunia, and Zameen
-* [Dunia Zameen aur Surah Talaq ](https://www.youtube.com/watch?v=AayDuy89h94)
-* [Every Sky have a Separate Earth?](https://www.youtube.com/watch?v=EMgWDRMGwWU)
-  * `Al-Ardh` and `Dunya` are mentioned in Quran
-  * `Zameen (Earth, this planet)` is not mentioned in Quran
-
-#### More than one Al-Ardh
-* __Surah Baqarah 2/201__: [“Our Lord! Grant us the good of this world and the Hereafter, and ...](https://quran.com/2/201)
+#### Dunya 
+* __Surah Baqarah 2/201 (رَبَّنَآ ءَاتِنَا فِى ٱلدُّنْيَا)__: [وَمِنْهُم مَّن يَقُولُ... رَبَّنَآ ءَاتِنَا فِى ٱلدُّنْيَا... حَسَنَةًۭ وَفِى ٱلْـَٔاخِرَةِ حَسَنَةًۭ وَقِنَا عَذَابَ ٱلنَّارِ](https://quran.com/2/201)
   * `Dunya` - The list on this Planet
-* __Surah Mulk 67/5__: [We adorned the lowest heaven with ˹stars like˺ lamps](https://quran.com/67/5)
-
-#### Grand Scheme
-* `Hadith`:
-  * 1 Firsthing thing - Paradise
-  * 2 Second thing - Hell
-  * 3 First creation - Jibraeel AS
-     * Go and see the PARADISE; Who doesn't wish to come here. The hurdles... 
-     * Go and see the HELL; Who doesn't want to avoid this. The pleasure...
+* __Surah Al-Mulk 67/5 (زَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا)__: [وَلَقَدْ... زَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا ...بِمَصَـٰبِيحَ وَجَعَلْنَـٰهَا رُجُومًۭا لِّلشَّيَـٰطِينِ ۖ وَأَعْتَدْنَا لَهُمْ عَذَابَ ٱلسَّعِيرِ](https://quran.com/67/5)
 
 ***
 
-#### 7 Zameen Aur 7 Asman
-* [7 Zameen Aur 7 Asman | Quran Pak Main Chupa Purisrar Raaz | Quran & Science | Abdus Salam Analysis](https://www.youtube.com/watch?v=ibFk3gd69po)
+#### [7 Zameen Aur 7 Asman | Abdus Salam Analysis](https://www.youtube.com/watch?v=ibFk3gd69po)
 
 ***
 
-* __Surah At-Talaq 65/12 (7 Heavens and Earths__): [ٱللَّهُ ٱلَّذِى... خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ ...يَتَنَزَّلُ ٱلْأَمْرُ بَيْنَهُنَّ... لِتَعْلَمُوٓا۟ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ وَأَنَّ ٱللَّهَ قَدْ أَحَاطَ بِكُلِّ شَىْءٍ عِلْمًۢا](https://quran.com/65/12)
+#### [Sababa Meaning in Metaphysics | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=dYRxt2iN60c)
+
+***
+
+#### [Dunia Zameen aur Surah Talaq | Sahil Adeem](https://www.youtube.com/watch?v=AayDuy89h94)
+
+***
+
+#### [Every Sky have a Separate Earth? | دنیا ،زمین اور ارض | Sahil Adeem](https://www.youtube.com/watch?v=EMgWDRMGwWU)
+
+***

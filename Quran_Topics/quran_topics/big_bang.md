@@ -12,18 +12,19 @@ We have revealed to you the Book as an explanation of all things, a guide, a mer
 
 ***
 
-#### BIG BANG
-* __Surah Anbia 21/30__: ["Ratqan fafataqnahuma"](https://quran.com/en/al-anbya/30)
-   * Heavens-and-the-Earth were joined together as ONE united piece, then We PARTED them?
-   * [Where was GOD before Big-Bang | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=bGuEJrhQ1XI)
-   * `13.8 Billion Years` ago
-   * There were `huge-clouds` (moisturized gases) and there were `winds` both-above-and-below-it
+* __Surah Anbia Al-21/30 (Big Bang: كَانَتَا رَتْقًۭا فَفَتَقْنَـٰهُمَا)__: [أَوَلَمْ يَرَ ٱلَّذِينَ كَفَرُوٓا۟ أَنَّ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ... كَانَتَا رَتْقًۭا فَفَتَقْنَـٰهُمَا ۖ... وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا يُؤْمِنُونَ](https://quran.com/21/30)
 
 ***
 
-* __Surah Adh-Dhariat 47 (Expanding Universe)__: [We built the universe with ˹great˺ might, and We are certainly expanding ˹it˺.](https://quran.com/51/47)
-* __Surah Az-Zumur Ayat 05 (Everything is Moving)__: [He created the heavens and the earth for a purpose. He wraps the night around the day, and wraps the day around the night. And He has subjected the sun and the moon, each orbiting for an appointed term. He is truly the Almighty, Most Forgiving.](https://quran.com/en/az-zumar/5)
-* __Surah Yaseen Ayat 40 (Orbit, In a Precise Path)__: [It is not for the sun to catch up with the moon,1 nor does the night outrun the day. Each is travelling in an orbit of their own.](https://quran.com/36/40)
+#### [Where was GOD before Big-Bang | Prof ARA](https://www.youtube.com/watch?v=bGuEJrhQ1XI)
+* `13.8 Billion Years` ago
+* There were `huge-clouds` (moisturized gases) and there were `winds` both-above-and-below-it
+
+***
+
+* __Surah Yaseen 36/40__: [لَا ٱلشَّمْسُ يَنۢبَغِى لَهَآ أَن تُدْرِكَ ٱلْقَمَرَ وَلَا ٱلَّيْلُ سَابِقُ ٱلنَّهَارِ ۚ وَكُلٌّۭ فِى فَلَكٍۢ يَسْبَحُونَ](https://quran.com/36/40)
+* __Surah Az-Zumur 39/05 (Everything is Moving: )__: [خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ بِٱلْحَقِّ ۖ يُكَوِّرُ ٱلَّيْلَ عَلَى ٱلنَّهَارِ وَيُكَوِّرُ ٱلنَّهَارَ عَلَى ٱلَّيْلِ ۖ وَسَخَّرَ ٱلشَّمْسَ وَٱلْقَمَرَ ۖ كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّى ۗ أَلَا هُوَ ٱلْعَزِيزُ ٱلْغَفَّـٰرُ](https://quran.com/en/az-zumar/5)
+* __Surah Adh-Dhariat 51/47 (Expanding Universe: )__: [وَٱلسَّمَآءَ بَنَيْنَـٰهَا بِأَيْي۟دٍۢ وَإِنَّا لَمُوسِعُونَ](https://quran.com/51/47)
 * __Einstein__: Secret Energy, `Consmic Constant`
 * __Dark Energy__: 1998
 * __Noble Prize__: 2011
@@ -33,9 +34,7 @@ We have revealed to you the Book as an explanation of all things, a guide, a mer
       
 ***
 
-#### Expanding Theory Concept in Quran
-* [Allah Mentioned Expanding Theory Concept in Quran 1400 Years Ago | Size of Universe | Dr Abdus Salam](https://www.youtube.com/watch?v=kK62B6olLO4)
-* [Dajjal Kab Aye Ga? | Ft. Abdus Salam Arif | Podcast | Episode 20 (Part 2)](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
+#### [Allah Mentioned Expanding Theory Concept in Quran 1400 Years Ago | Size of Universe | Dr Abdus Salam](https://www.youtube.com/watch?v=kK62B6olLO4)
 
 ***
 

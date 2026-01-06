@@ -243,7 +243,7 @@
 |3. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) |12/06/2025|
 |4. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
 |5. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) |12/06/2025|
-|6. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) |12/06/2025|
+|6. | [Heart in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/heart_in_quran.md) | 06/01/2026 |
 |7. | [Change in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/change_in_quran.md) |12/06/2025|
 |---|---|---|
 |1. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sadaqah_in_quran.md) |  12/06/2025|

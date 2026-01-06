@@ -1,3 +1,7 @@
+#### [Big Revelations! Syed Sarfaraz Ahmad Shah on Kashmir, Khalistan & the Fate of USA | SSA Shah](https://www.youtube.com/watch?v=Tns6YTqtPWg)
+
+***
+
 #### [This Will Change How You See the World | SSA Shah | Powerful Spiritual Message](https://www.youtube.com/watch?v=f0QO_j6HFc8)
 * India will be divided into 20 parts. @52:40
 ***

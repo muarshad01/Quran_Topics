@@ -11,3 +11,6 @@ The phrase "no eye has seen, no ear has heard" in relation to Jannah (Paradise) 
 ```
 
 ***
+
+* __Surah Ale-Imran 3/133__: [۞ وَسَارِعُوٓا۟ إِلَىٰ مَغْفِرَةٍۢ مِّن رَّبِّكُمْ ...وَجَنَّةٍ عَرْضُهَا ٱلسَّمَـٰوَٰتُ وَٱلْأَرْضُ ...أُعِدَّتْ لِلْمُتَّقِينَ](https://quran.com/3/133)
+

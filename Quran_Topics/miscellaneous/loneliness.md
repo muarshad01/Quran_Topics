@@ -2,28 +2,32 @@
 
 ***
 
-### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
+#### [Why Is the Faqeer Tested? | SSA Shah](https://www.youtube.com/watch?v=-xV82vZBIgM)
 
 ***
 
-## Hazrat Bakhtiyar Kaki
+#### Hazrat Bakhtiyar Kaki
 * Faqeer par lazim hai, woh `khalq-e-khuda` say door-rahey aur `kam-say-kam` loogaon say mail-jool rakhay
 
 *** 
 
-## FOCUS on `Ghor-o-Fikr`
+#### FOCUS on `Ghor-o-Fikr`
 * Think in solitude
 
 ***
 
-## Hazrat Usman Ghani
+#### Hazrat Usman Ghani
 * Jisay `Rabb-say-pyaar` hota hai, usay `tanhai-say-unas` ho jaata hai
 
 ***
 
-### [This Is Why Allah's Chosen Ones Are Alone – A Hidden Truth from the Quran](https://www.youtube.com/watch?v=0dDFM77e0e4)
-### [5 Powerful Signs That You Are Truly Special to Allah 💖 | Must Watch!](https://www.youtube.com/watch?v=dnvJpVFJiCI)
-### https://www.youtube.com/shorts/TmxuienV7p0
+#### [This Is Why Allah's Chosen Ones Are Alone – A Hidden Truth from the Quran](https://www.youtube.com/watch?v=0dDFM77e0e4)
+
+***
+
+#### [5 Powerful Signs That You Are Truly Special to Allah 💖 | Must Watch!](https://www.youtube.com/watch?v=dnvJpVFJiCI)
+
+#### https://www.youtube.com/shorts/TmxuienV7p0
 
 * __Surah Al-Baqarah 2/186__: [When My servants ask you ˹O Prophet˺ about Me: I am truly near. I respond to one’s prayer when they call upon Me. So let them respond ˹with obedience˺ to Me and believe in Me, perhaps they will be guided ˹to the Right Way˺.](https://quran.com/2/186)
 
@@ -55,10 +59,14 @@
 
 ***
 
-### [IF ALLAH WAKES YOU UP 3AM to 5AM DO THESE That Will Transform your Life!](https://www.youtube.com/watch?v=xHwgM7WQrNg)
-
-### [Why the FAQEER Tested?](https://www.youtube.com/shorts/AOZQugSF9xw)
+#### [IF ALLAH WAKES YOU UP 3AM to 5AM DO THESE That Will Transform your Life!](https://www.youtube.com/watch?v=xHwgM7WQrNg)
 
 ***
 
-### [Only One Solution To LonelinessMufti Muneer Akhoon](https://www.youtube.com/watch?v=jiHr8hgeI7s)
+#### [Why the FAQEER Tested?](https://www.youtube.com/shorts/AOZQugSF9xw)
+
+***
+
+#### [Only One Solution To LonelinessMufti Muneer Akhoon](https://www.youtube.com/watch?v=jiHr8hgeI7s)
+
+***

@@ -281,7 +281,7 @@
 |19. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
 |20. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
 |---|---|---|
-|21. | [Family](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/family.md) |12/27/2025|
+|21. | [Family](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/family.md) | 06/01/2026 |
 |22. | [Exercise](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/exercise.md) |12/27/2025|
 |23. | [Death](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/death.md) |12/27/2025|
 |24. | [Anger](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/anger_ghusa.md) |12/27/2025|

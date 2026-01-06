@@ -176,3 +176,11 @@
 * Duaa: Ask for Rehmat, Salamity, and Barakah always!!!
 
 ***
+
+#### [Quran’s Mathematical Miracle 32 | Balanced Love](https://www.youtube.com/watch?v=G79UfiHNDqo)
+
+***
+
+#### [Allah Kin Logon Ko Ghasit Kar Apni Taraf Le Aata Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=gpLEKSKWQuE)
+
+***

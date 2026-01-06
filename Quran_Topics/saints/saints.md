@@ -345,3 +345,6 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 #### [Sabir Piya Kaliyari Aur Shamsuddin Turk Pani Pati](https://www.youtube.com/watch?app=desktop&v=vAQV1gRLnqg)
 
 ***
+
+* Shah Waliullah Dehlawi [1703]
+* Islam in India came in 712

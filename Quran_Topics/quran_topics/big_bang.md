@@ -24,17 +24,20 @@
 
 ***
 
-#### [Big Bang Theory | Allama Talib Johri](https://www.youtube.com/watch?v=rU1E2Zffabk)
+#### [Hidden Secrets of Universe in Quran | Suno Pakistan | EP 281](https://www.youtube.com/watch?v=3nzsvkwt_MM)
+* What is Quran?
+* Quran is `Manual of Universe`.
+* __Surah Al-Baqarah 2/1-2__: [الٓمٓ...ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/1-2)
+* This is a `kitab` (~200 times repeated in Quran), which is a `source-of-communication`.
+* Send message, receive message, and then understand it.
+* `Comprehension and understanding` it is very important.
+* __Surah An-Nahal 16/89 (وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ)__: [وَيَوْمَ نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ... وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ... وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
 
 ***
 
-#### [Hidden Secrets of Universe in Quran | Suno Pakistan | EP 281](https://www.youtube.com/watch?v=3nzsvkwt_MM)
-* What is Quran?
-* Quran: `Manual of Universe`
-* __Surah Al-Baqarah 2/1-2__: [الٓمٓ...ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/1-2)
-* This is a `kitab` (~200 times repeated in Quran), which is a `source-of-communication`.
-  * Send message, receive message, and then understand it.
-  * `Comprehension and understanding` it is very important.
-* __Surah An-Nahal 16/89__: [وَيَوْمَ نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ... وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ... وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
+#### [Big Bang Theory | Allama Talib Johri](https://www.youtube.com/watch?v=rU1E2Zffabk)
+* __Surah Al-Baqarah 2/21__: [يَـٰٓأَيُّهَا ٱلنَّاسُ ٱعْبُدُوا۟ رَبَّكُمُ ٱلَّذِى خَلَقَكُمْ وَٱلَّذِينَ مِن قَبْلِكُمْ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/21)
+* __Surah Al-Baqarah 2/22__: [ٱلَّذِى جَعَلَ لَكُمُ ٱلْأَرْضَ فِرَٰشًۭا وَٱلسَّمَآءَ بِنَآءًۭ وَأَنزَلَ مِنَ ٱلسَّمَآءِ مَآءًۭ فَأَخْرَجَ بِهِۦ مِنَ ٱلثَّمَرَٰتِ رِزْقًۭا لَّكُمْ ۖ فَلَا تَجْعَلُوا۟ لِلَّهِ أَندَادًۭا وَأَنتُمْ تَعْلَمُونَ](https://quran.com/2/22)
+* The universe's expansion isn't a single speed but a rate: __about 67-73 kilometers per second (km/s)__
 
 ***

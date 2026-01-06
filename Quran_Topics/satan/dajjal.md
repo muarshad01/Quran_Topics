@@ -256,3 +256,7 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 #### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)
 
 ***
+
+#### [Dajjal Kab Aye Ga? | Dr Abdus Salam Arif | Podcast | Episode 20 (Part 2)](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
+
+***

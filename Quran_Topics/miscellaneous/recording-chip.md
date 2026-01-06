@@ -1,5 +1,5 @@
 #### [Insaanon ka Amaal Nama Kahan Record Ho Rha Hai? | Suno Pakistan EP 339](https://www.youtube.com/watch?v=vBVe9nNONYA)
-* __Surah Al-Isra 17/13 (Nano Chip)__: [We have bound every human’s destiny to their neck.1 And on the Day of Judgment We will bring forth to each ˹person˺ a record which they will find laid open.](https://quran.com/17/13)
-* __Surah Al-Insaan 76/3__: [We already showed them the Way, whether they ˹choose to˺ be grateful or ungrateful.](https://quran.com/76/3)
+* __Surah Al-Isra 17/13 (Nano Chip)__: [وَكُلَّ إِنسَـٰنٍ أَلْزَمْنَـٰهُ طَـٰٓئِرَهُۥ فِى عُنُقِهِۦ ۖ وَنُخْرِجُ لَهُۥ يَوْمَ ٱلْقِيَـٰمَةِ كِتَـٰبًۭا يَلْقَىٰهُ مَنشُورًا](https://quran.com/17/13)
+* __Surah Al-Insaan 76/3__: [هَلْ أَتَىٰ عَلَى ٱلْإِنسَـٰنِ حِينٌۭ مِّنَ ٱلدَّهْرِ لَمْ يَكُن شَيْـًۭٔا مَّذْكُورًا...إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍۢ نَّبْتَلِيهِ فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا...إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
 
 ***

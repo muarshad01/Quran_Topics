@@ -296,6 +296,6 @@
 |33. | [Abad, Ibadah, Bashar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/abad_ibadat_bashar.md) |12/27/2025|
 |34. | [Miraj](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/miraj.md) |12/27/2025|
 |35. | [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran_and_mathematics.md) |12/27/2025|
-|36. | [Recording Chip](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/recording-chip.md) |12/27/2025|
+|36. | [Recording Chip](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/recording-chip.md) | 06/01/2026 |
 
 ***

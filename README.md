@@ -157,7 +157,7 @@
 | 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
 | 3. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) |12/06/2025|
 | 5. | [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md)| 12/06/2025|
-| 5. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) |12/06/2025|
+| 5. | [Tahtas-Saraa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) | 05/01/2026 |
 | 6. | [Dabbat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) |12/27/2025|
 | 7. | [Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
 |8.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)|12/06/2025|

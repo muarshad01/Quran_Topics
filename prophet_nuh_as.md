@@ -1,4 +1,4 @@
-#### [Nooh AS - Noah and The Flood | Why Humanity was Destroyed](https://www.youtube.com/watch?v=VfEUl7T3GFg)
+#### [Nooh AS - Noah and The Flood | Why Humanity was Destroyed | Dr Abdus Salam](https://www.youtube.com/watch?v=VfEUl7T3GFg)
 * Ehopian Bible
 * Abyssinia (modern-day Ethiopia) and Al-Najashi
 * Book of Enoch (Idrish AS)

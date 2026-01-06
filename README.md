@@ -272,7 +272,7 @@
 |10.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
 |11.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|
 |12. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) |12/06/2025|
-|13. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) |12/06/2025|
+|13. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) | 06/01/2026 |
 |14. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) |12/06/2025|
 |15. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
 |16. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|

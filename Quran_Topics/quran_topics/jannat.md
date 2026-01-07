@@ -6,17 +6,12 @@
 
 #### [Aap (S.A.W) Ke Ummat-Ke Kon-Log Hon-Ge Jo Seedha-Jannat-Main Jayein-Ge? | SSA Shah](https://www.youtube.com/watch?v=vebojKZLCl4)
 
-***
-
-```
-The phrase "no eye has seen, no ear has heard" in relation to Jannah (Paradise) is from an authentic Islamic narration known as a Hadith Qudsi, where Allah speaks through the Prophet Muhammad (peace be upon him). 
-```
 
 #### [(35)Chapter: “…They want to change Allah’s Words….”](https://sunnah.com/bukhari:7498)
 ```
-Narrated Abu Huraira:
-
-the Prophet (ﷺ) said, "Allah said, "I have prepared for My righteous slaves (such excellent things) as no eye has ever seen, nor an ear has ever heard nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
+Narrated Abu Huraira: the Prophet (ﷺ) said, "Allah said, "I have prepared for My righteous slaves
+(such excellent things) as no eye has ever seen, nor an ear has ever heard
+nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 ```
 
 ***

@@ -1,3 +1,9 @@
+* Faqeer par lazim hai, woh `khalq-e-khuda` say door-rahey aur `kam-say-kam` loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
+* Jisay `Rabb-say-pyaar` hota hai, usay `tanhai-say-unas` ho jaata hai. -- Hazrat Usman Ghani
+* Think in solitude. FOCUS on `Ghor-o-Fikr`
+
+***
+
 #### [Positive Changes with Faqeer's Company | SSA Shah](https://www.youtube.com/watch?v=n3vSwR1tvk0)
 
 ***

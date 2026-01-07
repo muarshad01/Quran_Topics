@@ -1,5 +1,8 @@
-* __Surah Rahman 55/56__:
-* __Surah Rahman 55/58__:
-* __Surah Rahman 55/70__:
-* __Surah Rahman 55/72__:
-* __Surah As Saffat 37/48__: [qasiratu al-tarfi inun](https://quranwbw.com/37#48)
+#### Hoor
+* __Surah Ar-Rahman 55/56__: [فِيهِنَّ قَـٰصِرَٰتُ ٱلطَّرْفِ لَمْ يَطْمِثْهُنَّ إِنسٌۭ قَبْلَهُمْ وَلَا جَآنٌّۭ](https://quran.com/55/56)
+* __Surah Ar-Rahman 55/58__: [كَأَنَّهُنَّ ٱلْيَاقُوتُ وَٱلْمَرْجَانُ](https://quran.com/55/58)
+* __Surah Ar-Rahman 55/70__: [فِيهِنَّ خَيْرَٰتٌ حِسَانٌۭ](https://quran.com/55/70)
+* __Surah Ar-Rahman 55/72__: [حُورٌۭ مَّقْصُورَٰتٌۭ فِى ٱلْخِيَامِ](https://quran.com/55/72)
+* __Surah As-Saffat 37/48__: [وَعِندَهُمْ قَـٰصِرَٰتُ ٱلطَّرْفِ عِينٌۭ](https://quran.com/37/48)
+
+***

@@ -219,7 +219,7 @@
 | 5. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 07/01/2026 |
 | 6. | [Clouds](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/clouds.md) | 05/01/2026 |
 | 7. | [Mountains](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/mountains.md) | 07/01/2026 |
-| 8. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) |12/27/2025|
+| 8. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) | 07/01/2026 |
 | 9. | [Fish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fish.md) | 07/01/2026 |
 |10. | [Plants](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/plants.md) |12/27/2025|
 |11. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/stars.md) | 05/01/2026 |

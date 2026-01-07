@@ -9,8 +9,10 @@
 
 #### [(35)Chapter: “…They want to change Allah’s Words….”](https://sunnah.com/bukhari:7498)
 ```
-Narrated Abu Huraira: the Prophet (ﷺ) said, "Allah said, "I have prepared for My righteous slaves
-(such excellent things) as no eye has ever seen, nor an ear has ever heard
+Narrated Abu Huraira: the Prophet (ﷺ) said, "Allah said,
+"I have prepared for My righteous slaves (such excellent things) as
+no eye has ever seen,
+nor an ear has ever heard
 nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 ```
 

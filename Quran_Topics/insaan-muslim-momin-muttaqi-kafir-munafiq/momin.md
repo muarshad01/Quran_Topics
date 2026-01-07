@@ -2,6 +2,17 @@
 
 ***
 
+#### [(35)Chapter: “…They want to change Allah’s Words….”](https://sunnah.com/bukhari:7498)
+```
+Narrated Abu Huraira: the Prophet (ﷺ) said, "Allah said,
+"I have prepared for My righteous slaves (such excellent things) as
+no eye has ever seen,
+nor an ear has ever heard
+nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
+```
+
+***
+
 * __Surah Al-Baqarah 2/3-4__: [](https://quran.com/2/3-5)
 * __Surah Al-Baqarah 2/62__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَٱلَّذِينَ هَادُوا۟ وَٱلنَّصَـٰرَىٰ وَٱلصَّـٰبِـِٔينَ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَعَمِلَ صَـٰلِحًۭا فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/62)
 * __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةً وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)

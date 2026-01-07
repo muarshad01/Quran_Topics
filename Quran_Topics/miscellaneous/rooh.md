@@ -4,6 +4,6 @@
 
 ***
 
-#### [Insaan Ki Rooh Main Allah Ka Noor Kab Aata Hai? | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=IvkzWUR23xg)
+#### [Insaan Ki Rooh Main Allah Ka Noor Kab Aata Hai? | Prof Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=IvkzWUR23xg)
 
 ***

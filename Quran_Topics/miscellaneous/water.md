@@ -1,5 +1,6 @@
 ## Water
 
 #### [Amazing Facts of Water in Quran | Mountains are Standing Still? | Abdul Salam |Suno Pakistan Ep 364](https://www.youtube.com/watch?v=znlazKhB554)
+* __Surah Al-Anbya 21/30__: [أَوَلَمْ يَرَ ٱلَّذِينَ كَفَرُوٓا۟... أَنَّ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ كَانَتَا رَتْقًۭا... فَفَتَقْنَـٰهُمَا ۖ... وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا يُؤْمِنُونَ](https://quran.com/21/30)
 
 ***

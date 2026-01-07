@@ -359,7 +359,8 @@
 
 ***
 
-##### [Naa, Kaf, Hay, Ya] - (ناكهي)
+
+##### [[Naa, Kaf, Hay, Ya] - (ناكهي)](https://www.youtube.com/watch?v=DSTToGoYEPw)
 * They come at end-of-workd
 * They tell us about relationship of something-with-something
 1. Na (نا) - Hamari (Our) - Kitabu-na - Rabbu-na

@@ -1,18 +1,17 @@
 ### Sijjilin
-
-* __Surah Al Fil 105/4__: [Striking them with stones of Sijjil](https://quranwbw.com/105#4)
+* __Surah Al-Fil 105/4 (سِجِّيلٍۢ)__: [تَرْمِيهِم بِحِجَارَةٍۢ مِّن سِجِّيلٍۢ](https://quran.com/105/4)
 
 ***
 
 ### Salsalin (Clay)
 
-* __Surah Al-Hijr 15/26 (Salsalin)__: [salsalin min hama-in masnunin (Clay of altered black-smooth-mud)](https://quranwbw.com/15#26)
+* __Surah Al-Hijr 15/26 (صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ)__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ مِن ...صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ](https://quran.com/15/26)
 
-* __Surah Al-Hijr 15/28 (Salsalin)__: [salsalin min hama-in masnunin (Clay of altered black-smooth-mud)](https://quranwbw.com/15#28)
+* __Surah Al-Hijr 15/28 (بَشَرًۭا مِّن صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ)__: [وَإِذْ قَالَ رَبُّكَ لِلْمَلَـٰٓئِكَةِ إِنِّى خَـٰلِقٌۢ بَشَرًۭا... مِّن صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ](https://quran.com/15/28)
 
-* __Surah Al-Hijr 15/233 (Salsalin)__: [salsalin min hama-in masnunin (Clay of altered black-smooth-mud)](https://quranwbw.com/15#33)
+* __Surah Al-Hijr 15/33 (خَلَقْتَهُۥ مِن صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ)__: [قَالَ لَمْ أَكُن لِّأَسْجُدَ لِبَشَرٍ خَلَقْتَهُۥ... مِن صَلْصَـٰلٍۢ مِّنْ حَمَإٍۢ مَّسْنُونٍۢ](https://quran.com/15/33)
 
-* __Surah Ar-Rahman 55/14 (Salsalin)__: [salsalin kal-fakhari (Clay like the clay-of-pottery)](https://quranwbw.com/55#14)
+* __Surah Ar-Rahman 55/14 (مِن صَلْصَـٰلٍۢ كَٱلْفَخَّارِ)__: [خَلَقَ ٱلْإِنسَـٰنَ مِن ...صَلْصَـٰلٍۢ كَٱلْفَخَّارِ](https://quran.com/55/14)
 
 ***
 

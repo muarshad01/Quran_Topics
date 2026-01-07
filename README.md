@@ -228,9 +228,9 @@
 ***
 | No. | Rooh | Last Updated |
 |---|---|---|
-|1. | [Rooh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rooh.md) |12/27/2025|
-|2. | [Rohaniat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohaniat.md) |12/27/2025|
-|3. | [Rohani Lataif](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohani_lataif.md) |12/27/2025|
+| 1. | [Rooh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rooh.md) | 07/01/2026 |
+| 2. | [Rohaniat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohaniat.md) | 07/01/2026 |
+| 3. | [Rohani Lataif](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/rohani_lataif.md) | 07/01/2026 |
 
 ***
 

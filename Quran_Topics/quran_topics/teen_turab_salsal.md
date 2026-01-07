@@ -22,22 +22,22 @@
 
 #### Turab
 
-* __Surah Raad 13/5 (Turaban)__: [˹Now,˺ if anything should amaze you ˹O Prophet˺, then it is their question: “When we are reduced to dust, will we really be raised as a new creation?” It is they who have disbelieved in their Lord. It is they who will have shackles around their necks. And it is they who will be the residents of the Fire. They will be there forever.](https://quran.com/13/5)
+* __Surah Ar-Raad 13/5 (Turaban)__: [۞ وَإِن تَعْجَبْ فَعَجَبٌۭ قَوْلُهُمْ أَءِذَا كُنَّا تُرَٰبًا أَءِنَّا لَفِى خَلْقٍۢ جَدِيدٍ ۗ أُو۟لَـٰٓئِكَ ٱلَّذِينَ كَفَرُوا۟ بِرَبِّهِمْ ۖ وَأُو۟لَـٰٓئِكَ ٱلْأَغْلَـٰلُ فِىٓ أَعْنَاقِهِمْ ۖ وَأُو۟لَـٰٓئِكَ أَصْحَـٰبُ ٱلنَّارِ ۖ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/13/5)
 
-* __Surah Al-Kahf 18/37 (Turabin)__: [Akofarta bil-ladhi khalaqaka min turabin](https://quranwbw.com/18#37)
+* __Surah Al-Kahf 18/37 (Turabin)__: [قَالَ لَهُۥ صَاحِبُهُۥ وَهُوَ يُحَاوِرُهُۥٓ أَكَفَرْتَ بِٱلَّذِى خَلَقَكَ مِن تُرَابٍۢ ثُمَّ مِن نُّطْفَةٍۢ ثُمَّ سَوَّىٰكَ رَجُلًۭا](https://quran.com/18/37)
 
-* __Surah Al-Hajj 22/5 (Turabin)__ [Ya ayyuha'l-naasu in kuntum fi raybin mina'l-ba'thi fa inna khalaqnaakum min turabin](https://quranwbw.com/22#5)
+* __Surah Al-Hajj 22/5 (Turabin)__: [يَـٰٓأَيُّهَا ٱلنَّاسُ إِن كُنتُمْ فِى رَيْبٍۢ مِّنَ ٱلْبَعْثِ فَإِنَّا خَلَقْنَـٰكُم مِّن تُرَابٍۢ ثُمَّ مِن نُّطْفَةٍۢ ثُمَّ مِنْ عَلَقَةٍۢ ثُمَّ مِن مُّضْغَةٍۢ مُّخَلَّقَةٍۢ وَغَيْرِ مُخَلَّقَةٍۢ لِّنُبَيِّنَ لَكُمْ ۚ وَنُقِرُّ فِى ٱلْأَرْحَامِ مَا نَشَآءُ إِلَىٰٓ أَجَلٍۢ مُّسَمًّۭى ثُمَّ نُخْرِجُكُمْ طِفْلًۭا ثُمَّ لِتَبْلُغُوٓا۟ أَشُدَّكُمْ ۖ وَمِنكُم مَّن يُتَوَفَّىٰ وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَيْلَا يَعْلَمَ مِنۢ بَعْدِ عِلْمٍۢ شَيْـًۭٔا ۚ وَتَرَى ٱلْأَرْضَ هَامِدَةًۭ فَإِذَآ أَنزَلْنَا عَلَيْهَا ٱلْمَآءَ ٱهْتَزَّتْ وَرَبَتْ وَأَنۢبَتَتْ مِن كُلِّ زَوْجٍۭ بَهِيجٍۢ](https://quran.com/22/5)
 
-* __Surah Al-Muminoon 23/35 (Turaban)__: [Ayya'idukum anna'kum idha mittum wa kuntum turaban wa 'izhaman anna'kum mukhrujun](https://quranwbw.com/23#35)
+* __Surah Al-Muminoon 23/35 (Turaban)__: [أَيَعِدُكُمْ أَنَّكُمْ إِذَا مِتُّمْ وَكُنتُمْ تُرَابًۭا وَعِظَـٰمًا أَنَّكُم مُّخْرَجُونَ](https://quran.com/23/35)
 
-* __Surah Ar-Room 30/20 (Turabin)__: [Wamin ayatihi an khalaqakum min turabin thumma idha antum basha'r tanta'shurun](https://quranwbw.com/30#20)
+* __Surah Ar-Room 30/20 (Turabin)__: [وَمِنْ ءَايَـٰتِهِۦٓ أَنْ خَلَقَكُم مِّن تُرَابٍۢ ثُمَّ إِذَآ أَنتُم بَشَرٌۭ تَنتَشِرُونَ](https://quran.com/30/20)
 
-* __Surah Faatir 35/11 (Turabin)__: [Wallahu khalaqakum min turabin thumma min nutfah thumma ja'ala'kum azwaajaa](https://quranwbw.com/35#11)
+* __Surah Faatir 35/11 (Turabin)__: [وَٱللَّهُ خَلَقَكُم مِّن تُرَابٍۢ ثُمَّ مِن نُّطْفَةٍۢ ثُمَّ جَعَلَكُمْ أَزْوَٰجًۭا ۚ وَمَا تَحْمِلُ مِنْ أُنثَىٰ وَلَا تَضَعُ إِلَّا بِعِلْمِهِۦ ۚ وَمَا يُعَمَّرُ مِن مُّعَمَّرٍۢ وَلَا يُنقَصُ مِنْ عُمُرِهِۦٓ إِلَّا فِى كِتَـٰبٍ ۚ إِنَّ ذَٰلِكَ عَلَى ٱللَّهِ يَسِيرٌۭ](https://quran.com/35/11)
 
-* __Surah As Saffat 37/16 (Turaban)__: [Verily, We created them of a sticky clay](https://quranwbw.com/37#16)
+* __Surah As-Saffat 37/16 (Turaban)__: [أَءِذَا مِتْنَا وَكُنَّا تُرَابًۭا وَعِظَـٰمًا أَءِنَّا لَمَبْعُوثُونَ](https://quran.com/37/16)
 
-* __Surah As Saffat 37/52 (Turaban)__: [(That) when we die and become dust and bones, shall we indeed (be raised up) to receive reward or punishment (according to our deeds)](https://quranwbw.com/37#53)
+* __Surah As-Saffat 37/52 (Turaban)__: [أَءِذَا مِتْنَا وَكُنَّا تُرَابًۭا وَعِظَـٰمًا أَءِنَّا لَمَدِينُونَ](https://quran.com/37/53)
 
-* __Surah An-Naba 78/40 (Ruraban)__: [Indeed, We have warned you of an imminent punishment—the Day every person will see ˹the consequences of˺ what their hands have done, and the disbelievers will cry, “I wish I were dust.”](https://quranwbw.com/78/40)
+* __Surah An-Naba 78/40 (Ruraban)__: [إِنَّآ أَنذَرْنَـٰكُمْ عَذَابًۭا قَرِيبًۭا يَوْمَ يَنظُرُ ٱلْمَرْءُ مَا قَدَّمَتْ يَدَاهُ وَيَقُولُ ٱلْكَافِرُ يَـٰلَيْتَنِى كُنتُ تُرَٰبًۢا](https://quran.com/78/40)
 
 ***

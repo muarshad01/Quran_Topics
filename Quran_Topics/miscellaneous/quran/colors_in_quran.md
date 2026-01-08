@@ -1,7 +1,7 @@
 #### [The Great Secrets of Colors in Quran I Quran Math Miracles](https://www.youtube.com/watch?v=nfFhd0i9ElI)
 *  VIBGYOR
 * GREEN - 8 times (8 doors of Jannah)
-* BLACK - 7 times (7 doors of hell 15/44)  
+* BLACK - 7 times (__Surah 15/44 (& doors of Hell)__: [لَهَا سَبْعَةُ أَبْوَٰبٍۢ لِّكُلِّ بَابٍۢ مِّنْهُمْ جُزْءٌۭ مَّقْسُومٌ](https://quran.com/15/44))
 * __Surah Al-Baqarah 2/187__: [](https://quran.com/2/187)
 * __Surah An-Nahl 16/13__: [](https://quran.com/16/13)
 * __Surah An-Nahl 16/49__: [](https://quran.com/16/49)

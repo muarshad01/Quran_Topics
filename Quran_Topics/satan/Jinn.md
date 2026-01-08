@@ -1,10 +1,6 @@
-* __Surah 7/27__: [يَـٰبَنِىٓ ءَادَمَ لَا يَفْتِنَنَّكُمُ ٱلشَّيْطَـٰنُ كَمَآ أَخْرَجَ أَبَوَيْكُم مِّنَ ٱلْجَنَّةِ يَنزِعُ عَنْهُمَا لِبَاسَهُمَا لِيُرِيَهُمَا سَوْءَٰتِهِمَآ ۗ إِنَّهُۥ يَرَىٰكُمْ هُوَ وَقَبِيلُهُۥ مِنْ حَيْثُ لَا تَرَوْنَهُمْ ۗ إِنَّا جَعَلْنَا ٱلشَّيَـٰطِينَ أَوْلِيَآءَ لِلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/7/27)
+* __Surah Al-Araf 7/27__: [يَـٰبَنِىٓ ءَادَمَ لَا يَفْتِنَنَّكُمُ ٱلشَّيْطَـٰنُ كَمَآ أَخْرَجَ أَبَوَيْكُم مِّنَ ٱلْجَنَّةِ يَنزِعُ عَنْهُمَا لِبَاسَهُمَا لِيُرِيَهُمَا سَوْءَٰتِهِمَآ ۗ إِنَّهُۥ يَرَىٰكُمْ هُوَ وَقَبِيلُهُۥ مِنْ حَيْثُ لَا تَرَوْنَهُمْ ۗ إِنَّا جَعَلْنَا ٱلشَّيَـٰطِينَ أَوْلِيَآءَ لِلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/7/27)
 
 *** 
-
-#### [Why do jinn appear on the spiritual journey? | SSA Shah](https://www.youtube.com/shorts/Syga9aof0jk)
-
-***
 
 #### [Why do jinn appear on the spiritual journey? | SSA Shah](https://www.youtube.com/watch?v=9WONmhyynkk)
 * Don't fear them and also convy them my Salaam.
@@ -12,10 +8,14 @@
 
 ***
 
+#### [Why do jinn appear on the spiritual journey? | SSA Shah](https://www.youtube.com/shorts/Syga9aof0jk)
+
+***
+
 #### [Concept-of-Qareen | Sahil Adeem](https://www.youtube.com/watch?v=xrNMhKVri3A)
 
 ***
 
-#### [Khaufzada Na Hon! - Jinn Se Bachao Mumkin? | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=fcC-kugPu-A)
+#### [Khaufzada Na Hon! - Jinn Se Bachao Mumkin? | Prof Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=fcC-kugPu-A)
 
 ***

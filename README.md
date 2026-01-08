@@ -84,7 +84,7 @@
 |8. | [Munafiq (Hypocrite)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/munafiq.md) |01/03/2026|
 |9. | [Saints](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/saints.md); [Saint Ranks](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/saint_ranks.md); [Saint Levels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/levels.md); [Darwaish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/saints/darwaish.md); [Faqeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/faqeer-jahil-haqeer.md)|12/6/2025|
 |10. | [Woman](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/woman.md)|12/6/2025|
-|11. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md) | 12/06/2025 |
+|11. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md) | 08/01/2026 |
 |12. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.md) |12/06/2025|
 |13. | [Taghoot](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/taghoot.md) | 08/01/2026 |
 ***

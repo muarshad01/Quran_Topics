@@ -146,7 +146,7 @@
 |3. | [Sulayman (Solomon) AS ](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  | 12/06/2025 |
 |4. | [Musa (Moses) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) | 12/06/2025 |
 |5. | [Isa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md) | 12/06/2025 |
-|6. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md) | 12/06/2025 |
+|6. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md) | 07/01/2026 |
 |6. | [Ayub (Jacob)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ayub_jacob.md) | 12/27/2025 |
 
 ***

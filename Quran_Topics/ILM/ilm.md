@@ -310,3 +310,5 @@
 #### [Kya Murshid Ijazat Se Apne Mureed Ko Khaas Ilm Karta Hai? | SSA Shah](https://www.youtube.com/watch?v=CGhEFRpp1o0)
 
 ***
+
+#### [Nigah Ka Faiz Allah Taala Ki Taraf Se Nazil Honay Wali Taqdeer Ka Aik Hisa Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=UpZD5vAYqD4)

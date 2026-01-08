@@ -1,10 +1,4 @@
-#### [Four Exemplary Women Mentioned In The Holy Quran](https://musjidulhaq.com/2015/06/15/four-exemplary-women-mentioned-in-the-holy-quran/)
-1. __Waailah__: She was Hazrat Loot’s – peace be upon him – wife.
-2. __Waahela__: She was the wife of Hazrat Nooh – peace be upon him.
-3. __Maryam__ - Mother of Jesus AS
-4. __Aasiyah__ - Wife of Pharaoh
-
-***
+#### Women
 
 * __Surah Maryam 19/55 (${\color{red}Order/Enjoin/Urge ~your ~Family ~to ~Pray}$)__: [وَكَانَ يَأْمُرُ أَهْلَهُۥ بِٱلصَّلَوٰةِ وَٱلزَّكَوٰةِ وَكَانَ عِندَ رَبِّهِۦ مَرْضِيًّۭا](https://quran.com/19/55)
 
@@ -36,5 +30,13 @@
 ***
 
 #### [Face Veil in Islam: Mandatory or Not? | چہرہ چھپانا فرض ہے یا نہیں؟](https://www.youtube.com/watch?v=0riK1A0_tO8)
+
+***
+
+#### [Four Exemplary Women Mentioned In The Holy Quran](https://musjidulhaq.com/2015/06/15/four-exemplary-women-mentioned-in-the-holy-quran/)
+1. __Waailah__: She was Hazrat Loot’s – peace be upon him – wife.
+2. __Waahela__: She was the wife of Hazrat Nooh – peace be upon him.
+3. __Maryam__ - Mother of Jesus AS
+4. __Aasiyah__ - Wife of Pharaoh
 
 ***

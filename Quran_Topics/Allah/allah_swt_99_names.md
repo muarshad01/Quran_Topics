@@ -2,6 +2,10 @@
 
 ***
 
+#### [Names of ALLAH in different Civilizations | Prof ARA](https://www.youtube.com/watch?v=9OhoJTJz-YY)
+
+***
+
 #### [Quran Mein Asma-e-Husna Kiun Istemal Huay? | Allama Talib Jauhari](https://www.youtube.com/watch?v=prKgcUS8wcs)
 
 ***

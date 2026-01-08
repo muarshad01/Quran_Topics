@@ -132,7 +132,7 @@
 |3. | [Ulul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_ilm.md) |01/01/2026| 
 |4. | [Ulul-Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_albab.md)|01/01/2026|
 |5. | [Utul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)|01/01/2026|
-|6. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)|01/01/2026|
+|6. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 07/01/2026 |
 |7. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/jahil_foolish.md)|01/01/2026|
 
 ***

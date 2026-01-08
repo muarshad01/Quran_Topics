@@ -31,7 +31,7 @@
 | 3. | [Haroof-e-Muqatat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/haroof-e-muqataat.md)| 12/06/2025|
 | 4. |[Ism-e-Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/ism-e-azam.md)| 12/06/2025|
 | 5. | [Arabic Alphabets (Letters)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_letters.md) | 12/06/2025|
-| 6. | [Arabic Grammer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_grammer.md) | 12/31/2025|
+| 6. | [Arabic Grammer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/arabic_grammer.md) | 07/01/2026 |
 
 ***
 

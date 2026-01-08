@@ -1,13 +1,4 @@
-
 ## Taghoot System
-
-#### [What is Taghoot? | Sahil Adeem Against Taghoot System | Abdus Salam Explanation on Taghoot System](https://www.youtube.com/watch?v=ymjK804-7Rc)
-
-***
-
-#### [What Allah Mentioned in Quran About Tagoot System? | Dr Abdus Salam Reveals | Suno Pakistan EP 349](https://www.youtube.com/watch?v=gmrKcj0Pl10)
-
-***
 
 #### [Trump Saudi Arab UAE Visit - Sign of End of Time | Dr Abdus Salam Arif Analysis](https://www.youtube.com/watch?v=zNMf24zUTjw)
    * __Surah Baqarah 2/256__: [Taghoot](https://quran.com/2/256)
@@ -45,5 +36,13 @@
 #### Deen Islaam
 * Origin Source is Allah (`Islam`)
 * Origin Source NOT Allah (`Taghoot`)
+
+***
+
+#### [What is Taghoot? | Sahil Adeem Against Taghoot System | Abdus Salam Explanation on Taghoot System](https://www.youtube.com/watch?v=ymjK804-7Rc)
+
+***
+
+#### [What Allah Mentioned in Quran About Tagoot System? | Dr Abdus Salam Reveals | Suno Pakistan EP 349](https://www.youtube.com/watch?v=gmrKcj0Pl10)
 
 ***

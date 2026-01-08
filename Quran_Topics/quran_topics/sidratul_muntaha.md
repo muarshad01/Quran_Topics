@@ -39,3 +39,7 @@
 #### [Sidra Tul Muntaha Secrets | Sidrat al-Muntaha Ky Nichy Rivers Ky Raaz | Ft. Abdul Salam Arif](https://www.youtube.com/watch?v=FjRs3koYhO0)
 
 ***
+
+#### [Jibreel (A.S) Aur Sidrat tul-Muntaha | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=W5V0C6fsBpo)
+
+***

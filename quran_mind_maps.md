@@ -5,7 +5,7 @@
 * Surah Al-Baqarah - 2
 * Surah Yusuf - 12
 * Surah Yaseen - 36
-* Surah Ar-Rehman - 55
+* [Surah Ar-Rehman - 55](https://www.youtube.com/watch?v=5czNnuahtWU)
 * Surah Al-Jumua - 62
 * Surah Al-Mulk - 67
 * Chapter 30 (78 - 114)

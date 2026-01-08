@@ -13,6 +13,7 @@
 10. male attendants with no desire,
 11. or children who are still unaware of women’s nakedness.
 * Let them not stomp their feet, drawing attention to their hidden adornments. Turn to Allah in repentance all together, O  believers, so that you may be successful.
+
 * __Surah An-Noor 24/58 (ثَلَـٰثُ عَوْرَٰتٍۢ لَّكُمْ)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟... لِيَسْتَـْٔذِنكُمُ... ٱلَّذِينَ مَلَكَتْ أَيْمَـٰنُكُمْ ...وَٱلَّذِينَ لَمْ يَبْلُغُوا۟ ٱلْحُلُمَ مِنكُمْ ...ثَلَـٰثَ مَرَّٰتٍۢ ۚ... مِّن قَبْلِ صَلَوٰةِ ٱلْفَجْرِ... وَحِينَ تَضَعُونَ ثِيَابَكُم مِّنَ ٱلظَّهِيرَةِ... وَمِنۢ بَعْدِ صَلَوٰةِ ٱلْعِشَآءِ ۚ... ثَلَـٰثُ عَوْرَٰتٍۢ لَّكُمْ ۚ... لَيْسَ عَلَيْكُمْ وَلَا عَلَيْهِمْ جُنَاحٌۢ بَعْدَهُنَّ ۚ... طَوَّٰفُونَ عَلَيْكُم بَعْضُكُمْ عَلَىٰ بَعْضٍۢ ۚ... كَذَٰلِكَ يُبَيِّنُ ٱللَّهُ لَكُمُ ٱلْـَٔايَـٰتِ ۗ وَٱللَّهُ عَلِيمٌ حَكِيمٌۭ](https://quran.com/24/58)
 O believers! Let those ˹bondspeople˺ in your possession and those of you who are still under age ask for your permission ˹to come in˺ at three times:
 1. before dawn prayer,

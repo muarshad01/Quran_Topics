@@ -5,6 +5,7 @@
 #### [Roza-e-Rasool](https://www.youtube.com/shorts/_eNmQhaLMsA)
 #### [Kabba](https://www.youtube.com/shorts/zIhTe5XCpho)
 #### [Kabba Door](https://www.youtube.com/shorts/kbxsdSViEJ4)
+#### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
 
 #### [Riyazul jannah ki 10 aise ziyarat jo ap ko ni karwae ga koi bhi ](https://www.youtube.com/shorts/YhdiCcodgJE)
 * Bab-ul-Nisaa
@@ -296,7 +297,7 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 * __Surah Al-Jumma 62/2__:[هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ ...يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ... وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ ٢](https://quran.com/62/2)
 
 #### 
-* __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quranwbw.com/2/260)
+* __Surah Al-Baqaraj (Iman versus Satisfaction) 2/260__: [Ibrahim AS](https://quran.com/2/260)
 * __Surah Al-Fajr 89/27-30__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ...ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ...فَٱدْخُلِى فِى عِبَـٰدِى...وَٱدْخُلِى جَنَّتِى](https://quran.com/89/27-30)
 
 ***
@@ -309,32 +310,33 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ## Irfan-ul-Haq
 
 #### [Hazrat Muhammad Ka Maqaam | Irfan-ul-Haq](https://www.youtube.com/watch?v=MhUv8wWxTfY)
-* __Ba-adab ba-naseeb__
+* __Ba-Adab Ba-Naseeb__
 * __With manners comes fortune__
-* __With politeness comes luck.__ 
-* __Surah An-Noor 24/63__: [Do not treat the Messenger’s summons to you ˹as lightly˺ as your summons to one another.1 Allah certainly knows those of you who slip away, hiding behind others.2 So let those who disobey his orders beware, for an affliction may befall them, or a painful torment may overtake them.](https://quranwbw.com/24/63)
-* __Surah 49/2__: [O believers! Do not raise your voices above the voice of the Prophet, nor speak loudly to him as you do to one another, or your deeds will become void while you are unaware.](https://quran.com/49/2)
-* __Surah 49/2__: [Indeed, most of those who call out to you ˹O Prophet˺ from outside ˹your˺ private quarters have no understanding ˹of manners˺.](https://quran.com/49/4)
+* __With Politeness comes luck.__ 
+* __Surah An-Noor 24/63__: [لَّا تَجْعَلُوا۟ دُعَآءَ ٱلرَّسُولِ بَيْنَكُمْ كَدُعَآءِ بَعْضِكُم بَعْضًۭا ۚ قَدْ يَعْلَمُ ٱللَّهُ ٱلَّذِينَ يَتَسَلَّلُونَ مِنكُمْ لِوَاذًۭا ۚ فَلْيَحْذَرِ ٱلَّذِينَ يُخَالِفُونَ عَنْ أَمْرِهِۦٓ أَن تُصِيبَهُمْ فِتْنَةٌ أَوْ يُصِيبَهُمْ عَذَابٌ أَلِيمٌ](https://quran.com/24/63)
+* __Surah Al-Hujurat 49/2__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ ...لَا تَرْفَعُوٓا۟ أَصْوَٰتَكُمْ فَوْقَ صَوْتِ ٱلنَّبِىِّ ...وَلَا تَجْهَرُوا۟ لَهُۥ بِٱلْقَوْلِ كَجَهْرِ بَعْضِكُمْ لِبَعْضٍ ...أَن تَحْبَطَ أَعْمَـٰلُكُمْ وَأَنتُمْ لَا تَشْعُرُونَ](https://quran.com/49/2)
+* __Surah Al-Hujurat 49/2__: [إِنَّ ٱلَّذِينَ يُنَادُونَكَ مِن وَرَآءِ ٱلْحُجُرَٰتِ أَكْثَرُهُمْ لَا يَعْقِلُونَ](https://quran.com/49/4)
 
-* __Surah Al-Baqarah 2/143 (...جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا...ٱلرَّسُولُ عَلَيْكُمْ شَهِيدًۭا ۗ)__: [And so We have made you ˹believers˺ an upright1 community so that you may be witnesses over humanity and that the Messenger may be a witness over you. We assigned your former direction of prayer only to distinguish those who would remain faithful to the Messenger from those who would lose faith. It was certainly a difficult test except for those ˹rightly˺ guided by Allah. And Allah would never discount your ˹previous acts of˺ faith. Surely Allah is Ever Gracious and Most Merciful to humanity.](https://quranwbw.com/2/143)
+* __Surah Al-Baqarah 2/143 (...جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا...ٱلرَّسُولُ عَلَيْكُمْ شَهِيدًۭا ۗ)__: [وَكَذَٰلِكَ جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا لِّتَكُونُوا۟ شُهَدَآءَ عَلَى ٱلنَّاسِ وَيَكُونَ ٱلرَّسُولُ عَلَيْكُمْ شَهِيدًۭا ۗ وَمَا جَعَلْنَا ٱلْقِبْلَةَ ٱلَّتِى كُنتَ عَلَيْهَآ إِلَّا لِنَعْلَمَ مَن يَتَّبِعُ ٱلرَّسُولَ مِمَّن يَنقَلِبُ عَلَىٰ عَقِبَيْهِ ۚ وَإِن كَانَتْ لَكَبِيرَةً إِلَّا عَلَى ٱلَّذِينَ هَدَى ٱللَّهُ ۗ وَمَا كَانَ ٱللَّهُ لِيُضِيعَ إِيمَـٰنَكُمْ ۚ إِنَّ ٱللَّهَ بِٱلنَّاسِ لَرَءُوفٌۭ رَّحِيمٌۭ](https://quran.com/2/143)
 
 #### Middle Ummat: (جَعَلْنَـٰكُمْ أُمَّةًۭ وَسَطًۭا ۗ)
-* Issa AS: Only Forgiveness and no Revenge
-* Jews: No Forgiveness only Revenge and Punishment.
-* Muslims: You can take Qases but if you forgive Allah SWT likes that more: https://quranwbw.com/2/178-179
+* __Issa AS__: Only Forgiveness and no Revenge
+* __Jews__: No Forgiveness only Revenge and Punishment.
+* __Muslims__: You can take Qasas but if you forgive Allah SWT likes that more:
+* __Surah 2/178-179__: [](https://quranwbw.com/2/178-179)
 
 ***
 
-* __Surah Ale-Imran 3/31 (قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ)__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quranwbw.com/3/31)
-* __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
-* __Surah Al-Araaf 7/157__: [“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel.1 He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them. ˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”](https://quranwbw.com/7/157)
-* __Surah Al-Ahzaab 33/56 (وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
-  * Muhammad:
-  * Ahmed:
-  * Abad: The one who is invited on Miraj
-  * Nabi: The one who take Naba(Khabar) from Allah SWT
-  * Rasool: The messenger, the one who conveys the message to People
-* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
+* __Surah Ale-Imran 3/31 (قُلْ إِن كُنتُمْ تُحِبُّونَ ٱللَّهَ فَٱتَّبِعُونِى يُحْبِبْكُمُ ٱللَّهُ)__: [Say, ˹O Prophet,˺ “If you ˹sincerely˺ love Allah, then follow me; Allah will love you and forgive your sins. For Allah is All-Forgiving, Most Merciful.”](https://quran.com/3/31)
+* __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكَ وَرَحْمَتُهُۥ... لَهَمَّت طَّآئِفَةٌۭ مِّنْهُمْ أَن يُضِلُّوكَ وَمَا يُضِلُّونَ إِلَّآ أَنفُسَهُمْ ۖ وَمَا يَضُرُّونَكَ مِن شَىْءٍۢ ۚ ...وَأَنزَلَ ٱللَّهُ عَلَيْكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ... وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا](https://quran.com/4/113)
+* __Surah Al-Araf 7/157__: [ٱلَّذِينَ يَتَّبِعُونَ ٱلرَّسُولَ ٱلنَّبِىَّ ٱلْأُمِّىَّ... ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ... يَأْمُرُهُم بِٱلْمَعْرُوفِ وَيَنْهَىٰهُمْ عَنِ ٱلْمُنكَرِ... وَيُحِلُّ لَهُمُ ٱلطَّيِّبَـٰتِ وَيُحَرِّمُ عَلَيْهِمُ ٱلْخَبَـٰٓئِثَ ...وَيَضَعُ عَنْهُمْ إِصْرَهُمْ وَٱلْأَغْلَـٰلَ ٱلَّتِى كَانَتْ عَلَيْهِمْ ۚ... فَٱلَّذِينَ ءَامَنُوا۟ بِهِۦ وَعَزَّرُوهُ وَنَصَرُوهُ... وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ... أُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ](https://quran.com/7/157)
+* __Surah Al-Ahzaab 33/56 (وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ)__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ... يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ... وَسَلِّمُوا۟ تَسْلِيمًا](https://quran.com/33/56)
+* Muhammad:
+* Ahmed:
+* Abad: The one who is invited on Miraj
+* Nabi: The one who take Naba (Khabar) from Allah SWT
+* Rasool: The messenger, the one who conveys the message to People
+* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ](https://quran.com/53/3)
 
 ***
 
@@ -347,31 +349,33 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ***
 
 #### [Milad-un-Nabi Special Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=fQX-IyAwRqI)
-* Sanad: Zamana kahey yeah aashiq-e-rasool SAW hai; Yeah, darwaish hai
+* __Sanad__:
+* Zamana kahey yeah aashiq-e-rasool SAW hai
+* Yeah, darwaish-hai
 
 ***
 
 #### [Name محمد Inside Spiritual | Irfan-ul-Haq](https://www.youtube.com/watch?v=rWrGxXi-3wE)
 
-* 1 `Meem`:
-  * `Mohabbat` of Allah-SWT with Rasool-Allah-SAW
-  * `Madad` promise
-  * `Manoos` hona ...unsiayat-ka-izhaar
-  * Everytime there is Azan-in-kinaat
-  * Bay-panah izzat-kiya-gaya
-  * Bay-panah tareef-kiya-gaya
-* 2 `Hay`: Haqq
-* 3 `Meem`: Muhabbat-of-Makhlooq with Rasool-Allah-SAW
-* 4 `Daal`: Dawat, Durastagi
+1. `Meem`:
+* `Mohabbat` of Allah-SWT with Rasool-Allah (SAW)
+* `Madad` promise
+* `Manoos` hona ...unsiayat-ka-izhaar
+* Everytime there is Azan-in-kinaat
+* Bay-panah izzat-kiya-gaya
+* Bay-panah tareef-kiya-gaya
+2. `Hay`: Haqq
+3. `Meem`: Muhabbat-of-Makhlooq with Rasool-Allah (SAW)
+4. `Daal`: Dawat, Durastagi
 
 * `Muhammad PBUH` (Name in this World)
 * `Ahmed` (Name in the Heavens)
 * `Mehmood` (After you passed away and in the life hereafter)
-* __Surah Al-Israa 17/79__: [And in some parts of the night (also) offer the Salat (prayer) with it (i.e. recite the Quran in the prayer), as an additional prayer (Tahajjud optional prayer Nawafil) for you (O Muhammad SAW). It may be that your Lord will raise you to Maqaman-Mahmuda](https://quranwbw.com/17#79)
+* __Surah Al-Israa 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ... عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
 
 ***
 
-#### [Hidden Meanings of the Name Muhammad You Won't Believe! | What Secrets Lie Behind the Name MUHAMMAD?](https://www.youtube.com/watch?v=VihC5yFPZjI)
+#### [Hidden Meanings of the Name Muhammad You Won't Believe! | What Secrets Lie Behind the Name Muhammad PBUH?](https://www.youtube.com/watch?v=VihC5yFPZjI)
 * Meem-1:
 * Meem-2:
 1. Adam (Meem)
@@ -382,23 +386,25 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ***
 
 #### [Muhammad (PBUH) Ne Kamyabi Ki Zindagi Guzarne Ke Liye Ye Cheez Sikhai | Irfan-ul-Haq](https://www.youtube.com/watch?v=XqYb9Dy8yiM)
-* Syed-ul-Anbiyaa
-* Syed-ul-Maliaka
-* __Surah Al-Alaq 96/9-10__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quranwbw.com/96/9-10)
+* Syed ul-Anbiya
+* Syed ul-Maliaka
+* __Surah Al-Alaq 96/9-10__: [أَرَءَيْتَ ٱلَّذِى يَنْهَىٰ...عَبْدًا إِذَا صَلَّىٰٓ](https://quran.com/96/9-10)
 * __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا](https://quran.com/17/1)
 * Abad: Rooh + Jism
 * Jibraeel: If I go beyond my limits...I'll burn...
 * Allah SWT: Abadi, I create this whole universe for you...
-* Prophet PBUH: I leave this whole universe for you...
-
-***
-
-
-#### [Madina at time of Prophet - PBUH](https://www.youtube.com/shorts/wz1x4TFn81I) 
+* Prophet PBUH: I leave this whole universe for you...!!!
 
 ***
 
 ## Wasif Ali Wasif
+
+#### [Subha Darood Shareef Parhne Ka Faida | Wasif Ali Wasif](https://www.youtube.com/watch?v=7tyjySIJT1w)
+* Har-dua-joo darood-say baghir-hoo, woh asmaan-say lotaa-di jaati-hai.
+* Darood Rooh-ki ghaza-hai
+* Qayamat-kay-din, mujh-say sab-say qareeb woh-hoo-ga, joo-much-par kasrat-say darood-partha-raha.
+
+***
 
 #### [Darood Sharif Ke Aaadab | Wasif Ali Wasif](https://www.youtube.com/watch?v=6k224wfUu-I)
 
@@ -409,13 +415,6 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ***
 
 #### [Darood Sharif Ek Aisa Wazifa Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=9rnIfut1MN8)
-
-***
-
-#### [Subha Darood Shareef Parhne Ka Faida | Wasif Ali Wasif](https://www.youtube.com/watch?v=7tyjySIJT1w)
-* Har-dua-joo darood-say baghir-hoo, woh asmaan-say lotaa-di jaati-hai.
-* Darood Rooh-ki ghaza-hai
-* Qayamat-kay-din, mujh-say sab-say qareeb woh-hoo-ga, joo-much-par kasrat-say darood-partha-raha.
 
 ***
 
@@ -442,12 +441,12 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ## Dr. Muhammad Tahir-ul-Qadri
 
 #### [Maqam-e-Mahmood kia hy? (2:00 hrs)| Dr. Muhammad Tahir-ul-Qadri](https://www.youtube.com/watch?v=onVL_-iw7fw)
-* __Surah 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
-* __Surah 20/1-2__: [طه...مَآ أَنزَلْنَا عَلَيْكَ ٱلْقُرْءَانَ لِتَشْقَىٰٓ](https://quran.com/20/1-2)
-* __Surah 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ١...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ٢...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ٣...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
+* __Surah Al-Isra 17/79__: [وَمِنَ ٱلَّيْلِ فَتَهَجَّدْ بِهِۦ نَافِلَةًۭ لَّكَ... عَسَىٰٓ أَن يَبْعَثَكَ رَبُّكَ مَقَامًۭا مَّحْمُودًۭا](https://quran.com/17/79)
+* __Surah Tata 20/1-2__: [طه...مَآ أَنزَلْنَا عَلَيْكَ ٱلْقُرْءَانَ لِتَشْقَىٰٓ](https://quran.com/20/1-2)
+* __Surah Al-Muzammil 73/1-4__: [يَـٰٓأَيُّهَا ٱلْمُزَّمِّلُ ...قُمِ ٱلَّيْلَ إِلَّا قَلِيلًۭا ...نِّصْفَهُۥٓ أَوِ ٱنقُصْ مِنْهُ قَلِيلًا ...أَوْ زِدْ عَلَيْهِ وَرَتِّلِ ٱلْقُرْءَانَ تَرْتِيلًا ٤](https://quran.com/73/1-4)
 * 40
-* Mahmood (Jis ki Hamad ki-Jai) - Rabb ka naam-hai aur Mustafa ka muqam-hai
 * Muhammad (Jis ki bohot-ziada-Hamad ki-Jai) - Name of Mustafa
+* Mahmood (Jis ki Hamad ki-Jai) - Rabb ka naam-hai aur Mustafa ka muqam-hai
 * Meri Hamad tum kartay ho...Muhammad ki Hamad mayn karta hoon...
 
 ***
@@ -462,7 +461,7 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ***
 
 #### [How does the heart find peace? | SSA Shah](https://www.youtube.com/shorts/blmlmoxC_IA)
-* When we Ishq with Prophet PBUH, We start understanding Rabb communicatin...What Rabb wants...
+* When we Ishq with Prophet PBUH, We start understanding Rabb communicatin...What Rabb wants...!
 * Rabb doesn't need our Naiki, Ibadaat...He is Bay-Nayaaz from that.
 * We start loving Rabb...He sent 124k prophets.
 * Everything is for our own self-betterment.
@@ -471,7 +470,8 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 
 #### [Allah Ka Hazoor Sab Say Aala Taufa Kya Hai | SSA Shah](https://www.youtube.com/shorts/j4GEKLSsz18)
 * Aijzi / Humility
-* Rabb-Talaa App-SAW say Ihsq-karta-hai. App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
+* Rabb-Talaa App-SAW say Ihsq-karta-hai.
+* App SAW say Pyaar, Alaa-darjay-ka tauhfa-hai.
 
 ***
 
@@ -479,7 +479,6 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 * Ishq
   
 ***
-
 
 ## Professor ARA
 
@@ -497,27 +496,19 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 
 ***
 
-#### [Moqam e Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
-
-***
-
-#### [Moqam-e-Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0&t=1s)
+#### [Moqam-e-Muhammad PBUH part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
 * __Surah An-Noor 24/35 (Allah SWT Noor)__: [۞ ٱللَّهُ نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ](https://quran.com/24/35)
-* __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
-* __Surah At-Taghabun 64/8__: [فَـَٔامِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَٱلنُّورِ ٱلَّذِىٓ أَنزَلْنَا ۚ وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/64/8)
+* __Surah Ash-Shuraa 42/52 (Kitab Noor; Imaan is Noor)__: [مَا كُنتَ تَدْرِى... مَا ٱلْكِتَـٰبُ وَلَا ٱلْإِيمَـٰنُ ...وَلَـٰكِن جَعَلْنَـٰهُ نُورًۭا](https://quran.com/42/52)
+* __Surah At-Taghabun 64/8__: [فَـَٔامِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ وَٱلنُّورِ ٱلَّذِىٓ أَنزَلْنَا... ۚ وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/64/8)
   
-***
 ***
 
 #### [Takhleeq-e-Kainat aur Noor-e-Muhammadi ﷺ | Allama Talib Johri](https://www.youtube.com/watch?v=kXaGChI0aQs)
 
 ***
 
-#### [Mola Ali A.S Se Anokha Sawal Allah Ne Muhammad SWS Ko Kaisy Paida Kia...!! | Allama Talib jhori](https://www.youtube.com/watch?v=cBRs3Y252G0)
 
-***
-
-#### [Zikr-e-Muhammad PBUH](https://www.youtube.com/watch?v=q5IUbAsF84Y)
+#### [Zikr-e-Muhammad PBUH | Allama Talib Johri](https://www.youtube.com/watch?v=q5IUbAsF84Y)
 
 ***
 
@@ -526,26 +517,26 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 ***
 
 #### [Hazrat Fatima Ke Naam Ke Maani Kya Hain? | Allama Syed Muzaffar Shah Qadri](https://www.youtube.com/watch?v=MIRacv-xuac)
-* __Fatima__: Anqita, yani churana. Doar kar denay wali.
+* __Fatima__: Anqita, yani churana.
   * Razayat time, 2-years for feeding milk time for mother to kids. Futima sabeeh
   * Doar kar denay wali
-  * Chura (leave) denay wali.
-* __Zahra (with Zabar)__: Kali (Phool ki kali) yani Shugafa 
+  * Churah (leave) denay wali.
+* __Zahra (with Zabar)__: Kali (Phool ki kali); Yani Shugafa 
 * __Zohra (with Paish)__: Husan, Jamal, Roshan Chehra, Suraj
-  * __Surah Taha 20/131__: [وَلَا تَمُدَّنَّ عَيْنَيْكَ إِلَىٰ مَا مَتَّعْنَا بِهِۦٓ أَزْوَٰجًۭا مِّنْهُمْ زَهْرَةَ ٱلْحَيَوٰةِ ٱلدُّنْيَا لِنَفْتِنَهُمْ فِيهِ ۚ وَرِزْقُ رَبِّكَ خَيْرٌۭ وَأَبْقَىٰ](https://quran.com/20/131)
-* __Batool__: Kainat say katt kar rehnay-wali, mutaqqi,  perhaz ghar (Afifa), doar rehnay-wali
+  * __Surah Taha 20/131__: [وَلَا تَمُدَّنَّ عَيْنَيْكَ ...إِلَىٰ مَا مَتَّعْنَا بِهِۦٓ... أَزْوَٰجًۭا مِّنْهُمْ زَهْرَةَ ٱلْحَيَوٰةِ ٱلدُّنْيَا... لِنَفْتِنَهُمْ فِيهِ ۚ... وَرِزْقُ رَبِّكَ خَيْرٌۭ وَأَبْقَىٰ](https://quran.com/20/131)
+* __Batool__: Kainat say katt-kar rehnay-wali, mutaqqi,  perhaz ghar (Afifa), doar rehnay-wali
 * __Afifa__: 
 
 ***
 
 #### [Hazrat Muhammad ﷺ Appearance Mentioned in Torah & Bible | Abdus Salam | Suno Pakistan EP 387](https://www.youtube.com/watch?v=-sHGNXq-IUU)
-   * [Surah Al-Araf Ayat 157](https://quran.com/en/al-araf/157)
-      * `“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel.`
-      * `He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them.`
-      * `˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”`
-   * [Surah Ale-Imran 75](https://quran.com/2/75)
-      * `There are some among the People of the Book who, if entrusted with a stack of gold, will readily return it. Yet there are others who, if entrusted with a single coin, will not repay it unless you constantly demand it.`
-      * `This is because they say, “We are not accountable for ˹exploiting˺ the Gentiles.” And ˹so˺ they attribute lies to Allah knowingly.`
+* __Surah Al-Araf 7/157__: [ٱلَّذِينَ يَتَّبِعُونَ ٱلرَّسُولَ ٱلنَّبِىَّ ٱلْأُمِّىَّ ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ يَأْمُرُهُم بِٱلْمَعْرُوفِ وَيَنْهَىٰهُمْ عَنِ ٱلْمُنكَرِ وَيُحِلُّ لَهُمُ ٱلطَّيِّبَـٰتِ وَيُحَرِّمُ عَلَيْهِمُ ٱلْخَبَـٰٓئِثَ وَيَضَعُ عَنْهُمْ إِصْرَهُمْ وَٱلْأَغْلَـٰلَ ٱلَّتِى كَانَتْ عَلَيْهِمْ ۚ فَٱلَّذِينَ ءَامَنُوا۟ بِهِۦ وَعَزَّرُوهُ وَنَصَرُوهُ وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ أُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ](https://quran.com/7/157)
+* `“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel.`
+* `He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them.`
+* `˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”`
+* __Surah Al-Baqarah 2/75__: [۞ أَفَتَطْمَعُونَ أَن يُؤْمِنُوا۟ لَكُمْ وَقَدْ كَانَ فَرِيقٌۭ مِّنْهُمْ يَسْمَعُونَ كَلَـٰمَ ٱللَّهِ ثُمَّ يُحَرِّفُونَهُۥ مِنۢ بَعْدِ مَا عَقَلُوهُ وَهُمْ يَعْلَمُونَ](https://quran.com/2/75)
+* `There are some among the People of the Book who, if entrusted with a stack of gold, will readily return it. Yet there are others who, if entrusted with a single coin, will not repay it unless you constantly demand it.`
+* `This is because they say, “We are not accountable for ˹exploiting˺ the Gentiles.” And ˹so˺ they attribute lies to Allah knowingly.`
     
 *** 
 
@@ -557,21 +548,13 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 
 ***
 
-#### [](https://www.youtube.com/watch?v=dtBz1u38WQQ)
-
-
 * __Surah Al-Anam 6/50 (قُل لَّآ أَقُولُ)__: [قُل لَّآ أَقُولُ... لَكُمْ عِندِى خَزَآئِنُ ٱللَّهِ وَلَآ أَعْلَمُ ٱلْغَيْبَ وَلَآ أَقُولُ لَكُمْ إِنِّى مَلَكٌ ۖ إِنْ أَتَّبِعُ إِلَّا مَا يُوحَىٰٓ إِلَىَّ ۚ قُلْ هَلْ يَسْتَوِى ٱلْأَعْمَىٰ وَٱلْبَصِيرُ ۚ أَفَلَا تَتَفَكَّرُونَ](https://quran.com/6/50)
 
 ***
 
 #### Prophet PBUH prayer
 * `Ya Allah, Mujhay Qayammat Kay Din Masakeen Main Uthana`
-* `al-masakeen`, which refers to the needy. 
-  * The distinction between the two (poor, needy) lies in the fact that the `poor-have-nothing` at all, while the `needy-have-very-little` to sustain themselves.
-
-***
-
-#### [Quran Se Nikal Saktay Ho Iss Ayat Ko | Shan-e-Rasool SAW | Allama Talib Johri](https://www.youtube.com/watch?v=TPz-m9UG6WM)
-* __Surah An-Nahl 16/89__: [وَيَوْمَ نَبْعَثُ فِى كُلِّ أُمَّةٍۢ شَهِيدًا عَلَيْهِم مِّنْ أَنفُسِهِمْ ۖ... وَجِئْنَا بِكَ شَهِيدًا عَلَىٰ هَـٰٓؤُلَآءِ ۚ... وَنَزَّلْنَا عَلَيْكَ ٱلْكِتَـٰبَ تِبْيَـٰنًۭا لِّكُلِّ شَىْءٍۢ ...وَهُدًۭى وَرَحْمَةًۭ وَبُشْرَىٰ لِلْمُسْلِمِينَ](https://quran.com/16/89)
+* `al-Masakeen`, which refers to the needy. 
+* The distinction between the two (poor, needy) lies in the fact that the `poor-have-NOTHING` at all, while the `needy-have-VERY-LITTLE` to sustain themselves.
 
 ***

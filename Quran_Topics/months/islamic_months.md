@@ -17,9 +17,9 @@
 12. Dhu al-Hijjah
 
 #### 4 Sacred Months: 
-1. 1 (Muharram - Imam Hussain),
-2. 7 (Rajab - My Month),
-3. 11 (Dhu al-Qidah - ???),
-4. 12 (Dhu al-Hijjah - Hajj) 
+1. - Muharram (1) - Imam Hussain,
+2. - Rajab (7) - My Month,
+3. - Dhu al-Qidah (11) - ???,
+4. - Dhu al-Hijjah (12) - Hajj 
 
 ***

@@ -29,7 +29,7 @@
 
 ***
 
-#### [Face Veil in Islam: Mandatory or Not? | چہرہ چھپانا فرض ہے یا نہیں؟](https://www.youtube.com/watch?v=0riK1A0_tO8)
+#### [Face Veil in Islam: Mandatory or Not? | چہرہ چھپانا فرض ہے یا نہیں؟ | SSA Shah](https://www.youtube.com/watch?v=0riK1A0_tO8)
 
 ***
 

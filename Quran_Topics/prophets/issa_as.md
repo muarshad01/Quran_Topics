@@ -105,3 +105,5 @@ And ˹on Judgment Day˺ Allah will say, “O Jesus, son of Mary! Remember My fav
 #### [Hazrat Maryam AS Mother Dua – Aisi Niyat Jis-ne Tareekh Badal-di! | Mufti MuneerAkhoon](https://www.youtube.com/watch?v=GOOzFjLhl3M)
 
 ***
+
+* __Surah Ale-Imran 3/61__: [فَمَنْ حَآجَّكَ فِيهِ مِنۢ بَعْدِ مَا جَآءَكَ مِنَ ٱلْعِلْمِ فَقُلْ تَعَالَوْا۟ نَدْعُ أَبْنَآءَنَا وَأَبْنَآءَكُمْ وَنِسَآءَنَا وَنِسَآءَكُمْ وَأَنفُسَنَا وَأَنفُسَكُمْ ثُمَّ نَبْتَهِلْ فَنَجْعَل لَّعْنَتَ ٱللَّهِ عَلَى ٱلْكَـٰذِبِينَ](https://quran.com/3/61)

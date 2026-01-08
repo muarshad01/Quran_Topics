@@ -1,4 +1,4 @@
-## [Quranic Verses About Animals](https://www.thelastdialogue.org/article/list-of-all-animals-mentioned-in-quran/)
+#### [Quranic Verses About Animals](https://www.thelastdialogue.org/article/list-of-all-animals-mentioned-in-quran/)
 * Ant نمل mentioned 03 times in Quran in 01 verses
 * Ape قرد mentioned 03 times in Quran in 03 verses. 
 * Bee نحلة mentioned 01 times in Quran in 01 verses. 

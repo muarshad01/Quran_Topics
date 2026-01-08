@@ -322,11 +322,11 @@
 
 ***
 
-### [Meaning Virtues and Benefits of Name Al-Wahabu | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
+#### [Meaning Virtues and Benefits of Name Al-Wahabu | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=gSuyyiwOcj8)
 
 ***
 
-### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
+#### [Allah Ka Naam "Rehmann" Kab Introduce Hua | Irfan-ul-Haq](https://www.youtube.com/watch?v=Vo9ZhpRkhSw)
 1. Allah is Nur: [](https://quran.com/24/35)
 2. Quran is Noor: [](https://quran.com/42/52)
 3. Shahib Quran is Noor: [](https://quran.com/5/15)
@@ -339,7 +339,7 @@
 
 ***
 
-### [Dushman Ki Kisibe Kisam kay Humle Say Mehfooz Rehne Ka Asan Wazifa | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=-C3Mh4FipMQ)
+#### [Dushman Ki Kisibe Kisam kay Humle Say Mehfooz Rehne Ka Asan Wazifa | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=-C3Mh4FipMQ)
 * "Al-Jabbar" (ٱلْجَبَّارُ) 
 * __Dushman Ki Kisibe Kisam kay Humle Say Mehfooz Rehne - 216x time__
 

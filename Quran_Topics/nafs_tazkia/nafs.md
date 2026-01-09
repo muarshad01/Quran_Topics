@@ -3,9 +3,13 @@
 
 ***
 
+* __Surah Al-Baqarah 2/207__: [وَمِنَ ٱلنَّاسِ مَن... يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ... وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
 * __Surah Al-Anam 6/54 ( كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ)__: [ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ...](https://quran.com/6/54)
-* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ ...رَهِينَةٌ...](https://quran.com/74/38-48)
+* __Surah Qaf 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ... وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ... وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
 * __Surah Al-Hashr 59/9 (وَمَن يُوقَ شُحَّ نَفْسِهِۦ)__: [وَمَن يُوقَ شُحَّ نَفْسِهِۦ... فَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ...](https://quran.com/59/9)
+* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ ...رَهِينَةٌ...](https://quran.com/74/38-48)
+* __Surah At-Takwir 81/14__: [عَلِمَتْ نَفْسٌۭ مَّآ أَحْضَرَتْ](https://quran.com/81/14)
+* __Surah Al-Infitar 82/5__: [عَلِمَتْ نَفْسٌۭ مَّا قَدَّمَتْ وَأَخَّرَتْ ٥](https://quran.com/82/5)
 
 ***
 
@@ -22,20 +26,6 @@
  
 *** 
 
-* __Surah Al-Baqarah 2/207__: [وَمِنَ ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
-
-* __Surah Qaf 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
-
-* __Surah At-Takwir 81/14__: [عَلِمَتْ نَفْسٌۭ مَّآ أَحْضَرَتْ](https://quran.com/81/14)
-
-* __Surah Al-Infitar 82/5__: [عَلِمَتْ نَفْسٌۭ مَّا قَدَّمَتْ وَأَخَّرَتْ ٥](https://quran.com/82/5)
-
-***
-
-#### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟ | SSA Shah](https://www.youtube.com/watch?v=XB1lK4VqDXA)
-
-***
-
 #### [The Three Greatest Tests on Paths of Taqwa | SSA Shah](https://www.youtube.com/shorts/b1Gc-uKhzhM)
 * Ego and Nafas
 1. Negate the Nafas
@@ -44,21 +34,13 @@
 
 ***
 
-#### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)
-
-***
-
-#### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=Bx590pYgc54)
-
-***
-
-#### [Insan aur Nafs ki jung ko handle karny ka wazeefa-aur-Tasbeeh | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=TZriideoDlA)
-
-***
-
-
-
-#### [Nafs Par Qabu Kaise Paya Jaye | SSA Shah](https://www.youtube.com/shorts/l6GMtV5vzL0)
+#### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
+* Ammara - Lawama - Mutmaina
+* This journey is covered not by Wazaif and also not by Duaas.
+* The things which have been conditioned with our effort by Allah SWT, we'll have to do that.
+* We shoudl try our level best...but first...__seek His TAUFEEQ__ ...at the start.
+* We tried our best... you accept it ...and grant us best rewaward.
+* 1 Duaa for Kaushih...2 Kaushish...3 Duaa for best reward.
 
 ***
 
@@ -70,13 +52,23 @@
 
 ***
 
-#### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
-* Ammara - Lawama - Mutmaina
-* This journey is covered not by Wazaif and also not by Duaas.
-* The things which have been conditioned with our effort by Allah SWT, we'll have to do that.
-* We shoudl try our level best...but first...__seek His TAUFEEQ__ ...at the start.
-* We tried our best... you accept it ...and grant us best rewaward.
-* 1 Duaa for Kaushih...2 Kaushish...3 Duaa for best reward.
+#### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟ | SSA Shah](https://www.youtube.com/watch?v=XB1lK4VqDXA)
+
+***
+
+#### [Nafs Par Qabu Kaise Paya Jaye | SSA Shah](https://www.youtube.com/shorts/l6GMtV5vzL0)
+
+***
+
+#### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)
+
+***
+
+#### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=Bx590pYgc54)
+
+***
+
+#### [Insan aur Nafs ki jung ko handle karny ka wazeefa-aur-Tasbeeh | Prof ARA](https://www.youtube.com/watch?v=TZriideoDlA)
 
 ***
 

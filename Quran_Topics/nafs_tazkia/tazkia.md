@@ -81,12 +81,13 @@
 
 ***
 
-### [Tazkiya-e-Nafs | Muhammad Ali](https://www.youtube.com/watch?v=8lQMTC2-pIA)
+
+#### [Tazkiya-e-Nafs | Muhammad Ali](https://www.youtube.com/watch?v=8lQMTC2-pIA)
 * __Abu Ubayda ibn al-Jarrah (Amin ul-Ummah)__ become the governor of Syria (Damancus), his life style was very simple.
     
 ***
 
-### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
+#### [Har Gunnah Ki Root | Irfan-ul-Haq](https://www.youtube.com/watch?v=4E_NIK9phjw)
 
 #### Why Azazeel become Mayoos (disappointed)?
 * __SELF-LIKING__ is the first-disease after being disappointed, which makes you do ALL the sins.
@@ -105,63 +106,65 @@
 
 ***
 
-## Hadith
+#### Hadith
 * [“Ja’far bin Abu Talib used to like the poor; he would sit with them and talk to them, and they would talk to him. And the Messenger of Allah (ﷺ) gave him the Kunyah of Abul-Masakin (Father of the Poor).”](https://sunnah.com/ibnmajah:4125) -- Sunan Ibn Majah 4125
 
 * [“No one will enter Paradise who has pride in his heart equal to the weight of a grain of mustard seed, and no one will enter Hell who has faith in his heart equal to the weight of a grain of mustard seed.”](https://sunnah.com/ibnmajah:4173) -- Sunan Ibn Majah 4173
 
 * ["O Allah! Cause me to live needy, and cause me to die needy and gather me in the group of the needy on the Day of Resurrection." 'Aishah said: "Why O Messenger of Allah?" He said: "Indeed they enter Paradise before their rich by forty autumns. O 'Aishah! Do not turn away the needy even if with a piece of date. O 'Aishah! Love the needy and be near them, for indeed Allah will make you near on the Day of Judgement."](https://sunnah.com/tirmidhi:2352) -- Jami` at-Tirmidhi 2352
 
-* __Surah Anaam 6/52 (${\color{red}Ashab ~us-Suffah}$)__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure. You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quranwbw.com/6/52)
+* __Surah Anaam 6/52 (${\color{red}Ashab ~us-Suffah}$)__: [˹O Prophet!˺ Do not dismiss those ˹poor believers˺ who invoke their Lord morning and evening, seeking His pleasure. You are not accountable for them whatsoever, nor are they accountable for you. So do not dismiss them, or you will be one of the wrongdoers.](https://quran.com/6/52)
 
 ***
 
 ## Tazkia
 
-* __Surah Al-Baqarah 2/151(See also: 2/129; 2/151; 62/2; 3/164)__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quranwbw.com/2/151)
-* __Surah Al-Baqarah 2/174 (ٱلنَّارَ وَلَا يُكَلِّمُهُمُ ٱللَّهُ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quranwbw.com/2/174)
+* __Surah Al-Baqarah 2/151(See also: 2/129; 2/151; 62/2; 3/164)__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quran.com/2/151)
+* __Surah Al-Baqarah 2/174 (ٱلنَّارَ وَلَا يُكَلِّمُهُمُ ٱللَّهُ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quran.com/2/174)
 
 ***
 
-* __Surah Al Imran 3/77 (وَلَا يَنظُرُ إِلَيْهِمْ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who trade Allah’s covenant and their oaths for a fleeting gain will have no share in the Hereafter. Allah will neither speak to them, nor look at them, nor purify them on the Day of Judgment. And they will suffer a painful punishment.](https://quranwbw.com/3/77)
-* __Surah Ale-Imran 3/164 (See also: 62/2; 3/164)__: [Indeed, Allah has done the believers a ˹great˺ favour by raising a messenger from among them—reciting to them His revelations, purifying them, and teaching them the Book and wisdom. For indeed they had previously been clearly astray.](https://quranwbw.com/3/164)
+* __Surah Al Imran 3/77 (وَلَا يَنظُرُ إِلَيْهِمْ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who trade Allah’s covenant and their oaths for a fleeting gain will have no share in the Hereafter. Allah will neither speak to them, nor look at them, nor purify them on the Day of Judgment. And they will suffer a painful punishment.](https://quran.com/3/77)
+
+* __Surah Ale-Imran 3/164 (See also: 62/2; 3/164)__: [Indeed, Allah has done the believers a ˹great˺ favour by raising a messenger from among them—reciting to them His revelations, purifying them, and teaching them the Book and wisdom. For indeed they had previously been clearly astray.](https://quran.com/3/164)
 
 *** 
 
-* __Surah An-Nisa 4/49__: [Have you ˹O Prophet˺ not seen those who ˹falsely˺ elevate themselves? It is Allah who elevates whoever He wills. And none will be wronged ˹even by the width of˺ the thread of a date stone.](https://quranwbw.com/4/49)
+* __Surah An-Nisa 4/49__: [Have you ˹O Prophet˺ not seen those who ˹falsely˺ elevate themselves? It is Allah who elevates whoever He wills. And none will be wronged ˹even by the width of˺ the thread of a date stone.](https://quran.com/4/49)
 
 *** 
 
-* __Surah At-Tawbah 9/103 (خُذْ مِنْ أَمْوَٰلِهِمْ صَدَقَةًۭ تُطَهِّرُهُمْ وَتُزَكِّيهِم بِهَا)__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/9/103)
+* __Surah At-Tawbah 9/103 (خُذْ مِنْ أَمْوَٰلِهِمْ صَدَقَةًۭ تُطَهِّرُهُمْ وَتُزَكِّيهِم بِهَا)__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quran.com/9/103)
 
 *** 
 
-* __Surah Taha 20/76 (وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quranwbw.com/20/76)
+* __Surah Taha 20/76 (وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quran.com/20/76)
 
 *** 
 
-* __Surah An-Nur 24/21 (وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ)__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
+* __Surah An-Nur 24/21 (وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ)__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quran.com/24/21)
 
 ***
 
-* __Surah Al-Jumu'ah 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
+* __Surah Al-Jumu'ah 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quran.com/62/2)
 
 *** 
 
-* __Surah Abasa 80/3__: [You never know ˹O Prophet˺, perhaps he may be purified,](https://quranwbw.com/80/3)
-* __Surah Abasa 80/7__: [even though you are not to blame if he would not be purified.](https://quranwbw.com/80/7)
+* __Surah Abasa 80/3__: [You never know ˹O Prophet˺, perhaps he may be purified,](https://quran.com/80/3)
+
+* __Surah Abasa 80/7__: [even though you are not to blame if he would not be purified.](https://quran.com/80/7)
 
 *** 
 
-* __Surah Al-A'la 87/14 (قَدْ أَفْلَحَ مَن تَزَكَّىٰ)__: [Successful indeed are those who purify themselves,](https://quranwbw.com/87/14)
+* __Surah Al-A'la 87/14 (قَدْ أَفْلَحَ مَن تَزَكَّىٰ)__: [Successful indeed are those who purify themselves,](https://quran.com/87/14)
   
 *** 
 
-* __Surah Ash-Shams 91/7-10 (قَدْ أَفْلَحَ مَن زَكَّىٰهَا)__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quranwbw.com/91/7-10) 
+* __Surah Ash-Shams 91/7-10 (قَدْ أَفْلَحَ مَن زَكَّىٰهَا)__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10) 
 
 ***
 
-* __Surah Al-Layl 92/18 (يُؤْتِى مَالَهُۥ يَتَزَكَّىٰ)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quranwbw.com/92/18).
+* __Surah Al-Layl 92/18 (يُؤْتِى مَالَهُۥ يَتَزَكَّىٰ)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quran.com/92/18).
 
 ***
 

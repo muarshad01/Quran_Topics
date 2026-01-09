@@ -1,39 +1,46 @@
-### SSA Shah
-* Regular recition of Surah Al-Baqarah helps in nafas-par qaboo-pana 
+#### Nafas
+* Regular recition of Surah Al-Baqarah helps in Nafas-par Qaboo-pana.  -- SSA Shah
 
 ***
 
-#### [Iblees ko kis ne gumrah kiya? Gunnah ka asal zimmedar kaun? Hairat angez haqeeqat! | Mufti Muneer](https://www.youtube.com/watch?v=OGek7vLuKKY)
+* __Surah Al-Anam 6/54 ( كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ)__: [ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ...](https://quran.com/6/54)
+* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ ...رَهِينَةٌ...](https://quran.com/74/38-48)
+* __Surah Al-Hashr 59/9 (وَمَن يُوقَ شُحَّ نَفْسِهِۦ)__: [وَمَن يُوقَ شُحَّ نَفْسِهِۦ... فَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ...](https://quran.com/59/9)
 
 ***
 
-* __Surah At-Tahrim 66/6__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ قُوٓا۟ أَنفُسَكُمْ وَأَهْلِيكُمْ نَارًۭا وَقُودُهَا ٱلنَّاسُ وَٱلْحِجَارَةُ عَلَيْهَا مَلَـٰٓئِكَةٌ غِلَاظٌۭ شِدَادٌۭ لَّا يَعْصُونَ ٱللَّهَ مَآ أَمَرَهُمْ وَيَفْعَلُونَ مَا يُؤْمَرُونَ](https://quran.com/66/6)
+## Types of Nafs (Self): 
+1. Nafs al-Ammara (the Commanding Self)
+2. Nafs al-Lawwama (the Reproaching Self)
+3. Nafs al-Mutmainna (the Content Self)
+
+* __Surah Yusuf 12/53 (ٱلنَّفْسَ لَأَمَّارَةٌۢ)__: [۞ وَمَآ أُبَرِّئُ نَفْسِىٓ ۚ إِنَّ... ٱلنَّفْسَ لَأَمَّارَةٌۢ... بِٱلسُّوٓءِ إِلَّا مَا رَحِمَ رَبِّىٓ ۚ إِنَّ رَبِّى غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/12/53)
+
+* __Surah Al-Qiyamah 75/2 (بِٱلنَّفْسِ ٱللَّوَّامَةِ)__: [وَلَآ أُقْسِمُ... بِٱلنَّفْسِ ٱللَّوَّامَةِ](https://quran.com/75/2)
+
+* __Surah Al-Fajr 89/27-30 (ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ)__: [يَـٰٓأَيَّتُهَا... ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ......ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ......فَٱدْخُلِى فِى عِبَـٰدِى......وَٱدْخُلِى جَنَّتِى......](https://quran.com/89/27-30)
+ 
+*** 
+
+* __Surah Al-Baqarah 2/207__: [وَمِنَ ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
+
+* __Surah Qaf 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
+
+* __Surah At-Takwir 81/14__: [عَلِمَتْ نَفْسٌۭ مَّآ أَحْضَرَتْ](https://quran.com/81/14)
+
+* __Surah Al-Infitar 82/5__: [عَلِمَتْ نَفْسٌۭ مَّا قَدَّمَتْ وَأَخَّرَتْ ٥](https://quran.com/82/5)
 
 ***
 
-#### [Nafs Never Dies | Irfan-ul-Haq](https://www.youtube.com/watch?v=GFoxrHoHG1c)
+#### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟ | SSA Shah](https://www.youtube.com/watch?v=XB1lK4VqDXA)
 
 ***
 
-#### [Nafs Par Qabu Kaise Paya Jaye | SSA Shah](https://www.youtube.com/shorts/l6GMtV5vzL0)
-
-***
-
-#### [How to Connect with Your Divine Self? | ہم نفس رحمانی تک کیسے پہنچیں گے؟](https://www.youtube.com/watch?v=pxcnRAoliso)
-* Hum apnay La-shaoor ko puri tarah say apni jibalat kay maa-tahat kar dayn.
-* Aur Jabilat ko hum train kar layn aikhamat-e-ilahi kay tehat
-* Concious mind
-* Sub-concisou ko apnay consciour kay ma-tahat kay laitay hayn  
-
-***
-
-#### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
-* Ammara - Lawama - Mutmina
-* This journey is covered not by wazaif and also not by duas.
-* The thigs which have been contioned by Allah SWT with our efforts, we'll have to do that.
-* We shoudl try our level best...but first...at the start seek His TAUFEEQ ...
-* We tried our best...you accept it...and grant us best rewaward
-* 1 Duaa for Kaushih...2 Taushish...3Duaa for best reward.
+#### [The Three Greatest Tests on Paths of Taqwa | SSA Shah](https://www.youtube.com/shorts/b1Gc-uKhzhM)
+* Ego and Nafas
+1. Negate the Nafas
+2. Once you get sufficient RIZQ don't indule in effort for more.
+3. Prefer dishonor over honor?
 
 ***
 
@@ -49,51 +56,34 @@
 
 ***
 
-#### [The Three Greatest Tests on Paths of Taqwa](https://www.youtube.com/shorts/b1Gc-uKhzhM)
+
+
+#### [Nafs Par Qabu Kaise Paya Jaye | SSA Shah](https://www.youtube.com/shorts/l6GMtV5vzL0)
 
 ***
 
-* __Surah Al-Anam 6/54 ( كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ)__: [عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ...](https://quran.com/6/54)
-* __Surah Al-Muddaththir 74/38-48 (كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ)__: [كُلُّ نَفْسٍۭ بِمَا كَسَبَتْ رَهِينَةٌ...](https://quran.com/74/38-48)
-* __Surah Al-Hashr 59/9 (وَمَن يُوقَ شُحَّ نَفْسِهِۦ)__: [وَمَن يُوقَ شُحَّ نَفْسِهِۦ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ...](https://quranwbw.com/59/9)
+#### [How to Connect with Your Divine Self? | ہم نفس رحمانی تک کیسے پہنچیں گے؟ | SSA Shah](https://www.youtube.com/watch?v=pxcnRAoliso)
+* Hum apnay La-shaoor ko puri-tarah-say apni jibalat-kay maa-tahat kar-dayn.
+* Aur Jabilat-ko hum train-kar-layn aikhamat-e-ilahi kay tehat
+* Concious mind
+* Sub-concisou ko apnay-consciour kay ma-tahat kar-laitay-hayn  
 
 ***
 
-## Types of Nafs (Self): 
-1. Nafs al-Ammara (the Commanding Self)
-2. Nafs al-Lawwama (the Reproaching Self)
-3. Nafs al-Mutmainna (the Content Self)
-
-* __Surah Yusuf 12/53 (${\color{red}Nafs ~al-Ammara}$)__: [۞ وَمَآ أُبَرِّئُ نَفْسِىٓ ۚ إِنَّ ٱلنَّفْسَ لَأَمَّارَةٌۢ بِٱلسُّوٓءِ إِلَّا مَا رَحِمَ رَبِّىٓ ۚ إِنَّ رَبِّى غَفُورٌۭ رَّحِيمٌۭ](https://quranwbw.com/12/53)
-* __Surah Al-Qiyamah 75/2 (${\color{red}Nafs ~al-Lawwama}$)__: [وَلَآ أُقْسِمُ بِٱلنَّفْسِ ٱللَّوَّامَةِ](https://quran.com/75/2)
-* __Surah Al-Fajr 89/27-30 (${\color{red}Nafs ~al-Mutmainna}$)__: [يَـٰٓأَيَّتُهَا ٱلنَّفْسُ ٱلْمُطْمَئِنَّةُ......ٱرْجِعِىٓ إِلَىٰ رَبِّكِ رَاضِيَةًۭ مَّرْضِيَّةًۭ......فَٱدْخُلِى فِى عِبَـٰدِى......وَٱدْخُلِى جَنَّتِى......](https://quran.com/89/27-30)
- 
-*** 
-
-## Great SUCCESS
-* Defeat your NAFAS
-   * You'll get Izzat, Dulat, Iqtidar-of-Descendants
-   * `Raat-ki-Tanhai` mayn Rabb-koo pukaartay-rahayn
-   * Din mayn jan-toarh Mehnat aur Jad-o-Jahad karayn
+#### [Nafs Ammara and Nafs Lawwama | SSA Shah](https://www.youtube.com/watch?v=Ryy2Z32M_SY )
+* Ammara - Lawama - Mutmaina
+* This journey is covered not by Wazaif and also not by Duaas.
+* The things which have been conditioned with our effort by Allah SWT, we'll have to do that.
+* We shoudl try our level best...but first...__seek His TAUFEEQ__ ...at the start.
+* We tried our best... you accept it ...and grant us best rewaward.
+* 1 Duaa for Kaushih...2 Kaushish...3 Duaa for best reward.
 
 ***
 
-## Ehad-e-Alast
-* __Surah Al-Araf 7/172__ : [وَإِذْ أَخَذَ رَبُّكَ مِنۢ بَنِىٓ ءَادَمَ مِن ظُهُورِهِمْ ذُرِّيَّتَهُمْ وَأَشْهَدَهُمْ عَلَىٰٓ أَنفُسِهِمْ أَلَسْتُ بِرَبِّكُمْ ۖ قَالُوا۟ بَلَىٰ ۛ شَهِدْنَآ ۛ أَن تَقُولُوا۟ يَوْمَ ٱلْقِيَـٰمَةِ إِنَّا كُنَّا عَنْ هَـٰذَا غَـٰفِلِينَ](https://quran.com/7/172)
+#### [Iblees ko kis ne gumrah kiya? Gunnah ka asal zimmedar kaun? Hairat angez haqeeqat! | Mufti Muneer](https://www.youtube.com/watch?v=OGek7vLuKKY)
 
 ***
 
-* __Surah Al-Baqarah 2/207__: [وَمِنَ ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
-
-* __Surah 50/16__: [وَلَقَدْ خَلَقْنَا ٱلْإِنسَـٰنَ وَنَعْلَمُ مَا تُوَسْوِسُ بِهِۦ نَفْسُهُۥ ۖ وَنَحْنُ أَقْرَبُ إِلَيْهِ مِنْ حَبْلِ ٱلْوَرِيدِ](https://quran.com/50/16)
+#### [Nafs Never Dies | Irfan-ul-Haq](https://www.youtube.com/watch?v=GFoxrHoHG1c)
 
 ***
-
-#### [The Power of Self-Control | خواہشات کو کنٹرول کرنا کیوں ضروری ہے؟ | SSA Shah](https://www.youtube.com/watch?v=XB1lK4VqDXA)
-
-***
-
-* __Surah 81/14__: []()
-* __Surah 82/5__: []()
-
-*** 

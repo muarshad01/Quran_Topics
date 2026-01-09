@@ -1,5 +1,5 @@
 #### Nafas
-* Regular recition of Surah Al-Baqarah helps in Nafas-par Qaboo-pana.  -- SSA Shah
+* Regular recition of `Surah Al-Baqarah` helps in Nafas-par Qaboo-pana.  -- SSA Shah
 
 ***
 

@@ -119,52 +119,53 @@
 
 ## Tazkia
 
-* __Surah Al-Baqarah 2/151(See also: 2/129; 2/151; 62/2; 3/164)__: [Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—](https://quran.com/2/151)
-* __Surah Al-Baqarah 2/174 (ٱلنَّارَ وَلَا يُكَلِّمُهُمُ ٱللَّهُ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who hide Allah’s revelations, trading them for a fleeting gain consume nothing but fire into their bellies. Allah will neither speak to them on the Day of Judgment, nor will He purify them. And they will suffer a painful punishment.](https://quran.com/2/174)
+* __Surah Al-Baqarah 2/151(See also: 2/129; 2/151; 62/2; 3/164)__: [كَمَآ أَرْسَلْنَا فِيكُمْ رَسُولًۭا مِّنكُمْ يَتْلُوا۟ عَلَيْكُمْ ءَايَـٰتِنَا وَيُزَكِّيكُمْ وَيُعَلِّمُكُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُعَلِّمُكُم مَّا لَمْ تَكُونُوا۟ تَعْلَمُونَ](https://quran.com/2/151)
+
+* __Surah Al-Baqarah 2/174 (ٱلنَّارَ وَلَا يُكَلِّمُهُمُ ٱللَّهُ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [إِنَّ ٱلَّذِينَ يَكْتُمُونَ مَآ أَنزَلَ ٱللَّهُ مِنَ ٱلْكِتَـٰبِ وَيَشْتَرُونَ بِهِۦ ثَمَنًۭا قَلِيلًا ۙ أُو۟لَـٰٓئِكَ مَا يَأْكُلُونَ فِى بُطُونِهِمْ إِلَّا ٱلنَّارَ وَلَا يُكَلِّمُهُمُ ٱللَّهُ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ وَلَهُمْ عَذَابٌ أَلِيمٌ](https://quran.com/2/174)
 
 ***
 
-* __Surah Al Imran 3/77 (وَلَا يَنظُرُ إِلَيْهِمْ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [Indeed, those who trade Allah’s covenant and their oaths for a fleeting gain will have no share in the Hereafter. Allah will neither speak to them, nor look at them, nor purify them on the Day of Judgment. And they will suffer a painful punishment.](https://quran.com/3/77)
+* __Surah Ale-Imran 3/77 (وَلَا يَنظُرُ إِلَيْهِمْ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ)__: [إِنَّ ٱلَّذِينَ يَشْتَرُونَ بِعَهْدِ ٱللَّهِ وَأَيْمَـٰنِهِمْ ثَمَنًۭا قَلِيلًا أُو۟لَـٰٓئِكَ لَا خَلَـٰقَ لَهُمْ فِى ٱلْـَٔاخِرَةِ وَلَا يُكَلِّمُهُمُ ٱللَّهُ وَلَا يَنظُرُ إِلَيْهِمْ يَوْمَ ٱلْقِيَـٰمَةِ وَلَا يُزَكِّيهِمْ وَلَهُمْ عَذَابٌ أَلِيمٌۭ](https://quran.com/3/77)
 
-* __Surah Ale-Imran 3/164 (See also: 62/2; 3/164)__: [Indeed, Allah has done the believers a ˹great˺ favour by raising a messenger from among them—reciting to them His revelations, purifying them, and teaching them the Book and wisdom. For indeed they had previously been clearly astray.](https://quran.com/3/164)
-
-*** 
-
-* __Surah An-Nisa 4/49__: [Have you ˹O Prophet˺ not seen those who ˹falsely˺ elevate themselves? It is Allah who elevates whoever He wills. And none will be wronged ˹even by the width of˺ the thread of a date stone.](https://quran.com/4/49)
+* __Surah Ale-Imran 3/164 (See also: 62/2; 3/164)__: [لَقَدْ مَنَّ ٱللَّهُ عَلَى ٱلْمُؤْمِنِينَ إِذْ بَعَثَ فِيهِمْ رَسُولًۭا مِّنْ أَنفُسِهِمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/3/164)
 
 *** 
 
-* __Surah At-Tawbah 9/103 (خُذْ مِنْ أَمْوَٰلِهِمْ صَدَقَةًۭ تُطَهِّرُهُمْ وَتُزَكِّيهِم بِهَا)__: [Take from their wealth ˹O Prophet˺ charity to purify and bless them, and pray for them—surely your prayer is a source of comfort for them. And Allah is All-Hearing, All-Knowing.](https://quran.com/9/103)
+* __Surah An-Nisa 4/49__: [أَلَمْ تَرَ إِلَى ٱلَّذِينَ يُزَكُّونَ أَنفُسَهُم ۚ بَلِ ٱللَّهُ يُزَكِّى مَن يَشَآءُ وَلَا يُظْلَمُونَ فَتِيلًا](https://quran.com/4/49)
 
 *** 
 
-* __Surah Taha 20/76 (وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ)__: [the Gardens of Eternity, under which rivers flow, where they will stay forever. That is the reward of those who purify themselves.](https://quran.com/20/76)
+* __Surah At-Tawbah 9/103 (خُذْ مِنْ أَمْوَٰلِهِمْ صَدَقَةًۭ تُطَهِّرُهُمْ وَتُزَكِّيهِم بِهَا)__: [خُذْ مِنْ أَمْوَٰلِهِمْ صَدَقَةًۭ تُطَهِّرُهُمْ وَتُزَكِّيهِم بِهَا وَصَلِّ عَلَيْهِمْ ۖ إِنَّ صَلَوٰتَكَ سَكَنٌۭ لَّهُمْ ۗ وَٱللَّهُ سَمِيعٌ عَلِيمٌ](https://quran.com/9/103)
 
 *** 
 
-* __Surah An-Nur 24/21 (وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ)__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quran.com/24/21)
+* __Surah Taha 20/76 (وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ)__: [جَنَّـٰتُ عَدْنٍۢ تَجْرِى مِن تَحْتِهَا ٱلْأَنْهَـٰرُ خَـٰلِدِينَ فِيهَا ۚ وَذَٰلِكَ جَزَآءُ مَن تَزَكَّىٰ](https://quran.com/20/76)
+
+*** 
+
+* __Surah An-Nur 24/21 (وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ)__: [۞ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ وَمَن يَتَّبِعْ خُطُوَٰتِ ٱلشَّيْطَـٰنِ فَإِنَّهُۥ يَأْمُرُ بِٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۚ وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ مَا زَكَىٰ مِنكُم مِّنْ أَحَدٍ أَبَدًۭا وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ وَٱللَّهُ سَمِيعٌ عَلِيمٌۭ](https://quran.com/24/21)
 
 ***
 
-* __Surah Al-Jumu'ah 62/2 (See Also: 2/129)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quran.com/62/2)
+* __Surah Al-Jumu'ah 62/2 (See Also: 2/129)__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/62/2)
 
 *** 
 
-* __Surah Abasa 80/3__: [You never know ˹O Prophet˺, perhaps he may be purified,](https://quran.com/80/3)
+* __Surah Abasa 80/3__: [وَمَا يُدْرِيكَ لَعَلَّهُۥ يَزَّكَّىٰٓ](https://quran.com/80/3)
 
-* __Surah Abasa 80/7__: [even though you are not to blame if he would not be purified.](https://quran.com/80/7)
+* __Surah Abasa 80/7__: [وَمَا عَلَيْكَ أَلَّا يَزَّكَّىٰ](https://quran.com/80/7)
 
 *** 
 
-* __Surah Al-A'la 87/14 (قَدْ أَفْلَحَ مَن تَزَكَّىٰ)__: [Successful indeed are those who purify themselves,](https://quran.com/87/14)
+* __Surah Al-A'la 87/14 (قَدْ أَفْلَحَ مَن تَزَكَّىٰ)__: [قَدْ أَفْلَحَ مَن تَزَكَّىٰ](https://quran.com/87/14)
   
 *** 
 
-* __Surah Ash-Shams 91/7-10 (قَدْ أَفْلَحَ مَن زَكَّىٰهَا)__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10) 
+* __Surah Ash-Shams 91/7-10 (قَدْ أَفْلَحَ مَن زَكَّىٰهَا)__: [وَنَفْسٍۢ وَمَا سَوَّىٰهَا...فَأَلْهَمَهَا فُجُورَهَا وَتَقْوَىٰهَا...قَدْ أَفْلَحَ مَن زَكَّىٰهَا...وَقَدْ خَابَ مَن دَسَّىٰهَا](https://quran.com/91/7-10) 
 
 ***
 
-* __Surah Al-Layl 92/18 (يُؤْتِى مَالَهُۥ يَتَزَكَّىٰ)__: [who donate ˹some of˺ their wealth only to purify themselves,](https://quran.com/92/18).
+* __Surah Al-Layl 92/18 (يُؤْتِى مَالَهُۥ يَتَزَكَّىٰ)__: [ٱلَّذِى يُؤْتِى مَالَهُۥ يَتَزَكَّىٰ ](https://quran.com/92/18).
 
 ***
 

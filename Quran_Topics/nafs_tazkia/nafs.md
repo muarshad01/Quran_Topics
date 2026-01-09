@@ -61,6 +61,9 @@
 ***
 
 #### [Nafs Kia Hai | Talib johri Sahib](https://www.youtube.com/watch?v=eQ1StU8-9TE)
+* __Surah __: []()
+* __Surah __: []()
+* __Surah __: []()
 
 ***
 
@@ -68,7 +71,7 @@
 
 ***
 
-#### [Insan aur Nafs ki jung ko handle karny ka wazeefa-aur-Tasbeeh | Prof ARA](https://www.youtube.com/watch?v=TZriideoDlA)
+#### [Insan aur Nafs ki jung ko handle karny ka Wazeefa-aur-Tasbeeh | Prof ARA](https://www.youtube.com/watch?v=TZriideoDlA)
 
 ***
 

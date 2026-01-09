@@ -4,6 +4,19 @@
 * Raat-ki-Tanhai mayn, Rabb ko pukaar-tay rahain
 * Din mayn jann-toarh Mehnat-aur-Jad-o-Jahad karayn
 
+#### Advice
+* May GOD make you Blind of `your GOOD-DEEDS` (so that you don't do pride / kibr.) and `others BAD-DEEDS` (so that you don't hate them and consider them Haqeer).
+
+#### The most critical disease of Nafas
+* `Khud pasand` in English translates to `Self-satisfied, conceited, or Self-important`.
+* It describes someone who is overly-pleased with themselves and their abilities. 
+* __Comparision__: is the biggest `mental-disorder, psychological-disorder.`
+* __Treatment__: Accept your mistakes, respect common-people.
+
+* Why Azazeel become Mayoos (disappointed)?
+* __SELF-LIKING__ is the first-disease after being disappointed, which makes you do ALL the sins.
+* `Ijz-ki-Nafi` Kibr-hai
+
 ***
 
 #### Tazkia
@@ -135,7 +148,6 @@
 * __Surah Ali-Imran 3/48 (Issa AS)__: [وَيُعَلِّمُهُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَٱلتَّوْرَىٰةَ وَٱلْإِنجِيلَ](https://quran.com/3/48)
 * __Surah An-Nisa 4/113 (Muhammad PBUH)__: [شَىْءٍۢ ۚ وَأَنزَلَ ٱللَّهُ عَلَيْكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ ...وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ... وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا](https://quran.com/4/113)
 
-
 ***
 
 #### [Tazkiya-e-Nafs | Muhammad Ali](https://www.youtube.com/watch?v=8lQMTC2-pIA)
@@ -147,11 +159,11 @@
 * Why Azazeel become Mayoos (disappointed)?
 * __SELF-LIKING__ is the first-disease after being disappointed, which makes you do ALL the sins.
 * `Ijz-ki-Nafi` Kibr-hai
-* __Surah Yusuf 12/76 (${\color{red}Knowledge ~over ~Knowledge}$)__: [فَبَدَأَ بِأَوْعِيَتِهِمْ قَبْلَ وِعَآءِ أَخِيهِ ثُمَّ ٱسْتَخْرَجَهَا مِن وِعَآءِ أَخِيهِ ۚ كَذَٰلِكَ كِدْنَا لِيُوسُفَ ۖ مَا كَانَ لِيَأْخُذَ أَخَاهُ فِى دِينِ ٱلْمَلِكِ إِلَّآ أَن يَشَآءَ ٱللَّهُ ۚ نَرْفَعُ دَرَجَـٰتٍۢ مَّن نَّشَآءُ ۗ وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ](https://quran.com/12/76)
+* __Surah Yusuf 12/76 (وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ)__: [فَبَدَأَ بِأَوْعِيَتِهِمْ قَبْلَ وِعَآءِ أَخِيهِ ثُمَّ ٱسْتَخْرَجَهَا مِن وِعَآءِ أَخِيهِ ۚ... كَذَٰلِكَ كِدْنَا لِيُوسُفَ ۖ ...مَا كَانَ لِيَأْخُذَ أَخَاهُ فِى دِينِ ٱلْمَلِكِ إِلَّآ ...أَن يَشَآءَ ٱللَّهُ ۚ نَرْفَعُ دَرَجَـٰتٍۢ مَّن نَّشَآءُ ۗ... وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ](https://quran.com/12/76)
 * __Surah An-Nisa 4/36 (${\color{red}Arrogant ~and ~Boastful}$)__: [۞ وَٱعْبُدُوا۟ ٱللَّهَ وَلَا تُشْرِكُوا۟ بِهِۦ شَيْـًۭٔا ۖ وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا وَبِذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَٱلْجَارِ ذِى ٱلْقُرْبَىٰ وَٱلْجَارِ ٱلْجُنُبِ وَٱلصَّاحِبِ بِٱلْجَنۢبِ وَٱبْنِ ٱلسَّبِيلِ وَمَا مَلَكَتْ أَيْمَـٰنُكُمْ ۗ إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا](https://quran.com/4/36)
 
 #### The most critical disease of Nafas
-* `Khud pasand` in English translates to `self-satisfied, conceited, or self-important`.
+* `Khud pasand` in English translates to `Self-satisfied, conceited, or Self-important`.
 * It describes someone who is overly-pleased with themselves and their abilities. 
 * __Comparision__: is the biggest `mental-disorder, psychological-disorder.`
 * __Treatment__: Accept your mistakes, respect common-people.
@@ -168,7 +180,7 @@
 
 * ["O Allah! Cause me to live needy, and cause me to die needy and gather me in the group of the needy on the Day of Resurrection." 'Aishah said: "Why O Messenger of Allah?" He said: "Indeed they enter Paradise before their rich by forty autumns. O 'Aishah! Do not turn away the needy even if with a piece of date. O 'Aishah! Love the needy and be near them, for indeed Allah will make you near on the Day of Judgement."](https://sunnah.com/tirmidhi:2352) -- Jami` at-Tirmidhi 2352
 
-* __Surah Al-Anam 6/52 ()__: [وَلَا تَطْرُدِ ٱلَّذِينَ يَدْعُونَ رَبَّهُم بِٱلْغَدَوٰةِ وَٱلْعَشِىِّ يُرِيدُونَ وَجْهَهُۥ ۖ مَا عَلَيْكَ مِنْ حِسَابِهِم مِّن شَىْءٍۢ وَمَا مِنْ حِسَابِكَ عَلَيْهِم مِّن شَىْءٍۢ فَتَطْرُدَهُمْ فَتَكُونَ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/6/52)
+* __Surah Al-Anam 6/52 (Ashab Suffa)__: [وَلَا تَطْرُدِ ...ٱلَّذِينَ يَدْعُونَ رَبَّهُم بِٱلْغَدَوٰةِ وَٱلْعَشِىِّ يُرِيدُونَ وَجْهَهُۥ ۖ... مَا عَلَيْكَ مِنْ حِسَابِهِم مِّن شَىْءٍۢ وَمَا مِنْ حِسَابِكَ عَلَيْهِم مِّن شَىْءٍۢ... فَتَطْرُدَهُمْ فَتَكُونَ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/6/52)
 
 ***
 

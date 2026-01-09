@@ -5,7 +5,7 @@
 ***
 
 #### [Aik Ba-Barkat Wazifa](https://www.youtube.com/shorts/3A6Linj145E)
-* Wa-Huma Rahman ur Raheem
+* "Wa Huwar Rahmanur Rahim" (وَهُوَ الرَّحْمَنُ الرَّحِيمُ) -- CREATION
 
 ***
 
@@ -25,19 +25,19 @@
 
 #### [You cannot will, unless Allah wills, Tum Chah be | Professor ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
 * Sheikh Abdul Qadir Jilani: What is Ism-e-Azam?
-  * __Jab tuh Allah-ka-naam aisay-lay, keh terey-dil-mayn aur kuch-naa-hoo__
+* __Jab tuh Allah-ka-naam aisay-lay, keh terey-dil-mayn aur kuch-naa-hoo__
 
 ***
 
-#### [The Hidden Truth Behind Ism-e-Azam| Ft. Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
+#### [The Hidden Truth Behind Ism-e-Azam| Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=I6MIarnX3o4)
 * __Ism-e-Azam uss ko ataa-hota-hai, Joo Apnay-aur-Dushmanoon kay-liye mehrbaan-hoo-jai__
 * Saif-e-Zaban
-* Kun-FaYa-Kun
-* Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years.
+* Kun FaYa-Kun
+* Surah Yasin Amil - Cancer treatment. My father recited Surah Yaseen 41-times for 40+ years!
 * __Ya Latifu__ Amil - Telepathy
 * Tazkia-e-Nafs
 * Insaaniyat-ki-Khidmat
-* __Ya Raqeeb__: 5000 daily for 41-daily: 27:14
+* __Ya Raqeeb__: 5,000 daily for 41-daily: 27:14
 
 ***
 
@@ -48,7 +48,7 @@
 #### [Powerful Wazifa Ya Badi-ul-Ajaib Bil Khair Ya Badio | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=sVFFpRwGaqw)
 * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
 * Ya Badio: Bay-misal cheezon-ko bagheer-asbab-kay paida-karnay-wala
-  * Translation: O originator-of-wonders with goodness, I seek assistance through your mercy.
+* Translation: O originator-of-wonders with goodness, I seek assistance through your mercy.
 
 ***
 
@@ -64,18 +64,18 @@
 ***
 
 #### [Tasbeeh and Zikar, Wazifa for Knowledge, Ism-e-Azam | Prof ARA](https://www.youtube.com/watch?v=TZ22yy4_VDs)
-> * __Surah Al-Anam 6/54 (Allah SWT Promise)__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-> * __Surah An-Naml 27/30 (King Solomon)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+* __Surah Al-Anam 6/54 (Allah SWT Promise)__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+* __Surah An-Naml 27/30 (King Solomon)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ... وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
 
 > 1. __Creative Order (Ilm; Knowledge; Hikmat)__
-> * __Surah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
-> * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ وَتَصْرِيفِ ٱلرِّيَـٰحِ(king Solomom) وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
+> * __Surah Al-Baqarah 2/163 (ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ)__: [وَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ ۖ... لَّآ إِلَـٰهَ إِلَّا هُوَ ٱلرَّحْمَـٰنُ ٱلرَّحِيمُ](https://quran.com/2/163)
+> * __Surah Al-Baqarah 2/164__: [إِنَّ فِى خَلْقِ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ... وَٱخْتِلَـٰفِ ٱلَّيْلِ وَٱلنَّهَارِ ...وَٱلْفُلْكِ ٱلَّتِى تَجْرِى فِى ٱلْبَحْرِ بِمَا يَنفَعُ ٱلنَّاسَ ...وَمَآ أَنزَلَ ٱللَّهُ مِنَ ٱلسَّمَآءِ مِن مَّآءٍۢ... فَأَحْيَا بِهِ ٱلْأَرْضَ بَعْدَ مَوْتِهَا ...وَبَثَّ فِيهَا مِن كُلِّ دَآبَّةٍۢ... وَتَصْرِيفِ ٱلرِّيَـٰحِ ...وَٱلسَّحَابِ ٱلْمُسَخَّرِ بَيْنَ ٱلسَّمَآءِ وَٱلْأَرْضِ... لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَعْقِلُونَ](https://quran.com/2/164)
 > * Creation Takhleeq, Abadi ki Afzaish, Uss ka Phaloo, Ilm; Pure Hikmat
 
 
 > 2. __Executive Order__
 > * __Surah Al-Baqarah 2/255 (ٱلْحَىُّ ٱلْقَيُّومُ ۚ)__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْحَىُّ ٱلْقَيُّومُ ۚ](https://quran.com/2/255)
-> * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
+> * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ... وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
 > * __Administrative__
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
 > * Control over every ATOM (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
@@ -84,9 +84,9 @@
 > * His Ilm encompasses everything (وَسِعَ كُرْسِيُّهُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ ۖ);
 > * He protects ALL His creatures (وَلَا يَـُٔودُهُۥ حِفْظُهُمَا ۚ)
 
-* __Surah 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
+* __Surah Fatir 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟)__ : [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ... إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ... إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
 
-* __Surah Al-Ahzab 33/35__: [إِنَّ ٱلْمُسْلِمِينَ وَٱلْمُسْلِمَـٰتِ وَٱلْمُؤْمِنِينَ وَٱلْمُؤْمِنَـٰتِ وَٱلْقَـٰنِتِينَ وَٱلْقَـٰنِتَـٰتِ وَٱلصَّـٰدِقِينَ وَٱلصَّـٰدِقَـٰتِ وَٱلصَّـٰبِرِينَ وَٱلصَّـٰبِرَٰتِ وَٱلْخَـٰشِعِينَ وَٱلْخَـٰشِعَـٰتِ وَٱلْمُتَصَدِّقِينَ وَٱلْمُتَصَدِّقَـٰتِ وَٱلصَّـٰٓئِمِينَ وَٱلصَّـٰٓئِمَـٰتِ وَٱلْحَـٰفِظِينَ فُرُوجَهُمْ وَٱلْحَـٰفِظَـٰتِ وَٱلذَّٰكِرِينَ ٱللَّهَ كَثِيرًۭا وَٱلذَّٰكِرَٰتِ أَعَدَّ ٱللَّهُ لَهُم مَّغْفِرَةًۭ وَأَجْرًا عَظِيمًۭا](https://quran.com/33/35)
+* __Surah Al-Ahzab 33/35__: [إِنَّ ٱلْمُسْلِمِينَ وَٱلْمُسْلِمَـٰتِ... وَٱلْمُؤْمِنِينَ وَٱلْمُؤْمِنَـٰتِ ...وَٱلْقَـٰنِتِينَ وَٱلْقَـٰنِتَـٰتِ... وَٱلصَّـٰدِقِينَ وَٱلصَّـٰدِقَـٰتِ ...وَٱلصَّـٰبِرِينَ وَٱلصَّـٰبِرَٰتِ ...وَٱلْخَـٰشِعِينَ وَٱلْخَـٰشِعَـٰتِ... وَٱلْمُتَصَدِّقِينَ وَٱلْمُتَصَدِّقَـٰتِ ...وَٱلصَّـٰٓئِمِينَ وَٱلصَّـٰٓئِمَـٰتِ... وَٱلْحَـٰفِظِينَ فُرُوجَهُمْ وَٱلْحَـٰفِظَـٰتِ ...وَٱلذَّٰكِرِينَ ٱللَّهَ كَثِيرًۭا وَٱلذَّٰكِرَٰتِ... أَعَدَّ ٱللَّهُ لَهُم مَّغْفِرَةًۭ وَأَجْرًا عَظِيمًۭا](https://quran.com/33/35)
 1. Muslim
 2. Momin
 3. Obedient
@@ -102,7 +102,7 @@
 
 #### [Ism-e-Azam, Masnoon Tasbeeh | Prof ARA](https://www.youtube.com/watch?v=h8watYwaoP4)
 > * __Surah Al-Anam 6/54 (Allah SWT Promise)__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-> * __Surah An-Naml 27/30 (King Solomon)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+> * __Surah An-Naml 27/30 (King Solomon)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ ...وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
 > * __Greatest Tasbeeh__: "Ya Rahman, Ya Rahim, Ya Kareem" (يا رحمن، يا رحيم، يا كريم)
 
 > 1. __Creative Order (Ilm; Knowledge)__
@@ -112,7 +112,7 @@
 
 > 2. __Executive Order (Administrative)__
 > * __Surah Al-Baqarah 2/255 (ٱلْحَىُّ ٱلْقَيُّومُ ۚ)__: [ٱللَّهُ لَآ إِلَـٰهَ إِلَّا هُوَ ٱلْحَىُّ ٱلْقَيُّومُ ۚ](https://quran.com/2/255)
-> * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
+> * __Surah Taha 20/111__: [۞ وَعَنَتِ ٱلْوُجُوهُ لِلْحَىِّ ٱلْقَيُّومِ ۖ ...وَقَدْ خَابَ مَنْ حَمَلَ ظُلْمًۭا](https://quran.com/20/111)
 > * 
 > * Neither drowsiness nor sleep overtakes Him (لَا تَأْخُذُهُۥ سِنَةٌۭ وَلَا نَوْمٌۭ ۚ)
 > * Control over every ATOM (نَوْمٌۭ ۚ لَّهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ)
@@ -132,6 +132,7 @@
   * Abu Musa al-Ash'ari
   * 99-Masaib are removed and smallest-one-is-Gham (Highest TRUST level in Tasawaf)
 * "Ya zal-jalali wal-ikram" (يا ذا الجلال والإكرام)
-  * Maang, Iss Naam Say Allah SWT Deeta Hai - Prophet PBUH
+  * __Maang, Iss Naam Say Allah SWT Deeta Hai - Prophet PBUH.__
 ```
+
 ***

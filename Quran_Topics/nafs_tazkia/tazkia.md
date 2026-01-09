@@ -160,10 +160,10 @@
 * __SELF-LIKING__ is the first-disease after being disappointed, which makes you do ALL the sins.
 * `Ijz-ki-Nafi` Kibr-hai
 * __Surah Yusuf 12/76 (وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ)__: [فَبَدَأَ بِأَوْعِيَتِهِمْ قَبْلَ وِعَآءِ أَخِيهِ ثُمَّ ٱسْتَخْرَجَهَا مِن وِعَآءِ أَخِيهِ ۚ... كَذَٰلِكَ كِدْنَا لِيُوسُفَ ۖ ...مَا كَانَ لِيَأْخُذَ أَخَاهُ فِى دِينِ ٱلْمَلِكِ إِلَّآ ...أَن يَشَآءَ ٱللَّهُ ۚ نَرْفَعُ دَرَجَـٰتٍۢ مَّن نَّشَآءُ ۗ... وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ](https://quran.com/12/76)
-* __Surah An-Nisa 4/36 (${\color{red}Arrogant ~and ~Boastful}$)__: [۞ وَٱعْبُدُوا۟ ٱللَّهَ وَلَا تُشْرِكُوا۟ بِهِۦ شَيْـًۭٔا ۖ وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا وَبِذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَٱلْجَارِ ذِى ٱلْقُرْبَىٰ وَٱلْجَارِ ٱلْجُنُبِ وَٱلصَّاحِبِ بِٱلْجَنۢبِ وَٱبْنِ ٱلسَّبِيلِ وَمَا مَلَكَتْ أَيْمَـٰنُكُمْ ۗ إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا](https://quran.com/4/36)
+* __Surah An-Nisa 4/36 (إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا)__: [۞ وَٱعْبُدُوا۟ ٱللَّهَ ...وَلَا تُشْرِكُوا۟ بِهِۦ شَيْـًۭٔا ۖ ...وَبِٱلْوَٰلِدَيْنِ إِحْسَـٰنًۭا... وَبِذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ ...وَٱلْجَارِ ذِى ٱلْقُرْبَىٰ وَٱلْجَارِ ٱلْجُنُبِ وَٱلصَّاحِبِ بِٱلْجَنۢبِ ...وَٱبْنِ ٱلسَّبِيلِ وَمَا مَلَكَتْ أَيْمَـٰنُكُمْ ۗ ...إِنَّ ٱللَّهَ لَا يُحِبُّ مَن كَانَ مُخْتَالًۭا فَخُورًا](https://quran.com/4/36)
 
 #### The most critical disease of Nafas
-* `Khud pasand` in English translates to `Self-satisfied, conceited, or Self-important`.
+* `Khud pasandi` in English translates to `Self-satisfied, conceited, or Self-important`.
 * It describes someone who is overly-pleased with themselves and their abilities. 
 * __Comparision__: is the biggest `mental-disorder, psychological-disorder.`
 * __Treatment__: Accept your mistakes, respect common-people.

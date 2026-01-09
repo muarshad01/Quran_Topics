@@ -93,8 +93,8 @@
 
 | No.  | Nafs and Tazkia | Last Updated |
 |---|---|---|
-|1. | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md) | 12/06/2025 |
-|2. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 12/06/2025|
+| 1. | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md) | 12/06/2025 |
+| 2. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 08/01/2026 |
 
 ***
 

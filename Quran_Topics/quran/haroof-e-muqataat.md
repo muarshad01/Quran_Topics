@@ -10,7 +10,7 @@
 * 29 - Surahs start with `Haroof-e-Muqataat`
    * Keys of the code-of-conduct OR law-book of Islam.
    * These words were taught to `Hazraat Adam AS`
-         * __Surah Al-Baqarah 2/31 (وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا)__: [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا ثُمَّ عَرَضَهُمْ عَلَى ٱلْمَلَـٰٓئِكَةِ فَقَالَ أَنۢبِـُٔونِى بِأَسْمَآءِ هَـٰٓؤُلَآءِ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/2/31)
+* __Surah Al-Baqarah 2/31 (وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا)__: [وَعَلَّمَ ءَادَمَ ٱلْأَسْمَآءَ كُلَّهَا ثُمَّ عَرَضَهُمْ عَلَى ٱلْمَلَـٰٓئِكَةِ فَقَالَ أَنۢبِـُٔونِى بِأَسْمَآءِ هَـٰٓؤُلَآءِ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/2/31)
 
 ***
 
@@ -38,7 +38,7 @@
 ***
 
 * 20 `Kāf ك` - Qul: Qul-kainaat kay liye, Qamil-e-Qul Nabi aur qulyatan Rahmatul-lil-Alameen bi
-   * __Surah 34/28 (Muhammad PBUH)__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا كَآفَّةًۭ لِّلنَّاسِ](https://quranwbw.com/34/28)
+   * __Surah 34/28 (Muhammad PBUH)__: [وَمَآ أَرْسَلْنَـٰكَ ...إِلَّا كَآفَّةًۭ لِّلنَّاسِ](https://quranwbw.com/34/28)
 * 5 `Hā هـ` - Part of word Hum (The close Companions of prophet PBUH (Sahaba RA))
 * 70 `Ain ع` - Abad-aur-Ajazi, Abadiat,  Bandagi-aur-Ajazi takes Insaan ahead-of-Angels
 * 90 `Sād ص` - Salah, Attribute Samad (`Allah As-Samad`) [Eighth-level Walli Allah]
@@ -48,12 +48,12 @@
 
 #### Haroof with `Nuqta` are Three (3)
 * 100 `Qāf ق` - Qalam (Ilm) & Qayamat; Qadar, Qalab Muneeb (Acquired Ilm) [Jalali Wird]
-   * __Surah Qaff 50/1__: [Qaaf, Wal Quran-al-Majeed](https://quran.com/50/1)
+   * __Surah Qaff 50/1__: [قٓ ۚ وَٱلْقُرْءَانِ ٱلْمَجِيدِ](https://quran.com/50/1)
 * 50 `Nūn ن` - `Nahi`: What Allah SWT has ordered, we keep following it.
    * `Darya-e-wahdat` one-side is `Qaf` and another-side is `Nun`
    * `Nun` - Ajmali-lahaz-say Dawat (Ink Pot)
-   * __Surah Az-Zumar 68/1__: [نٓ ۚ وَٱلْقَلَمِ وَمَا يَسْطُرُونَ](https://quran.com/68/1)
-   * __Surah Al-Anbya 21/87__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
+   * __Surah Az-Zumar 68/1__: [نٓ ۚ وَٱلْقَلَمِ ...وَمَا يَسْطُرُونَ](https://quran.com/68/1)
+   * __Surah Al-Anbya 21/87__: [وَذَا ٱلنُّونِ... إِذ ذَّهَبَ مُغَـٰضِبًۭا... فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ... فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن... لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
 * `Yā ي` - Yum-e-Hasaab
 
 ***
@@ -73,13 +73,12 @@
 * Law of Giving Values to Basic Words.
 * `Haa-Meem`:
    * Seven chapters of Universer
-      * 1 -__Surah 21/30__: [أَوَلَمْ يَرَ ٱلَّذِينَ كَفَرُوٓا۟ أَنَّ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ كَانَتَا رَتْقًۭا فَفَتَقْنَـٰهُمَا ۖ وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا يُؤْمِنُونَ ٣٠](https://quran.com/21/30)
+      * 1 -__Surah Al-Anbya 21/30__: [أَوَلَمْ يَرَ ٱلَّذِينَ كَفَرُوٓا۟ أَنَّ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ... كَانَتَا رَتْقًۭا... فَفَتَقْنَـٰهُمَا ۖ... وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا يُؤْمِنُونَ ٣٠](https://quran.com/21/30)
       * 2 - Hayat-and-Mamat
       * 3 - Hoot (Fish)
-   * `Ain-See-Qaaf` is after `Haa-Meem`
-   * `Ya-Hayyu Ya-Qayyum`
    * `Ya Hayyu Ya Qayyum` (يَا حَيُّ يَا قَيُّوْمُ)
    * `Ya-Rahmanu Ya-Raheemu` (يا رحمن يا رحيم)
+* `Ain-See-Qaaf` is after `Haa-Meem`
 
 ***
 
@@ -100,14 +99,14 @@
 ***
 
 #### [Ilm-al-Isma or Ilm-al-Ghyab Ibn al Arabi | Prof ARA](https://www.youtube.com/watch?v=HInxMyYq6SA)
-* __Joo bhi Allah say miltay-hayn khaloos-say mohabbat-say...unn-kay ILM-KA-RANG juda hoo-jata-hai.__
-* __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
+* __Joo bhi Allah say miltay-hayn KHALOOS-say MOHABBAT-say...unn-kay ILM-KA-RANG juda hoo-jata-hai.__
+* __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ... وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ... وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
 ***
 
 #### [Learning of Haroof-e-Muqattaat in the Quran | Prof ARA](https://www.youtube.com/watch?v=NqtimPZPwS4)
 * Sheikh Mohiuddin Ibn-Arabi
-* Wheen __Seen-will-enter-Sheen__...Mohiuddin's grave will be revealed.
+* Wheen __Seen-will-enter-Sheen__...Mohiuddin's grave will be revealed!
 * Knowledge of __basic categories__
 * Fitrat-of-things ka-ilm
 * Alif-Laam-Meem: This is a __group (groupings)__
@@ -123,7 +122,7 @@
 
 #### [Haroof-e-Muqattaat | Prof ARA](https://www.youtube.com/watch?v=ODd7EeaXelw)
 * Ibn-e-Abbas: Khuda kay naamon kay ikhtisaar-hayn
-* __Surah 21/30 (1st Haa-Meen: Totality)__ : [وَجَعَلْنَا مِنَ ٱلْمَآءِ كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا](https://quran.com/21/30)
+* __Surah Al-Anbiya 21/30 (1st Haa-Meen: Totality)__ : [وَجَعَلْنَا مِنَ ٱلْمَآءِ... كُلَّ شَىْءٍ حَىٍّ ۖ أَفَلَا](https://quran.com/21/30)
 * __Surah (2nd Haa-Meen: Death)__: []()
 * __Surah (3rd Haa-Meen: Fish)__: []()
 * Ya-Hayu Ya-Qayum (Qaaf: Wal Quran Kareem)
@@ -159,8 +158,9 @@
 #### [The Mystery Inside the Letters of Bismillah | ب، س، م’ میں کیا راز چھپا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=5RgU5ATuhFI)
 * "Bismillah Rahman Rahim" (بسم الله الرحمن الرحيم)
 * Jalali but in some aspects Jamali too
-* __Baa__: Rabb-Tallah-ki takhleeq ki siffat-aur-qudrat say mutaliq hai. Hi Creation!
-* __Seen__: Rabb-Tallah ki Sana-aur-Hamad ko zahir-karta-hai.
-* __Meem__: Rabb-Tallah kay "Ghafoor ur Raheem"(غَفُورٌ رَّحِيمُ) aur mauf kar deenay ki siffat ko zahir karta hai.
+* __Baa__: Rabb-Tallah-ki __TAKHLEEQ__ ki siffat-aur-qudrat say mutaliq hai. His Creation!
+* __Seen__: Rabb-Tallah ki __SANAA-aur-HAMAD__ ko zahir-karta-hai.
+* __Meem__: Rabb-Tallah kay __"Ghafoor-ur-Raheem" (غَفُورٌ رَّحِيمُ)__ aur mauf-kar-deenay ki-siffat ko zahir karta hai.
 
 ***
+

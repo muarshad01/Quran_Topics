@@ -3,26 +3,37 @@
 ***
 
 #### [Tazkiya-e-Nafs | Allama Talib Johri](https://www.youtube.com/watch?v=MFymvwe0WLA)
-* __Surah Ash-Shams 91/7-10__: [(7) And by the soul and ˹the One˺ Who fashioned it, (8) then with ˹the knowledge of˺ right and wrong inspired it! (9) Successful indeed is the one who purifies their soul, (10) and doomed is the one who corrupts it!](https://quran.com/91/7-10)
+
+
+* __Surah Al-Baqarah 2/129 (See also: 2/129; 2/151; 62/2; 3/164)__: [رَبَّنَا وَٱبْعَثْ فِيهِمْ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِكَ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُزَكِّيهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/2/129)
+
+* __Surah Al-Baqarah 2/207 (ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ)__: [وَمِنَ ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ وَٱللَّهُ رَءُوفٌۢ بِٱلْعِبَادِ](https://quran.com/2/207)
+
+* __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكَ وَرَحْمَتُهُۥ لَهَمَّت طَّآئِفَةٌۭ مِّنْهُمْ أَن يُضِلُّوكَ وَمَا يُضِلُّونَ إِلَّآ أَنفُسَهُمْ ۖ وَمَا يَضُرُّونَكَ مِن شَىْءٍۢ ۚ وَأَنزَلَ ٱللَّهُ عَلَيْكَ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَعَلَّمَكَ مَا لَمْ تَكُن تَعْلَمُ ۚ وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا](https://quran.com/4/113)
+
+* __Surah Al-Araaf 7/157 (ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ)__: [ٱلَّذِينَ يَتَّبِعُونَ ٱلرَّسُولَ ٱلنَّبِىَّ ٱلْأُمِّىَّ ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ يَأْمُرُهُم بِٱلْمَعْرُوفِ وَيَنْهَىٰهُمْ عَنِ ٱلْمُنكَرِ وَيُحِلُّ لَهُمُ ٱلطَّيِّبَـٰتِ وَيُحَرِّمُ عَلَيْهِمُ ٱلْخَبَـٰٓئِثَ وَيَضَعُ عَنْهُمْ إِصْرَهُمْ وَٱلْأَغْلَـٰلَ ٱلَّتِى كَانَتْ عَلَيْهِمْ ۚ فَٱلَّذِينَ ءَامَنُوا۟ بِهِۦ وَعَزَّرُوهُ وَنَصَرُوهُ وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ أُو۟لَـٰٓئِكَ هُمُ ٱلْمُفْلِحُونَ](https://quran.com/7/157)
+
+* __Surah Al-Anbiyaa 16/43 (فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ)__: [وَمَآ أَرْسَلْنَا مِن قَبْلِكَ إِلَّا رِجَالًۭا نُّوحِىٓ إِلَيْهِمْ ۚ فَسْـَٔلُوٓا۟ أَهْلَ ٱلذِّكْرِ إِن كُنتُمْ لَا تَعْلَمُونَ](https://quran.com/16/43)
+
+* __Surah An-Nahl 21/7 (فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ)__: [وَمَآ أَرْسَلْنَا قَبْلَكَ إِلَّا رِجَالًۭا نُّوحِىٓ إِلَيْهِمْ ۖ فَسْـَٔلُوٓا۟ أَهْلَ ٱلذِّكْرِ إِن كُنتُمْ لَا تَعْلَمُونَ](https://quran.com/21/7)
+
+* __Surah Az-Zumar 39/42__: [ٱللَّهُ يَتَوَفَّى ٱلْأَنفُسَ حِينَ مَوْتِهَا وَٱلَّتِى لَمْ تَمُتْ فِى مَنَامِهَا ۖ فَيُمْسِكُ ٱلَّتِى قَضَىٰ عَلَيْهَا ٱلْمَوْتَ وَيُرْسِلُ ٱلْأُخْرَىٰٓ إِلَىٰٓ أَجَلٍۢ مُّسَمًّى ۚ إِنَّ فِى ذَٰلِكَ لَـَٔايَـٰتٍۢ لِّقَوْمٍۢ يَتَفَكَّرُونَ](https://quran.com/39/42)
+
+* __Surah Al-Fath 48/29 (كَزَرْعٍ أَخْرَجَ شَطْـَٔهُۥ فَـَٔازَرَهُۥ فَٱسْتَغْلَظَ فَٱسْتَوَىٰ عَلَىٰ سُوقِهِۦ يُعْجِبُ ٱلزُّرَّاعَ لِيَغِيظَ)__: [مُّحَمَّدٌۭ رَّسُولُ ٱللَّهِ ۚ وَٱلَّذِينَ مَعَهُۥٓ أَشِدَّآءُ عَلَى ٱلْكُفَّارِ رُحَمَآءُ بَيْنَهُمْ ۖ تَرَىٰهُمْ رُكَّعًۭا سُجَّدًۭا يَبْتَغُونَ فَضْلًۭا مِّنَ ٱللَّهِ وَرِضْوَٰنًۭا ۖ سِيمَاهُمْ فِى وُجُوهِهِم مِّنْ أَثَرِ ٱلسُّجُودِ ۚ ذَٰلِكَ مَثَلُهُمْ فِى ٱلتَّوْرَىٰةِ ۚ وَمَثَلُهُمْ فِى ٱلْإِنجِيلِ كَزَرْعٍ أَخْرَجَ شَطْـَٔهُۥ فَـَٔازَرَهُۥ فَٱسْتَغْلَظَ فَٱسْتَوَىٰ عَلَىٰ سُوقِهِۦ يُعْجِبُ ٱلزُّرَّاعَ لِيَغِيظَ بِهِمُ ٱلْكُفَّارَ ۗ وَعَدَ ٱللَّهُ ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ مِنْهُم مَّغْفِرَةًۭ وَأَجْرًا عَظِيمًۢا](https://quran.com/48/29)
+
+* __Surah Al-Juma 62/2 (See also: 2/129; 2/151; 62/2; 3/164)__: [هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/62/2)
+
+* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ](https://quran.com/53/3)
+
+* __Surah Ash-Shams 91/7-10__: [وَنَفْسٍۢ وَمَا سَوَّىٰهَا...فَأَلْهَمَهَا فُجُورَهَا وَتَقْوَىٰهَا...قَدْ أَفْلَحَ مَن زَكَّىٰهَا...وَقَدْ خَابَ مَن دَسَّىٰهَا](https://quran.com/91/7-10)
   * First Yourself
   * Then Your Home, Family
   * Then Your City, Society
-* __Surah Al-Baqarah 2/207 (ٱلنَّاسِ مَن يَشْرِى نَفْسَهُ ٱبْتِغَآءَ مَرْضَاتِ ٱللَّهِ ۗ)__: [And there are those who would dedicate their lives to Allah’s pleasure. And Allah is Ever Gracious to ˹His˺ servants.](https://quranwbw.com/2/207)
-* __Surah Al-Araaf 7/157 (ٱلَّذِى يَجِدُونَهُۥ مَكْتُوبًا عِندَهُمْ فِى ٱلتَّوْرَىٰةِ وَٱلْإِنجِيلِ)__: [“˹They are˺ the ones who follow the Messenger, the unlettered Prophet, whose description they find in their Torah and the Gospel. He commands them to do good and forbids them from evil, permits for them what is lawful and forbids to them what is impure, and relieves them from their burdens and the shackles that bound them. ˹Only˺ those who believe in him, honour and support him, and follow the light sent down to him will be successful.”](https://quranwbw.com/7/157)
-* __Surah Al-Anbiyaa 16/43 (فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ)__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/16/43)
-* __Surah An-Nahl 21/7 (فَسۡـَٔلُوٓاْ أَهۡلَ ٱلذِّكۡرِ)__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quranwbw.com/21/7)
-* __Surah Az-Zumar 39/42__: [˹It is˺ Allah ˹Who˺ calls back the souls ˹of people˺ upon their death as well as ˹the souls˺ of the living during their sleep. Then He keeps those for whom He has ordained death, and releases the others until ˹their˺ appointed time. Surely in this are signs for people who reflect.](https://quranwbw.com/39/42)
-* __Surah Al-Fath 48/29 (كَزَرْعٍ أَخْرَجَ شَطْـَٔهُۥ فَـَٔازَرَهُۥ فَٱسْتَغْلَظَ فَٱسْتَوَىٰ عَلَىٰ سُوقِهِۦ يُعْجِبُ ٱلزُّرَّاعَ لِيَغِيظَ)__: [Muḥammad is the Messenger of Allah. And those with him are firm with the disbelievers and compassionate with one another. You see them bowing and prostrating2 ˹in prayer˺, seeking Allah’s bounty and pleasure. The sign ˹of brightness can be seen˺ on their faces from the trace of prostrating ˹in prayer˺. This is their description in the Torah. And their parable in the Gospel is that of a seed that sprouts its ˹tiny˺ branches, making it strong. Then it becomes thick, standing firmly on its stem, to the delight of the planters4—in this way Allah makes the believers a source of dismay for the disbelievers.5 To those of them who believe and do good, Allah has promised forgiveness and a great reward.](https://quran.com/48/29)
-* __Surah Al-Baqarah 2/129 (See also: 2/129; 2/151; 62/2; 3/164)__: [Our Lord! Raise from among them a messenger who will recite to them Your revelations, teach them the Book and wisdom, and purify them. Indeed, You ˹alone˺ are the Almighty, All-Wise.”](https://quranwbw.com/2/129)
-* __Surah Al-Juma 62/2 (See also: 2/129; 2/151; 62/2; 3/164)__: [He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quranwbw.com/62/2)
-* __Surah An-Nisaa 4/113 (وَكَانَ فَضْلُ ٱللَّهِ عَلَيْكَ عَظِيمًۭا)__: [Had it not been for Allah’s grace and mercy, a group of them would have sought to deceive you ˹O Prophet˺. Yet they would deceive none but themselves, nor can they harm you in the least. Allah has revealed to you the Book and wisdom and taught you what you never knew. Great ˹indeed˺ is Allah’s favour upon you!](https://quranwbw.com/4/113)
-
-* __Surah An-Najm 53/3 (وَمَا يَنطِقُ عَنِ ٱلْهَوَىٰٓ)__: [Nor does he speak of his own whims.](https://quranwbw.com/53/3)
-
+  * 
 #### Hadith
 * [And narrated Sad that the Prophet (ﷺ) said to 'Ali, "Will you not be pleased from this that you are to me like Aaron was to Moses?"](https://sunnah.com/bukhari:3706) -- Sahih al-Bukhari 3706
 
-* __Surah Al-Ahzaab 33/56 (وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ)__: [Indeed, Allah showers His blessings upon the Prophet, and His angels pray for him. O  believers! Invoke Allah’s blessings upon him, and salute him with worthy greetings of peace.](https://quranwbw.com/33/56)
+* __Surah Al-Ahzaab 33/56 (وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ)__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا](https://quran.com/33/56)
   * Muhammad:
   * Ahmed:
   * Abad: The one who is invited on Miraj
@@ -39,9 +50,9 @@
 ***
 
 #### [Tazkia-e-Nafs | Sahil Adeem](https://www.youtube.com/watch?v=nevkIwKlDE8)
-* __Surah Al-Baqarah 2/152__: [فَٱذْكُرُونِىٓ أَذْكُرْكُمْ](https://quranwbw.com/2/152)
-* __Surah Ar-Raad 13/11__: [إِنَّ ٱللَّهَ لَا يُغَيِّرُ مَا بِقَوْمٍ حَتَّىٰ يُغَيِّرُوا۟ مَا بِأَنفُسِهِمْ ۗ](https://quran.com/13/11)
-* __Surah__: [(1) Whatever is in the heavens and whatever is on the earth ˹constantly˺ glorifies Allah—the King, the Most Holy, the Almighty, the All-Wise. (2) He is the One Who raised for the illiterate ˹people˺ a messenger from among themselves—reciting to them His revelations, purifying them, and teaching them the Book and wisdom, for indeed they had previously been clearly astray—](https://quran.com/62/1-2)
+* __Surah Al-Baqarah 2/152__: [فَٱذْكُرُونِىٓ ...أَذْكُرْكُمْ](https://quran.com/2/152)
+* __Surah Ar-Raad 13/11__: [إِنَّ ٱللَّهَ لَا يُغَيِّرُ... مَا بِقَوْمٍ... حَتَّىٰ يُغَيِّرُوا۟... مَا بِأَنفُسِهِمْ ۗ](https://quran.com/13/11)
+* __Surah Al-Jumuah 62/1-2__: [يُسَبِّحُ لِلَّهِ مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ٱلْمَلِكِ ٱلْقُدُّوسِ ٱلْعَزِيزِ ٱلْحَكِيمِ...هُوَ ٱلَّذِى بَعَثَ فِى ٱلْأُمِّيِّـۧنَ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِهِۦ وَيُزَكِّيهِمْ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَإِن كَانُوا۟ مِن قَبْلُ لَفِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/62/1-2)
 
 |Ayat-1 |Ayat-2|
 |---|---|

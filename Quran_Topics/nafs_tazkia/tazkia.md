@@ -77,7 +77,7 @@
 
 ***
 
-### [Tazkiya-e-Nafs | Prof. Ahmad Rafiq Akhtar](https://www.youtube.com/watch?v=1yo9Lyaoqiw)
+#### [Tazkiya-e-Nafs | Prof ARA](https://www.youtube.com/watch?v=1yo9Lyaoqiw)
 
 ***
 

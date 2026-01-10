@@ -1,3 +1,5 @@
+#### Fitna al-Masih ad-Dajjal
+
 #### Hadith
 * [(9) Chapter: Ad-Dajjal will not be able to enter Al-Madina](https://sunnah.com/bukhari:1881)
 ```
@@ -8,7 +10,9 @@ standing in rows guarding it against him, and then Medina will shake with its in
 ```
 * [(25) Chapter: The Rest Of The Ahadith About Ad-Dajjal](https://sunnah.com/muslim:2945a)
 ```
-I heard Allah's Messenger (ﷺ) as saying: The people would run away from the Dajjal seeking shelter in the mountains. She said: Where would be the Arabs then in that day? He said: They would be small in number.
+I heard Allah's Messenger (ﷺ) as saying: The people would run away from the Dajjal seeking shelter
+in the mountains. She said: Where would be the Arabs then in that day? He said:
+They would be small in number.
 ```
 
 ***
@@ -17,18 +21,19 @@ I heard Allah's Messenger (ﷺ) as saying: The people would run away from the Da
 
 #### [How to Protect Yourself from Dajjal? | Sahil Adeem](https://www.youtube.com/watch?v=5xKt_nZK5EY)
 * __SAKINA__: Surah Al-Kahf recitation, cloud came down on top of a house...horse started making noise...
-* No memtion of Dajjal, Issa AS, Maryam AS,...
-* Surah of Tauheed
-* First 10-Ayat (Ahad)
-* Last 10-Ayat (Al-hamadu lillah)
-* Decode-the-Puzzle
+* No memtion of Dajjal (Anti Christ), Issa AS, Maryam AS,...
+* Recite First & last 10-Ayat
+* Surah Kafh, * Surah of Tauheed, first-ayat starts with (ٱلْحَمْدُ لِلَّهِ) and last-ayat ends with (أَحَدًۢا).
 * Isfahani Yahudi...
 
 ***
 
 #### [How Will Dajjal Reach Every Home? | Sahil Adeem](https://www.youtube.com/watch?v=KrXdqKzzRmQ)
 * When Dajjal comes, go towards mountains...
-* Mountains: First wahi, Last wahi (Issa AS at Toor); Ishab-e-kahf
+* __Mountains__:
+1. First Wahi
+2. Last Wahi (Issa AS at Toor)
+3. Ishab-e-kahf
 
 ***
 
@@ -37,22 +42,21 @@ I heard Allah's Messenger (ﷺ) as saying: The people would run away from the Da
 
 ***
 
-#### [Dajjal myth or reality! How will we know Imam Mahdi | Mubashar Luqman | Sahil Adeem](https://www.youtube.com/watch?v=wL_0peOcGag)
+#### [Dajjal myth or reality! How will we know Imam Mahdi | Sahil Adeem](https://www.youtube.com/watch?v=wL_0peOcGag)
 ```
 Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspected by some companions, including Umar, and even the Prophet himself, to be the Dajjal (False Messiah) due to some matching characteristics, but later Islamic tradition distinguishes him as a soothsayer or charlatan, not the ultimate Dajjal, whose identity was clarified later by narratives like Tamim al-Dari's encounter, revealing the true Dajjal's distinct features like being childless and unable to enter Mecca
 ```
-* __Fitna al-Masih ad-Dajjal__
 
 ***
 
 #### [Nabi SAW saw Dajjal with Hazrat Issa AS | Sahil Adeem‬](https://www.youtube.com/watch?v=W6AR3_Xe5Zc)
-1. The garden of Jorden
-2. The water of reiver Euphrates
-3. The adornment of prophet PBUH (announcement of prophethood)
-* __Surah 70__: [](https://quran.com/70)
+1. The Garden of Jorden
+2. The water of Euphrates River
+3. The announcement of Prophet PBUH Mission
+* __Surah Al-Maarij 70/3-4__: [](https://quran.com/70/3-4)
 * Has that path opened?
-* The last-time angel Jibraeel will come for a prophet?
-* `I saw prophet Issas AS wad doing Tawaf in Kabba and Dajjal was walking behind him...`
+* The last-time angel Jibraeel will come for a Prophet?
+* `I saw prophet Issas AS was doing Tawaf in Kabba and Dajjal was walking behind him...` -- Hadith
 * Gihong Spring and 3 Arab rivers are from 6th heaven
 
 ***
@@ -60,21 +64,22 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ## Prof ARA
 
 #### [When Dajjal was creating Israel, God was making Pakistan | Prof ARA](https://www.youtube.com/watch?v=y9BIMU2vwno)
-* When Dajjal was establishing Israle
+* When Dajjal was establishing Israel
 * Allah SWT was establishing Pakistan
 * Allah nay apko apni-pechaan kay-liye paida-kiya-hai
-* Ibtid-e-Mohabbat ki-rah
 * Talab-e-Sadiq
+* Ibtade-Mohabbat ki-rah
 * Jastojoo-e-Haqiqat-aur-Rabbaniat ka aik-zara-bhee app-kay naseeb-mayn nahi-aa-sakta
-* Allah SWT doesn't need anything except your KHALOOS
-* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
+* Allah SWT doesn't need anything except your __KHALOOS___
+* __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ ...إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
 
 ***
 
 #### [Hadith (1/3, 1/3, 1/3) | Prof ARA](https://www.youtube.com/shorts/bTjhCg-jG-g)
-* 1/3 - Will Join Dajjal
-* 1/3 - Will Fight and Defeated (Worst of my Ummat)
-* 1/3 - Will Fight and Conquer 
+* [(9)Chapter: The Conquest Of Constantinople, The Emergence Of The Dajjal And The Descent Of 'Eisa bin Mariam](https://sunnah.com/muslim:2897) -- Sahih Muslim 2897
+1. 1/3 - Will Join Dajjal
+2. 1/3 - Will Fight and Defeated
+3. 1/3 - Will Fight and Conquer 
 
 ***
 
@@ -97,7 +102,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Caves under dome-of-rock, found books...
 * The conquerors were give the title of `Knights Templar`
 * They captured bait-ul-maqdas for 88 years...
-* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
+* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ ...أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ...ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ... لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ... إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
 
 ***
 
@@ -115,12 +120,12 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 #### [Dajjal Ka Saudia Arab Me Mahal? | Ahadees Me Ki Jany Wali Peshgoi Sach Sabit | Dr. Abdus Salam](https://www.youtube.com/watch?v=gQk-j5R51d4)
 * Prophet SWT saw Issa AS in Khawab and another person (Dajjal) was walking behind him with his hands on Issa AS shoulders
-* First, Dajjel will say `I'm Nabi` Nauz-Billah (Muhammad PBUH is Khatum-ul-Nabeen)
-* Second, Dajjal will say `I'm Raab`
+* __First__, Dajjel will say `I'm Nabi` Nauz-Billah (Muhammad PBUH is Khatum-ul-Nabeen)
+* __Second__, Dajjal will say `I'm Raab`
 * Allah (Whose laws we follow and prostrate to Him) & Raab (Economics)
-* Hadith: Three years before Dajjal arrival there will be `Famine`
-* Hadith: He'll land behind `Ahud Mountain`
-* Hadith: `Issa AS will murder him (Dajjal) at Ludd`
+* __Hadith__: Three years before Dajjal arrival there will be `Famine`
+* __Hadith__: He'll land behind `Ahud Mountain`
+* __Hadith__: `Issa AS will murder him (Dajjal) at Ludd`
 
 ***
 
@@ -138,11 +143,11 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Illumanati
 * Free Mason
 * Khalifa: Ditto Copy
-* Surah Hajar: https://quran.com/15/26-44
-   * Attack from ALL 4 sides
-   * I'll kidnap them
-   * `I'll order them (followers of Satan) to change your creation`
-   * Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
+* __Surah Hajar 15/26-44__: [](https://quran.com/15/26-44)
+1. Attack from ALL 4 sides
+2. I'll kidnap them
+3. `I'll order them (followers of Satan) to change your creation`
+4. Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
 * `Order of Illumanati`
    * `May 01, 1776` [This is not yum-e-mazdoor]
 * `Free Mason`
@@ -151,14 +156,10 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Dajjal Ka Maa Baap Kon? Duniya Mai Kitny Din Rahyga? | Ft. Abdul Salam | Suno Podcast Supernatural](https://www.youtube.com/watch?v=uJW-mSWiqqQ)
-* No NAMAZ in which prophet PBUH has sought `Allah SWT Panah from Mesieh Dajjal Shar and Fitnah`
+* No NAMAZ in which prophet PBUH has sought `Allah SWT Panah from Mesieh ad-Dajjal Shar and Fitnah`
 * Prophet Salman AS, `JASAD` sat at his throne (Chair)
-        * Oh Allah, don't give anybody a kingdom like me 
-* Surah Sajdah 21: https://quran.com/32/21
-```
-We will certainly make them taste some of the minor torment ˹in this life˺
-before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to the Right Path˺.
-```  
+  * Oh Allah, don't give anybody a kingdom like me 
+* __Surah Sajdah 32/21__: [وَلَنُذِيقَنَّهُم مِّنَ ٱلْعَذَابِ ٱلْأَدْنَىٰ دُونَ ٱلْعَذَابِ ٱلْأَكْبَرِ لَعَلَّهُمْ يَرْجِعُونَ](https://quran.com/32/21)
 * Ibn Sayyad (child) - Hadith
 * Tamim Dari - Hadith
 
@@ -170,21 +171,13 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 
 ***
 
-#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
-
-***
-
-#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
-
-***
-
-#### [East side and Dajjal](https://www.youtube.com/watch?v=syKVO0guebo)
+#### [East side and Dajjal | Abdus Salaam Arif](https://www.youtube.com/watch?v=syKVO0guebo)
 * `Saf ibn Sayyad` is Dajjal...`Hazrat Umer AS`
 * `Tamim al-Dari` met Dajjal on a Peninsula
 * Al-Masih (is a Personality) ad-Dajjal (is a System)
 * Al-Masih (is a Personality) Rooh Allah (is a System)
 * One Eyed & From EAST side:
-* `Najad Saudi Arabia`: Bokhari 7094, Tirmidhi 3953
+* `Najad Saudi Arabia`: __Bokhari 7094, Tirmidhi 3953__
    * O Allah, Hamaray Shaam par Reham Farmay
    * O Allah, Hamaray Yaman par Reham Farmay
    * `Banu Hanifa (Current Saudi Kings), Banu Qays, Banu Tamim (Qatar)` 
@@ -195,14 +188,13 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 
 ***
 
-
 #### [Bani Israel Ko Saza Q Mili? Jerusalem Ki History | Dr. Abdul Salam Arif](https://www.youtube.com/watch?v=vcibvqVDGP0)
 * Entry point which opens up in other world...
 * Dajjal will also try to run away from there ...
 * Suleman AS ruled the whole world from that part-of-world..
 
 #### Palestine
-* Palestine: `Syria, Jordan, Lebanon, Palestine` (4-countries)
+* __Palestine__: `Syria, Jordan, Lebanon, Palestine` (4-countries)
 * Baitul Maqdis (Masjid al-Aqsa) [House of the Holy], Yerusalem, Syria
 
 #### `Bethlehem` 
@@ -212,19 +204,18 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 
 #### Ibrahim AS
 * `Ibrahim AS` was born in Iraq at `Mesopotamia civilization` time; `Ur city`
-   * `Surah Baqarah 258-259`: https://quran.com/2/258-259 (Namrod King Incident)
+* __Surah Baqarah 258-259 (Namrod King)__: [](https://quran.com/2/258-259)
 * `Ibraham AS` was ordered to migrate to `Syria (Canaan)`
 * `Ibraham AS` send his Nephew `Lut AS` to `Sodom` city (near `Dead sea`)
-* Surah Baqarah 124: https://quran.com/2/124
-   * `˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”`
-   * Banu Ismail, Banu Ismail, ...
-   * Hazrat Ibrahim AS wife (`Sara AS`) ...
+* __Surah Baqarah 2/124__: [](https://quran.com/2/124)
+* Banu Ismail, Banu Ismail, ...
+* Hazrat Ibrahim AS wife (`Sara AS`) ...
 * `(Ibrahim AS, Sara AS)`
-   * `Ishaq AS -> Yaqub AS name is Israel (Grandson) [12 sons, youngest Yusuf]` settled in Canaan
-   * Surah Al-Isra: https://quran.com/17/1 (`barakna hawlahu`)
-   * `Musa -> Yusha bin Nun`
-   * `Prophet Daud (AS) and Jalut`
-      * Daud AS son Soluman AS -> `First Temple`
+* `Ishaq AS -> Yaqub AS name is Israel (Grandson) [12 sons, youngest Yusuf]` settled in Canaan
+* __Surah Al-Isra 17/1__: [](https://quran.com/17/1) (`barakna hawlahu`)
+* `Musa -> Yusha bin Nun`
+* `Prophet Daud (AS) and Jalut`
+* Daud AS son Soluman AS -> `First Temple`
 
 ***
 
@@ -236,17 +227,17 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 
 #### Two Rise and Two Falls
 * Bani Israel: Children of those on Noah AS boat...Quran
-* 1-RISE: Talut - David -> Solomon - 1st Temple
-* 1-FALL: Bakht Nasar (Nebucha-dnezzar)
-* 2-RISE: Cyrus saved them: Send them back to Palestine - 2nd Temple
+* __1-RISE__: Talut - David -> Solomon - __1st Temple__
+* __1-FALL__: Bakht Nasar (Nebucha-dnezzar)
+* __2-RISE__: Cyrus saved them.Send them back to Palestine - __2nd Temple__
 * Killed Zikaria AS, Yahya AS at request of a dancer.
-* Issa AS: Make the dead alive, Make clay mould birds, give eye-sight, etc. Crucify, etc (https://quran.com/4/157).
-2-FALL: 
+* __Issa AS__: Make the dead alive, Make clay mould birds, give eye-sight, etc. Crucify, etc ([](https://quran.com/4/157)).
+* __2-FALL__: 
 
 #### Muslims
-* RISE: Prophet PBUH till 1200 years
+* __RISE__: Prophet PBUH till 1200 years
 * European used to give us Tax: Haroon Rasheed and Mamoon Rasheed Abbasi Saltanat
-* FALL: Halaku Khan
+* __FALL__: Halaku Khan
 * India (Akbar-e-Azam); Turkey (); Iran ()
 
 ***
@@ -264,5 +255,13 @@ before the major torment ˹of the Hereafter˺, so perhaps they will return ˹to 
 ***
 
 #### [Dajjal Kab Aye Ga? | Dr Abdus Salam Arif | Podcast | Episode 20 (Part 2)](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
+
+***
+
+#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+
+***
+
+#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
 
 ***

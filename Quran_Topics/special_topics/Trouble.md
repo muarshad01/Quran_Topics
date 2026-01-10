@@ -1,3 +1,7 @@
+* [Confidence, Courage, Ability to Stay Calm when fear is at its Strongest]https://www.youtube.com/shorts/sohsUj8E6nY
+
+***
+
 #### [Allah Ki Raah Main Chalne Se Konsi 4 Azmaishein Ati Hain? | SSA Shah](https://www.youtube.com/watch?v=PlAJ-Jis9Ig)
 1. Financial Crunch
 2. Wife Issues

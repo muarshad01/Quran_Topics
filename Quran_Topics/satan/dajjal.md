@@ -265,3 +265,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
 
 ***
+
+#### [Exploring Dajjal, Yajuj Majuj and Surah Kahaf | Sahil Adeem](https://www.youtube.com/watch?v=kP8QC8KrbH0)
+
+***

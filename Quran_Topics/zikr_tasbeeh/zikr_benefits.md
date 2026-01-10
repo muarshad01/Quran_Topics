@@ -1,21 +1,15 @@
 #### Zikr (Rememberance of Allah SWT)
 * Jab Insaan, __KISI-bhi-ANDAAZ-mayn__ Rabb-ki-taraf __MUTWAJA__-hoo-ga, usay __YAAD__-karay-gaa, tuh-woo __ZIKR__-hai.
+* __Ahl-e-ZIKR is also Ahl-e-ILM and not vice versa.__
+* __HIKMAT__ Momim-ki gum-shuda-mataa hai, chahay Munafiq say-bhee-milay lay-loo. -- Hazrat Ali RA
+* Insaan __ZABAAN__-kay-parday mayn chupa-hai. -- Hazrat Ali RA
 * Don't leave __ZIKR EVER__...ALL problems will be __SOLVED!__ - Irfal-ul-Haq
-* Tasbeeh walay __BRAVE__ hotay hayn.
-* __SECRET__: No body can fight that person because Allah SWT takes care of his ememies.
+* Tasbeeh walay __BRAVE__ hotay hayn. -- Prof. ARA
+* __SECRET__: No body can fight that person because Allah SWT takes care of his ememies. -- Prof. ARA
 
 ***
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png" width="500" height="500" />
-
-***
-
-* __Ahl-e-ZIKR is also Ahl-e-ILM and not vice versa.__
-* __HIKMAT__ Momim-ki gum-shuda-mataa hai, chahay Munafiq say-bhee-milay lay-loo. -- Hazrat Ali RA
-* Insaan __ZABAAN__-kay-parday mayn chupa-hai. -- Hazrat Ali RA
-* __Don't leave ZIKR ever...All problems will be solved!__ -- Irfan-ul-Haq
-* Tasbeeh walay __BRAVE__ hotay hayn. -- Prof. ARA
-* __SECRET__: No body can fight that person because Allah SWT takes care of his ememies. -- Prof. ARA
 
 ***
 

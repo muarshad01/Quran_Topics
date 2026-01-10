@@ -4,6 +4,7 @@
 
 ***
 
+<!--
 |No.| Main Topics | Last Updated |
 |---|---|---|
 |0. |[Special Topics](#special-topics)| 12/06/2025|
@@ -19,6 +20,7 @@
 |10.| [Allah SWT](#allah-swt)| 12/06/2025 |
 |11.|[Satan](#satan)| 12/06/2025 |
 |12. |[Miscalleneous](#miscalleneous)|12/06/2025|
+-->
 
 ***
 

@@ -1,5 +1,4 @@
 #### Hadith
-#### [Hadith - Bokhari 1881](https://www.youtube.com/shorts/HHW-QcAEfbU)
 * [(9) Chapter: Ad-Dajjal will not be able to enter Al-Madina](https://sunnah.com/bukhari:1881)
 ```
 The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter except MECCA and MEDINA,

@@ -71,6 +71,15 @@
 
 ***
 
+#### Zikr and Tasbeen
+
+| No.  | Zikr and Tasbeen | Last Updated |
+|---|---|---|
+|1. | [Zikr (Rememberance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/zikr_benefits.md) | 12/06/2025 | 
+|2. | [Tasbeeh (Act of glorifying and praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 12/06/2025 | 
+
+***
+
 #### Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq
 
 |   | Insaan Muslim Momin Mutaqqi Kafir Salaheen Awabeen Munafiq | Last Updated |
@@ -89,6 +98,7 @@
 |11. | [Jinn](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/Jinn.md) | 08/01/2026 |
 |12. | [Angels](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/angels.md) | 08/01/2026 |
 |13. | [Taghoot](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/satan/taghoot.md) | 08/01/2026 |
+
 ***
 
 #### Nafs and Tazkia
@@ -114,16 +124,6 @@
 | 8. | [Ummah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/ummah.md) |12/27/2025|
 
 ***
-
-#### Zikr and Tasbeen
-
-| No.  | Zikr and Tasbeen | Last Updated |
-|---|---|---|
-|1. | [Zikr (Rememberance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/zikr_benefits.md) | 12/06/2025 | 
-|2. | [Tasbeeh (Act of glorifying and praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 12/06/2025 | 
-
-***
-
 
 #### Ilm
 

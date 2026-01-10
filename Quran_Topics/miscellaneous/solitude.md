@@ -1,3 +1,7 @@
+#### [If a man has no friends...very secure man!](https://www.youtube.com/shorts/K5OVHIBMinM)
+
+***
+
 #### Quotes
 * Insaan hamaisha-apni-Zaban-kay-haathon panash-jata-hai
 * Khamooshi-ikhtayaar-karoo...Allah SWT say talaq qaim-hoo jaya-gaa.

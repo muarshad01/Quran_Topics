@@ -6,6 +6,10 @@
 
 ***
 
+#### [Kya Driving ke Dauran Namaz Ho Sakti Hai? | Javed Ahmed Ghamidi](https://www.youtube.com/shorts/fqzCezlXyNc)
+
+***
+
 #### [Girtay hayn sajdon mayn hum...](https://www.youtube.com/shorts/30kAvMu-zgg)
 
 ***

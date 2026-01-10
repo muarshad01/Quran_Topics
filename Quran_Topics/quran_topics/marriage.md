@@ -79,3 +79,8 @@
 * Last 10 minutes...
 
 ***
+
+#### [If your relationship with Allah is strong, life is not a burden hope connects you to Allah](https://www.youtube.com/watch?v=ozTWRh9wFpU)
+* 10:00 
+
+* 

@@ -2,8 +2,10 @@
 
 *__Surah Al-Ahqaf 46/35 (صَبَرَ أُو۟لُوا۟ ٱلْعَزْمِ مِنَ ٱلرُّسُلِ)__: [فَٱصْبِرْ كَمَا صَبَرَ أُو۟لُوا۟ ٱلْعَزْمِ مِنَ ٱلرُّسُلِ... وَلَا تَسْتَعْجِل لَّهُمْ ۚ... كَأَنَّهُمْ يَوْمَ يَرَوْنَ مَا يُوعَدُونَ لَمْ يَلْبَثُوٓا۟ إِلَّا سَاعَةًۭ مِّن نَّهَارٍۭ ۚ بَلَـٰغٌۭ ۚ... فَهَلْ يُهْلَكُ إِلَّا ٱلْقَوْمُ ٱلْفَـٰسِقُونَ](https://quran.com/46/35)
 
+***
+
 #### Ulul-Azm (أُولُو ٱلْعَزْمِ) 
-* Elite __Messengers of Firm Resolve__ in the Quran, a title for the five prophets known for extraordinary patience and major divine missions:
+* Elite __Messengers of FIRM Resolve__ in the Quran, a title for the FIVE prophets known for extraordinary patience and major divine missions:
 1. Noah (Nuh)
 2. Abraham (Ibrahim)
 3. Moses (Musa)

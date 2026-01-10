@@ -1,5 +1,5 @@
 #### Zikr (Rememberance of Allah SWT)
-* Jab Insaan, __KISI-bhi-ANDAAZ-mayn__ Rabb-ki-taraf MUTWAJA-hoo-ga, usay YAAD-karay-gaa, tuh-woo ZIKR-hai.
+* Jab Insaan, __KISI-bhi-ANDAAZ-mayn__ Rabb-ki-taraf __MUTWAJA__-hoo-ga, usay __YAAD__-karay-gaa, tuh-woo __ZIKR__-hai.
 * Don't leave __ZIKR EVER__...ALL problems will be __SOLVED!__ - Irfal-ul-Haq
 * Tasbeeh walay BRAVE hotay hayn.
 * __SECRET__: No body can fight that person because Allah SWT takes care of his ememies.

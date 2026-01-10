@@ -2,9 +2,15 @@
 #### [Hadith - Bokhari 1881](https://www.youtube.com/shorts/HHW-QcAEfbU)
 * [(9) Chapter: Ad-Dajjal will not be able to enter Al-Madina](https://sunnah.com/bukhari:1881)
 ```
-The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter except MECCA and MEDINA, and there will be no entrance (road) (of both Mecca and Medina) but the angels will be standing in rows guarding it against him, and then Medina will shake with its inhabitants thrice (i.e. three earthquakes will take place) and Allah will expel all the non-believers and the hypocrites from it."
+The Prophet (ﷺ) said, "There will be no town which Ad-Dajjal will not enter except MECCA and MEDINA,
+and there will be no entrance (road) (of both Mecca and Medina) but the angels will be
+standing in rows guarding it against him, and then Medina will shake with its inhabitants thrice
+(i.e. three earthquakes will take place) and Allah will expel all the non-believers and the hypocrites from it."
 ```
 * [(25) Chapter: The Rest Of The Ahadith About Ad-Dajjal](https://sunnah.com/muslim:2945a)
+```
+I heard Allah's Messenger (ﷺ) as saying: The people would run away from the Dajjal seeking shelter in the mountains. She said: Where would be the Arabs then in that day? He said: They would be small in number.
+```
 
 ***
 

@@ -1,11 +1,4 @@
-#### [You cannot will, unless Allah wills, Tum Chah be | Prof ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
-* Aik-Ikhlas ka-Sajdah
-* __Aik-Ikhlas-Wala-Sajdah__, where there is nobody in HEART except All mighty Allah SWT.
-* Sheikh Abdul Qadir Jilani: What is Ism-e-Azam
-  * Jab tuh Allah ka naam aisay lay, keh terey dil mayn aur kuch-naa-hoo
-* __Surah Al-Anbya 21/79 (فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ)__: [فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ وَكُلًّا ءَاتَيْنَا حُكْمًۭا وَعِلْمًۭا ۚ وَسَخَّرْنَا مَعَ دَاوُۥدَ ٱلْجِبَالَ يُسَبِّحْنَ وَٱلطَّيْرَ ۚ وَكُنَّا فَـٰعِلِينَ](https://quran.com/21/79)
-
-***
+#### Allah SWT Will (يَشَآءُ ۚ)
 
 * __Surah Al-Baqarah 2/247(وَٱللَّهُ يُؤْتِى مُلْكَهُۥ مَن يَشَآءُ ۚ)__: [وَقَالَ لَهُمْ نَبِيُّهُمْ ...إِنَّ ٱللَّهَ قَدْ بَعَثَ لَكُمْ طَالُوتَ مَلِكًۭا ۚ... قَالُوٓا۟ أَنَّىٰ يَكُونُ لَهُ ٱلْمُلْكُ عَلَيْنَا ...وَنَحْنُ أَحَقُّ بِٱلْمُلْكِ مِنْهُ... وَلَمْ يُؤْتَ سَعَةًۭ مِّنَ ٱلْمَالِ ۚ... قَالَ إِنَّ ٱللَّهَ ٱصْطَفَىٰهُ عَلَيْكُمْ وَزَادَهُۥ بَسْطَةًۭ فِى ٱلْعِلْمِ وَٱلْجِسْمِ ۖ... وَٱللَّهُ يُؤْتِى مُلْكَهُۥ مَن يَشَآءُ ۚ... وَٱللَّهُ وَٰسِعٌ عَلِيمٌۭ](https://quran.com/2/247)
 
@@ -34,5 +27,14 @@
 * __Surah Al-Insaan 76/31 (يُدْخِلُ مَن يَشَآءُ فِى رَحْمَتِهِۦ ۚ)__: [يُدْخِلُ مَن يَشَآءُ فِى رَحْمَتِهِۦ ۚ وَٱلظَّـٰلِمِينَ أَعَدَّ لَهُمْ عَذَابًا أَلِيمًۢا](https://quran.com/76/31)
 
 * __Surah Al-Infitar 82/8__: [فِىٓ أَىِّ صُورَةٍۢ مَّا شَآءَ رَكَّبَكَ](https://quran.com/82/8)
+
+***
+
+#### [You cannot will, unless Allah wills, Tum Chah be | Prof ARA](https://www.youtube.com/watch?v=LdTk2mPG5f4)
+* Aik-Ikhlas ka-Sajdah
+* __Aik-Ikhlas-Wala-Sajdah__, where there is nobody in HEART except All mighty Allah SWT.
+* Sheikh Abdul Qadir Jilani: What is Ism-e-Azam
+  * Jab tuh Allah ka naam aisay lay, keh terey dil mayn aur kuch-naa-hoo
+* __Surah Al-Anbya 21/79 (فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ)__: [فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ وَكُلًّا ءَاتَيْنَا حُكْمًۭا وَعِلْمًۭا ۚ وَسَخَّرْنَا مَعَ دَاوُۥدَ ٱلْجِبَالَ يُسَبِّحْنَ وَٱلطَّيْرَ ۚ وَكُنَّا فَـٰعِلِينَ](https://quran.com/21/79)
 
 ***

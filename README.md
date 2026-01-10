@@ -130,7 +130,7 @@
 | No. | Ilm | Last Updated |
 |---|---|---|
 | 1. | [Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm.md) |01/01/2026|
-| 2. | [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md) |01/01/2026|
+| 2. | [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md) | 10/01/2026|
 | 3. | [Ulul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_ilm.md) |01/01/2026| 
 | 4. | [Ulul-Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_albab.md)|01/01/2026|
 | 5. | [Utul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)|01/01/2026|

@@ -4,20 +4,12 @@
 
 ***
 
-* __Ahl-e-Zikr is also Ahl-e-Ilm and not vice versa.__
-* Hikmat Momim-ki gum-shuda-mataa hai, chahay Munafiq say-bhee-milay lay-loo. -- Hazrat Ali RA
+* __Ahl-e-ZIKE is also Ahl-e-ILM and not vice versa.__
+* __HIKMAT__ Momim-ki gum-shuda-mataa hai, chahay Munafiq say-bhee-milay lay-loo. -- Hazrat Ali RA
 * Insaan __ZABAAN__-kay-parday mayn chupa-hai. -- Hazrat Ali RA
 * __Don't leave ZIKR ever...All problems will be solved!__ -- Irfan-ul-Haq
 * Tasbeeh walay __BRAVE__ hotay hayn. -- Prof. ARA
-* __SECRET__: No body can fight that person because Allah SWT takes care of his ememies-:) -- Prof. ARA
-
-***
-
-#### [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
-* Qalb-ki-parwarish
-* Rooh-ki-parwarish versus Jism-ki-parwarish
-* Qalb-ki-parwarish (Zikr-e-Rabb)
-* __Jab Insaan, kisi-bhi-andaaz-mayn Rabb-ki-taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh-woo Zikr-hai.__
+* __SECRET__: No body can fight that person because Allah SWT takes care of his ememies. -- Prof. ARA
 
 ***
 
@@ -153,6 +145,14 @@
 
 *** 
 
+
+***
+
+#### [Zikr Definition | SSA Shah](https://www.youtube.com/shorts/lRQd8PqEb8c)
+* Qalb-ki-parwarish
+* Rooh-ki-parwarish versus Jism-ki-parwarish
+* Qalb-ki-parwarish (Zikr-e-Rabb)
+* __Jab Insaan, kisi-bhi-andaaz-mayn Rabb-ki-taraf mutwaja-hoo-ga, usay yaad-karay-gaa, tuh-woo Zikr-hai.__
 
 ***
 

@@ -23,71 +23,6 @@
 
 ***
 
-#### [Bond Between Allah and Servant | Teachings of Syed Yaqoob Ali Shah (R.A) | SSA Shah](https://www.youtube.com/watch?v=HRl0Yti1XFM)
-* Rabb-aur-Banday kaa-Taulaq
-* Yak-Jaai
-* Sirf Apna-Zikr Choor-Jaa
-* Tuh-Kun aur Mayn-Kun...aik-hee too-hayn
-
-***
-
-#### [Ibn ‘Abbas reported God’s messenger as saying, “The devil is couching at the heart of the son of Adam. When he mentions God he withdraws, but when he is neglectful he makes evil suggestions.”](https://sunnah.com/mishkat:2281) - Mishkat al-Masabih 2281
-
-***
-
-#### [Importance of Zikr | Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
-* [Hazrat Yunus AS - 36/43-144](https://quran.com/37/143-144)
-* Quran-is-Shifa for Momineen:
-    * __Surah 9/14__:  [قَـٰتِلُوهُمْ يُعَذِّبْهُمُ ٱللَّهُ بِأَيْدِيكُمْ وَيُخْزِهِمْ وَيَنصُرْكُمْ عَلَيْهِمْ وَيَشْفِ صُدُورَ قَوْمٍۢ مُّؤْمِنِينَ ١٤](https://quran.com/9/14)
-    * __Surah 10/57__:  [يَـٰٓأَيُّهَا ٱلنَّاسُ قَدْ جَآءَتْكُم مَّوْعِظَةٌۭ مِّن رَّبِّكُمْ وَشِفَآءٌۭ لِّمَا فِى ٱلصُّدُورِ وَهُدًۭى وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ٥٧](https://quran.com/10/57)
-    * __Surah 17/82__:  [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا ٨٢](https://quran.com/17/82)
-* [Peace-of-Hearts (Challenge of Quran) - 13/28](https://quran.com/13/28)
-
-***
-
-#### ["La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ) ](https://www.youtube.com/shorts/hrvdOSDK7NY)
-* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ](https://quranwbw.com/4/103)
-***
-
-#### Zikr (وَلِلَّهِ الْأَسْمَاءُ الْحُسْنَىٰ فَادْعُوهُ بِهَا)
-* __Surah Al-Araaf 7/180 (Most Beautiful Names)__: [وَلِلَّهِ ٱلْأَسْمَآءُ ٱلْحُسْنَىٰ فَٱدْعُوهُ بِهَا ۖ وَذَرُوا۟ ٱلَّذِينَ يُلْحِدُونَ فِىٓ أَسْمَـٰٓئِهِۦ ۚ سَيُجْزَوْنَ مَا كَانُوا۟ يَعْمَلُونَ](https://quran.com/7/180)
-
-* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quranwbw.com/4/103)
-
-***
-
-#### [Importance of Zikr | Baba Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
-* __Surah Saaffaat 37/143-144 (Nooh AS: Importance of Zikr)__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ ١٤٣...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ ١٤٤](https://quran.com/37/143-144)
-* __Surah Al-Isra 17/82__: [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا](https://quran.com/17/82)
-
-***
-
-#### [Zikar Ky Zindgi-Pr-Asaraat | Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
-* 100% impact on life.
-* Study of Quran. Zikr of Allah SWT.
-* No matter of life is not solvable:
-1. Physical
-2. Psychological
-3. Economical
-4. Social
-5. Moral
-* Attitudes, Behavior, Moral, Genes Change (Genetic Problems) and Repair, Temperament, All-issues
-* __Under Debt__: `Ya-Zuljalal Wal-Ikram`
-* ...
-* __Don't leave Zikr ever...ALL problems will be solved!__
-
-***
-
-#### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof. Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
-* __Surah 2/200__: [فَإِذَا قَضَيْتُم مَّنَـٰسِكَكُمْ فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ فَمِنَ ٱلنَّاسِ مَن يَقُولُ رَبَّنَآ ءَاتِنَا فِى ٱلدُّنْيَا وَمَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ](https://quran.com/2/200)
-* __Surah Anbiyaa 21/87-88__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87-88)
-* __Surah Saaffaat 37/143-144 (Nooh AS: Importance of Zikr)__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ ١٤٣...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ ١٤٤](https://quran.com/37/143-144)
-* Friend-of-Friend (FoF)
-* Tasbeeh walay BRAVE hotay hayn.
-* `SECRET`: No body can fight that person because Allah SWT takes care of his ememies-:)
-
-***
-
 ### Hadith
 * [Abu Ad-Darda [may Allah be pleased with him] narrated that : the Prophet said: “Should I not inform you of the best of your deed, and the purest of them with your Master, and the highest of them in your ranks, and what is better for you than spending gold and silver, and better for you than meeting your enemy and striking their necks, and they strike your necks?” They said: “Of course.” He said, “The remembrance of Allah [Most High].” [Then] Mu’adh bin Jabal [may Allah be pleased with him] said: “There is nothing that brings more salvation from the punishment-of-Allah than the remembrance-of-Allah.”](https://sunnah.com/tirmidhi:3377) -- Jami` at-Tirmidhi 3377
 
@@ -218,3 +153,71 @@
 * __Surah Al-Insan 76/25-25 (Morning, Evening, Night)__: [وَٱذْكُرِ ٱسْمَ رَبِّكَ بُكْرَةًۭ وَأَصِيلًۭا...وَمِنَ ٱلَّيْلِ فَٱسْجُدْ لَهُۥ وَسَبِّحْهُ لَيْلًۭا طَوِيلًا](https://quran.com/76/25-26)
 
 *** 
+
+
+***
+
+#### [Bond Between Allah and Servant | Teachings of Syed Yaqoob Ali Shah (R.A) | SSA Shah](https://www.youtube.com/watch?v=HRl0Yti1XFM)
+* Rabb-aur-Banday kaa-Taulaq
+* Yak-Jaai
+* Sirf Apna-Zikr Choor-Jaa
+* Tuh-Kun aur Mayn-Kun...aik-hee too-hayn
+
+***
+
+#### [Ibn ‘Abbas reported God’s messenger as saying, “The devil is couching at the heart of the son of Adam. When he mentions God he withdraws, but when he is neglectful he makes evil suggestions.”](https://sunnah.com/mishkat:2281) - Mishkat al-Masabih 2281
+
+***
+
+#### [Importance of Zikr | Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
+* [Hazrat Yunus AS - 36/43-144](https://quran.com/37/143-144)
+* Quran-is-Shifa for Momineen:
+    * __Surah 9/14__:  [قَـٰتِلُوهُمْ يُعَذِّبْهُمُ ٱللَّهُ بِأَيْدِيكُمْ وَيُخْزِهِمْ وَيَنصُرْكُمْ عَلَيْهِمْ وَيَشْفِ صُدُورَ قَوْمٍۢ مُّؤْمِنِينَ ١٤](https://quran.com/9/14)
+    * __Surah 10/57__:  [يَـٰٓأَيُّهَا ٱلنَّاسُ قَدْ جَآءَتْكُم مَّوْعِظَةٌۭ مِّن رَّبِّكُمْ وَشِفَآءٌۭ لِّمَا فِى ٱلصُّدُورِ وَهُدًۭى وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ٥٧](https://quran.com/10/57)
+    * __Surah 17/82__:  [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا ٨٢](https://quran.com/17/82)
+* [Peace-of-Hearts (Challenge of Quran) - 13/28](https://quran.com/13/28)
+
+***
+
+#### ["La hawla wala quwwata illa billah" (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ) ](https://www.youtube.com/shorts/hrvdOSDK7NY)
+* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ](https://quranwbw.com/4/103)
+***
+
+#### Zikr (وَلِلَّهِ الْأَسْمَاءُ الْحُسْنَىٰ فَادْعُوهُ بِهَا)
+* __Surah Al-Araaf 7/180 (Most Beautiful Names)__: [وَلِلَّهِ ٱلْأَسْمَآءُ ٱلْحُسْنَىٰ فَٱدْعُوهُ بِهَا ۖ وَذَرُوا۟ ٱلَّذِينَ يُلْحِدُونَ فِىٓ أَسْمَـٰٓئِهِۦ ۚ سَيُجْزَوْنَ مَا كَانُوا۟ يَعْمَلُونَ](https://quran.com/7/180)
+
+* __Surah An-Nisa Ayat 4/103 (${\color{red}Standing, ~sitting ~or ~laying}$)__: [فَإِذَا قَضَيْتُمُ ٱلصَّلَوٰةَ فَٱذْكُرُوا۟ ٱللَّهَ قِيَـٰمًۭا وَقُعُودًۭا وَعَلَىٰ جُنُوبِكُمْ ۚ فَإِذَا ٱطْمَأْنَنتُمْ فَأَقِيمُوا۟ ٱلصَّلَوٰةَ ۚ إِنَّ ٱلصَّلَوٰةَ كَانَتْ عَلَى ٱلْمُؤْمِنِينَ كِتَـٰبًۭا مَّوْقُوتًۭا](https://quranwbw.com/4/103)
+
+***
+
+#### [Importance of Zikr | Irfan-ul-Haq](https://www.youtube.com/shorts/aPIk1CYyZ9o)
+* __Surah Saaffaat 37/143-144 (Nooh AS: Importance of Zikr)__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ ١٤٣...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ ١٤٤](https://quran.com/37/143-144)
+* __Surah Al-Isra 17/82__: [وَنُنَزِّلُ مِنَ ٱلْقُرْءَانِ مَا هُوَ شِفَآءٌۭ وَرَحْمَةٌۭ لِّلْمُؤْمِنِينَ ۙ وَلَا يَزِيدُ ٱلظَّـٰلِمِينَ إِلَّا خَسَارًۭا](https://quran.com/17/82)
+
+***
+
+#### [Zikar Ky Zindgi-Pr-Asaraat | Irfan-ul-Haq](https://www.youtube.com/watch?v=Cr0-vXl6Ng0)  
+* 100% impact on life.
+* Study of Quran. Zikr of Allah SWT.
+* No matter of life is not solvable:
+1. Physical
+2. Psychological
+3. Economical
+4. Social
+5. Moral
+* Attitudes, Behavior, Moral, Genes Change (Genetic Problems) and Repair, Temperament, All-issues
+* __Under Debt__: `Ya-Zuljalal Wal-Ikram`
+* ...
+* __Don't leave Zikr ever...ALL problems will be solved!__
+
+***
+
+#### [Benefits of Tasbeeh, Zikar and Remembrance of Allah kareem | Prof ARA](https://www.youtube.com/watch?v=Kx_1iJ7VA8s)
+* __Surah 2/200__: [فَإِذَا قَضَيْتُم مَّنَـٰسِكَكُمْ فَٱذْكُرُوا۟ ٱللَّهَ كَذِكْرِكُمْ ءَابَآءَكُمْ أَوْ أَشَدَّ ذِكْرًۭا ۗ فَمِنَ ٱلنَّاسِ مَن يَقُولُ رَبَّنَآ ءَاتِنَا فِى ٱلدُّنْيَا وَمَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ](https://quran.com/2/200)
+* __Surah Anbiyaa 21/87-88__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87-88)
+* __Surah Saaffaat 37/143-144 (Nooh AS: Importance of Zikr)__: [فَلَوْلَآ أَنَّهُۥ كَانَ مِنَ ٱلْمُسَبِّحِينَ ١٤٣...لَلَبِثَ فِى بَطْنِهِۦٓ إِلَىٰ يَوْمِ يُبْعَثُونَ ١٤٤](https://quran.com/37/143-144)
+* Friend-of-Friend (FoF)
+* Tasbeeh walay BRAVE hotay hayn.
+* `SECRET`: No body can fight that person because Allah SWT takes care of his ememies-:)
+
+***

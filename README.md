@@ -162,7 +162,6 @@
 | 5. | [Tahtus-Sara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) | 05/01/2026 |
 | 6. | [Dabat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) | 09/01/2026 |
 | 7. | [Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|
-|8.|[Will of Allah SWT](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/will_of_Allah_swt.md)|12/06/2025|
 | 8. | [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)|12/06/2025|
 | 9. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 12/06/2025 |
 | 10. | [Sidrah-tul-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|

@@ -133,9 +133,11 @@
 |2. | [Hikmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/hikmat.md) |01/01/2026|
 |3. | [Ulul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_ilm.md) |01/01/2026| 
 |4. | [Ulul-Albab](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ulul_albab.md)|01/01/2026|
-|5. | [Utul-Ilm](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)|01/01/2026|
+|5. | [Utul-Ilm]
+(https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/utul_ilm.md)|01/01/2026|
+| 6. | [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md) | 09/01/2026 |
 |6. | [Ilm-e-Ghayb](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/ilm_ghayb.md)| 07/01/2026 |
-|7. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/jahil_foolish.md)|01/01/2026|
+|8. | [Jahil (Foolish)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/ILM/jahil_foolish.md)|01/01/2026|
 
 ***
 
@@ -158,7 +160,6 @@
 | 1. | [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 05/01/2026 |
 | 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
 | 3. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) |12/06/2025|
-| 5. | [Ulul Azam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/ulul_azam.md) | 09/01/2026 |
 | 5. | [Tahtus-Sara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) | 05/01/2026 |
 | 6. | [Dabat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) | 09/01/2026 |
 | 7. | [Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)|12/06/2025|

@@ -19,3 +19,10 @@
 * __Surah Abasa 80/42__: [أُو۟لَـٰٓئِكَ هُمُ ٱلْكَفَرَةُ ٱلْفَجَرَةُ](https://quran.com/80/42)
 
 ***
+
+#### [See Qayamah | Sahid Adeem](https://www.youtube.com/shorts/P6C-53_VWIg)
+* __Surah At-Takwir (The Overthrowing) 81__: [إِذَا ٱلشَّمْسُ كُوِّرَتْ...](https://quran.com/81)
+* __Surah Al-Infitaar (The Cleaving) 82__: [إِذَا ٱلسَّمَآءُ ٱنفَطَرَتْ...](https://quran.com/82)
+* __Surah Al-Inshiqaaq (The Splitting Open) 84__: [إِذَا ٱلسَّمَآءُ ٱنشَقَّتْ](https://quran.com/84)
+
+*** 

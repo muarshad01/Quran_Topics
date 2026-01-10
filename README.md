@@ -80,6 +80,21 @@
 
 ***
 
+#### Hidayat Sirat Sabeel Imaan
+
+| No.  | Hidayat Sirat Sabeel Imaan| Last Updated |
+|---|---|---|
+| 1. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sirat.md) | 12/06/2025 |
+| 3. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sabeel.md) | 12/06/2025 |
+| 1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
+| 4. | [Imaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
+| 5. | [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) |12/27/2025|
+| 6. | [Haqq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/haqq.md) |12/27/2025|
+| 7. | [Deen Islam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/deen_islam.md) | 08/01/2026 |
+| 8. | [Ummah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/ummah.md) |12/27/2025|
+
+***
+
 #### Insaan, Muslim, Momin, Mutaqqi, Salaheen, Kafir, Munafiq
 
 |   | Insaan Muslim Momin Mutaqqi Kafir Salaheen Awabeen Munafiq | Last Updated |
@@ -107,21 +122,6 @@
 |---|---|---|
 | 1. | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md) | 09/01/2026 |
 | 2. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 09/01/2026 |
-
-***
-
-#### Hidayat Sirat Sabeel Imaan
-
-| No.  | Hidayat Sirat Sabeel Imaan| Last Updated |
-|---|---|---|
-| 1. | [Sirat (or Sirat al-Mustaqim) the straight path](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sirat.md) | 12/06/2025 |
-| 3. | [Sabeel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/sabeel.md) | 12/06/2025 |
-| 1. | [Hidayat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/hadiyat.md) | 12/06/2025 |
-| 4. | [Imaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/hadiyat-sirat-sabeel/imaan.md) | 12/06/2025 |
-| 5. | [Tawhid](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/tauheed.md) |12/27/2025|
-| 6. | [Haqq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/haqq.md) |12/27/2025|
-| 7. | [Deen Islam](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/deen_islam.md) | 08/01/2026 |
-| 8. | [Ummah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/ummah.md) |12/27/2025|
 
 ***
 

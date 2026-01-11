@@ -3,66 +3,16 @@
 ***
 
 #### [The Secret Work of Auliya Allah | SSA Shah](https://www.youtube.com/watch?v=q4mFuGygFps)
-* Auliaa akram are Sahib-e-Ilm.
-* Ilm-kay-natijay-me unhayn Aqal-o-Farast ataa ki-jaati-hai.
+* Auliaa akram are __Sahib-e-Ilm__.
+* Ilm-kay-natijay-me unhayn __Aqal-o-Farast__ ataa ki-jaati-hai.
 * Woh apni Aqal-o-Farast say kam-laitay-hayn.
 
 ***
 
-#### [Khwaja Muin al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
-* __Khwaja Usman Harooni__ was the spiritual mentor of Khwaja Moinuddin Chishti, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
-1. Tark-e-Dunya
-2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but ONLY Allah SWT!!__
-3. Takk-e-manam (Neend)
-4. Tark-e-hawai-e-Nafas
-
-1. Takr-e-Manam (kaam soona)
-2. Tark-e-Taum (kaam khana)
-3. Tark-e-Kalam (kaam bolna)
-4. ...
-
-#### Ishab-e-Suffa
-* They only desire, Allah SWT face:
-* __Surah Al-Baqarah 2/271__: [إِن تُبْدُوا۟ ٱلصَّدَقَـٰتِ فَنِعِمَّا هِىَ ۖ... وَإِن تُخْفُوهَا وَتُؤْتُوهَا ٱلْفُقَرَآءَ فَهُوَ خَيْرٌۭ لَّكُمْ ۚ... وَيُكَفِّرُ عَنكُم مِّن سَيِّـَٔاتِكُمْ ۗ ....وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/2/271)
-* __Surah Al-Baqarah 2/272__: [۞ لَّيْسَ عَلَيْكَ هُدَىٰهُمْ ...وَلَـٰكِنَّ ٱللَّهَ يَهْدِى مَن يَشَآءُ ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ فَلِأَنفُسِكُمْ ۚ ...وَمَا تُنفِقُونَ إِلَّا ٱبْتِغَآءَ وَجْهِ ٱللَّهِ ۚ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ يُوَفَّ إِلَيْكُمْ ...وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/2/272)
-* __Surah Al-Baqarah 2/273__: [لِلْفُقَرَآءِ... ٱلَّذِينَ أُحْصِرُوا۟ فِى سَبِيلِ ٱللَّهِ ...لَا يَسْتَطِيعُونَ ضَرْبًۭا فِى ٱلْأَرْضِ... يَحْسَبُهُمُ ٱلْجَاهِلُ أَغْنِيَآءَ مِنَ ٱلتَّعَفُّفِ... تَعْرِفُهُم بِسِيمَـٰهُمْ... لَا يَسْـَٔلُونَ ٱلنَّاسَ إِلْحَافًۭا ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ ...فَإِنَّ ٱللَّهَ بِهِۦ عَلِيمٌ](https://quran.com/2/273)
-* __Surah Al-Baqarah 2/274__: [ٱلَّذِينَ يُنفِقُونَ أَمْوَٰلَهُم بِٱلَّيْلِ وَٱلنَّهَارِ... سِرًّۭا وَعَلَانِيَةًۭ... فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ ...وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/274)
-
-***
-
-## Ranks
-* `Ghaus` (Qutub-ul-Aqtab)
-    * Ghuas has 7 Qutubs under him (One for Each continent?)
-    * He knows anwaar mubarak of 97 `Isma-e-mubarak`
-   * Compass: `Qutub` (Pole in Arabic)
-* `Abdaal` from Badal
-   * Properties, at one time present at many places.
-* Walli
-* 40,000 - Akhyar also called Imrans
-
-***
-
-## Silsila & Khilafat
-* Silsila Chishtia (First Khilafat) - `One Letter` to recite
-    * Khwaja Moin-ud-din Chishti disciple of __Khwaja Usman Harooni__ 
-* Silsila Junadia Awasia (2nd Khilafat) - `One Word` to recite
-    * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
-       * Hazrat Data Ganj Bakhsh 
-* Silsila Qadria (3rd Khilafat) - `One Letter` to recite
-   * Abdul Qadir Gilani
-
-***
-
-#### Wali Allah Types
-* Salik (Has good hoosh-p-hawash)
-* Majzoob (Has lost hoost-o-hawash; Dooi kay muqaam say Yakgai ka muqaam)
-
-***
-
-#### [Walayat (19 Levels) - Faqeer Rung: Session 15 - Manzilain Ilm Baatini Ki](https://www.youtube.com/watch?v=Y0OyNP3Z9XY)
-* 01: Don't know themselves - 40,000
+#### [Walayat (19 Levels) - Faqeer Rung: Session 15 - Manzilain Ilm Baatini Ki | SSA Shah](https://www.youtube.com/watch?v=Y0OyNP3Z9XY)
+1. - Don't know themselves - 40,000
    * Ahl-e-Allah, Ahl-e-Irshad, Rijaal Allah
-* 02: Ahl-e-Haqq or Ahl-e-Imraan - 272
+2. - Ahl-e-Haqq or Ahl-e-Imraan - 272
    * Halat-e-Sukkar or Halat-e-Soyoh 
 * 03: `Autaar` - 333
    * On duty around the 4 Buurajs around the Earth 
@@ -134,6 +84,55 @@
 * 18 Hazrat Ali RA
    * `Bab al-Ilm` or `Abu Turab` are titles
 * 19 `Prophet Muhammad PBUH`: Chair
+
+***
+
+#### [Khwaja Muin al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
+* __Khwaja Usman Harooni__ was the spiritual mentor of Khwaja Moinuddin Chishti, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
+1. Tark-e-Dunya
+2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but ONLY Allah SWT!!__
+3. Takk-e-manam (Neend)
+4. Tark-e-hawai-e-Nafas
+
+1. Takr-e-Manam (kaam soona)
+2. Tark-e-Taum (kaam khana)
+3. Tark-e-Kalam (kaam bolna)
+4. ...
+
+#### Ishab-e-Suffa
+* __Surah Al-Baqarah 2/271__: [إِن تُبْدُوا۟ ٱلصَّدَقَـٰتِ فَنِعِمَّا هِىَ ۖ... وَإِن تُخْفُوهَا وَتُؤْتُوهَا ٱلْفُقَرَآءَ فَهُوَ خَيْرٌۭ لَّكُمْ ۚ... وَيُكَفِّرُ عَنكُم مِّن سَيِّـَٔاتِكُمْ ۗ ....وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/2/271)
+* __Surah Al-Baqarah 2/272__: [۞ لَّيْسَ عَلَيْكَ هُدَىٰهُمْ ...وَلَـٰكِنَّ ٱللَّهَ يَهْدِى مَن يَشَآءُ ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ فَلِأَنفُسِكُمْ ۚ ...وَمَا تُنفِقُونَ إِلَّا ٱبْتِغَآءَ وَجْهِ ٱللَّهِ ۚ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ يُوَفَّ إِلَيْكُمْ ...وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/2/272)
+* __Surah Al-Baqarah 2/273__: [لِلْفُقَرَآءِ... ٱلَّذِينَ أُحْصِرُوا۟ فِى سَبِيلِ ٱللَّهِ ...لَا يَسْتَطِيعُونَ ضَرْبًۭا فِى ٱلْأَرْضِ... يَحْسَبُهُمُ ٱلْجَاهِلُ أَغْنِيَآءَ مِنَ ٱلتَّعَفُّفِ... تَعْرِفُهُم بِسِيمَـٰهُمْ... لَا يَسْـَٔلُونَ ٱلنَّاسَ إِلْحَافًۭا ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ ...فَإِنَّ ٱللَّهَ بِهِۦ عَلِيمٌ](https://quran.com/2/273)
+* __Surah Al-Baqarah 2/274__: [ٱلَّذِينَ يُنفِقُونَ أَمْوَٰلَهُم بِٱلَّيْلِ وَٱلنَّهَارِ... سِرًّۭا وَعَلَانِيَةًۭ... فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ ...وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/274)
+
+***
+
+## Ranks
+* `Ghaus` (Qutub-ul-Aqtab)
+    * Ghuas has 7 Qutubs under him (One for Each continent?)
+    * He knows anwaar mubarak of 97 `Isma-e-mubarak`
+   * Compass: `Qutub` (Pole in Arabic)
+* `Abdaal` from Badal
+   * Properties, at one time present at many places.
+* Walli
+* 40,000 - Akhyar also called Imrans
+
+***
+
+## Silsila & Khilafat
+* Silsila Chishtia (First Khilafat) - `One Letter` to recite
+    * Khwaja Moin-ud-din Chishti disciple of __Khwaja Usman Harooni__ 
+* Silsila Junadia Awasia (2nd Khilafat) - `One Word` to recite
+    * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
+       * Hazrat Data Ganj Bakhsh 
+* Silsila Qadria (3rd Khilafat) - `One Letter` to recite
+   * Abdul Qadir Gilani
+
+***
+
+#### Wali Allah Types
+* Salik (Has good hoosh-p-hawash)
+* Majzoob (Has lost hoost-o-hawash; Dooi kay muqaam say Yakgai ka muqaam)
 
 ***
 

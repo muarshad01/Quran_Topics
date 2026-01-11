@@ -25,14 +25,16 @@
    * Halat-e-Sukkar or Halat-e-Soyoh
    * __Surah Saad 38/48 (وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ)__: [وَٱذْكُرْ إِسْمَـٰعِيلَ وَٱلْيَسَعَ وَذَا ٱلْكِفْلِ ۖ... وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ](https://quran.com/38/48)
 7. - __ABDAAL__: 72
+   * `Abdaal` is from Badal
+   * Properties, at one time present at many places.
    * Some walk with `Hazrat Khizir AS`
    * They fly around the Earh
    * They are in groups of 7
-   * Hazrat Ali RA Roza-e-Mubarak, 11 Abdaals are on duty there according to a rawaih 
-8. - __Muqarab-ul-Haqq__: 40 (Allah Husamad; Baba Irfan-ul-Haq??)
+   * Hazrat Ali RA Roza-e-Mubarak, 11 Abdaals are on duty there according to a rawaih
+9. - __Muqarab-ul-Haqq__: 40 (Allah Husamad; Baba Irfan-ul-Haq??)
    * Dars-o-tadress in people, spread Ilm
    * One-level ahead of Abdaal 
-9. - __Abrar__: 227
+10. - __Abrar__: 227
    * 224 on duty
    * 3 on hazori
    * __Surah Al-Insan 76/5 (إِنَّ ٱلْأَبْرَارَ)__: [إِنَّ ٱلْأَبْرَارَ... يَشْرَبُونَ مِن كَأْسٍۢ كَانَ مِزَاجُهَا كَافُورًا](https://quran.com/76/5)
@@ -47,13 +49,15 @@
     * Mansur Al-Hallaj
     * Bayazid Bastami (Jo aik-bhi-sunnat tarak-karta-hai, woh rohaniyat-ki-khosboo bhi nahi-paa-sakta!)
 13. - __QUTUB__: Only 3 (`Syed Mohammad Baba Taj-ud-din`)
+    * `Qutub` (Pole in Arabic)
     * Compass: Qutub Numa, they protect the 4 corners (East, West, North, South) of Earth
     * Performs his duty on `1/3-rd` of world
     * Is ruler over a `Continent`
 14. - __GHAUS__ or `Qutb-al-Aqtab`
+    * Ghuas has 7 Qutubs under him (One for Each continent?)
+    * He knows anwaar mubarak of 97 `Isma-e-mubarak`
     *  Qutub-ud-din Bakhtiar Kaki [1173 – 1235] student of `Hazrat Moin al-Din Chishti`
-    * Peshawar incident 1985
-    * `Syed Sarfarz A. Shah`
+    * Peshawar incident 1985 ...`Syed Sarfarz A. Shah`
     * `Ruler over all Qura-e-Ardh`   
     * `Ruler over all Qutubs`
    * Ghaus-e-Zaman / Qutub-ul-Aqtab - Sheikh Abdul Qadir Julani
@@ -93,26 +97,6 @@
    * 2. - Tark-e-Taum (kaam khana)
    * 3. - Tark-e-Kalam (kaam bolna)
    * 4. - ...
-
-***
-
-#### Ishab-e-Suffa
-* __Surah Al-Baqarah 2/271__: [إِن تُبْدُوا۟ ٱلصَّدَقَـٰتِ فَنِعِمَّا هِىَ ۖ... وَإِن تُخْفُوهَا وَتُؤْتُوهَا ٱلْفُقَرَآءَ فَهُوَ خَيْرٌۭ لَّكُمْ ۚ... وَيُكَفِّرُ عَنكُم مِّن سَيِّـَٔاتِكُمْ ۗ ....وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/2/271)
-* __Surah Al-Baqarah 2/272__: [۞ لَّيْسَ عَلَيْكَ هُدَىٰهُمْ ...وَلَـٰكِنَّ ٱللَّهَ يَهْدِى مَن يَشَآءُ ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ فَلِأَنفُسِكُمْ ۚ ...وَمَا تُنفِقُونَ إِلَّا ٱبْتِغَآءَ وَجْهِ ٱللَّهِ ۚ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ يُوَفَّ إِلَيْكُمْ ...وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/2/272)
-* __Surah Al-Baqarah 2/273__: [لِلْفُقَرَآءِ... ٱلَّذِينَ أُحْصِرُوا۟ فِى سَبِيلِ ٱللَّهِ ...لَا يَسْتَطِيعُونَ ضَرْبًۭا فِى ٱلْأَرْضِ... يَحْسَبُهُمُ ٱلْجَاهِلُ أَغْنِيَآءَ مِنَ ٱلتَّعَفُّفِ... تَعْرِفُهُم بِسِيمَـٰهُمْ... لَا يَسْـَٔلُونَ ٱلنَّاسَ إِلْحَافًۭا ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ ...فَإِنَّ ٱللَّهَ بِهِۦ عَلِيمٌ](https://quran.com/2/273)
-* __Surah Al-Baqarah 2/274__: [ٱلَّذِينَ يُنفِقُونَ أَمْوَٰلَهُم بِٱلَّيْلِ وَٱلنَّهَارِ... سِرًّۭا وَعَلَانِيَةًۭ... فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ ...وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/274)
-
-***
-
-## Ranks
-* `Ghaus` (Qutub-ul-Aqtab)
-    * Ghuas has 7 Qutubs under him (One for Each continent?)
-    * He knows anwaar mubarak of 97 `Isma-e-mubarak`
-   * Compass: `Qutub` (Pole in Arabic)
-* `Abdaal` from Badal
-   * Properties, at one time present at many places.
-* Walli
-* 40,000 - Akhyar also called Imrans
 
 ***
 

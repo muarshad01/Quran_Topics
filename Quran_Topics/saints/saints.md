@@ -50,9 +50,6 @@
     * Compass: Qutub Numa, they protect the 4 corners (East, West, North, South) of Earth
     * Performs his duty on `1/3-rd` of world
     * Is ruler over a `Continent`
-
-***
-
 14. - __GHAUS__ or `Qutb-al-Aqtab`
     *  Qutub-ud-din Bakhtiar Kaki [1173 – 1235] student of `Hazrat Moin al-Din Chishti`
     * Peshawar incident 1985
@@ -60,9 +57,6 @@
     * `Ruler over all Qura-e-Ardh`   
     * `Ruler over all Qutubs`
    * Ghaus-e-Zaman / Qutub-ul-Aqtab - Sheikh Abdul Qadir Julani
-
-***
-
 15. - __Nigran-e-Alaa__: Only one
 16. - __Imam__: Only 4 (Tareeqat kay silsilon kay wali aur nigrann)
 17. - __12 Imans__: Hazrat Hassan RA and Hazrat Hussain RA (Ahle-e-Bait 12 Aima Ikram);
@@ -71,12 +65,13 @@
     * `Bab al-Ilm` or `Abu Turab` are titles
 19. - Prophet Muhammad PBUH: Chair
 
+***
+
 #### [❤️ 12 imams Names Beautifully inscribed in Masjid Nabi ﷺ | Mufti Fazal Hamdard](https://www.youtube.com/watch?v=lKAIw_es4nE)
  1. - Ali ibn Abi Talib
  2. - Hasan ibn Ali
  3. - Husayn ibn Ali
  4. - [Ali ibn Husayn (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
----
  5. - [Muhammad al-Baqir](https://www.youtube.com/shorts/Q0CGKBWWXHI)
  6. - [Jafar al-Sadiq](https://www.youtube.com/shorts/zYJCFrAXpYY)
  7. - [Musa al-Kadhim - 7th](https://www.youtube.com/shorts/gjpRjkI8pf4)

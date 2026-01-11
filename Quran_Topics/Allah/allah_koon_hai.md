@@ -1,5 +1,5 @@
 #### [Does God Exist? | Pir Syed Naseer-ud-Deen Naseer Shah](https://www.youtube.com/shorts/NdJNcQOQUfo)
-* __Surah Al-Anam 6/103__: [لَّا تُدْرِكُهُ ٱلْأَبْصَـٰرُ وَهُوَ يُدْرِكُ ٱلْأَبْصَـٰرَ ۖ وَهُوَ ٱللَّطِيفُ ٱلْخَبِيرُ](https://quran.com/6/103)
+* __Surah Al-Anam 6/103__: [لَّا تُدْرِكُهُ ٱلْأَبْصَـٰرُ ...وَهُوَ يُدْرِكُ ٱلْأَبْصَـٰرَ ۖ... وَهُوَ ٱللَّطِيفُ ٱلْخَبِيرُ](https://quran.com/6/103)
 
 ***
 

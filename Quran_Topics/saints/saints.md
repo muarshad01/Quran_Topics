@@ -355,3 +355,4 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 
 ***
 
+* Nizamuddin Auliya (1238-1325) was a revered Indian Sunni Muslim Sufi saint of the Chishti Order, known for his teachings of love, tolerance, and service to humanity, with his shrine (Nizamuddin Dargah) in Delhi becoming a major spiritual center. He was called Mahbub-e-Ilahi (Beloved of God) and was a disciple of Fariduddin Ganjshakar, influencing many, including poet Amir Khusrau, and embodying the anti-establishment yet influential spirit of Sufism in Northern India. 

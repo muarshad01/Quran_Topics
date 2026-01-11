@@ -1,5 +1,12 @@
+
 ## Istigfar
 * Istighfar, in Islam, is the act of seeking forgiveness from Allah (God). It's a common practice among Muslims, typically involving the recitation of `Astaghfirullah" (أَسْتَغْفِرُ ٱللَّٰهَ)`, which means __"I seek forgiveness from Allah".__ It's a way to acknowledge-one's-sins and seek-divine-pardon.
+
+***
+
+#### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)
+
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/syed-ul-istifigar.png" width="400" height="400" />
 
 ***
 
@@ -50,12 +57,6 @@
 * __Surah Nuh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quranwbw.com/71#10-12)
     * Five Things: Gunah, Hunger Poverty (Wealth), Children, Garden,  Rivers
 * __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quranwbw.com/8#33)
-
-***
-
-#### [Syed Istigfar | Dua](https://www.youtube.com/shorts/WaEOEiUQHL4)
-
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/syed-ul-istifigar.png" width="400" height="400" />
 
 ***
 

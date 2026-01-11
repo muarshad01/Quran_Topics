@@ -45,6 +45,7 @@
 | 2. | [Tasbeeh (Glorifying and Praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 10/01/2026 | 
 | 3. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/thank_in_quran.md) | 12/06/2025 |
 | 4. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Istighfar.md) | 12/06/2025 |
+| 5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/rizq.md)  | 12/06/2025 |
 
 ***
 
@@ -60,7 +61,6 @@
 | 6. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Trouble.md) | 12/06/2025 |
 | 7. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/muqadma.md)| 12/06/2025|
 | 8. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/success.md)  | 12/06/2025 |
-| 9. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/rizq.md)  | 12/06/2025 |
 
 ***
 

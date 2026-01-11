@@ -1,3 +1,8 @@
+#### [Does God Exist? | Pir Syed Naseer-ud-Deen Naseer Shah](https://www.youtube.com/shorts/NdJNcQOQUfo)
+* __Surah Al-Anam 6/103__: [لَّا تُدْرِكُهُ ٱلْأَبْصَـٰرُ وَهُوَ يُدْرِكُ ٱلْأَبْصَـٰرَ ۖ وَهُوَ ٱللَّطِيفُ ٱلْخَبِيرُ](https://quran.com/6/103)
+
+***
+
 #### [Existence of God | Allama Talib Johri](https://www.youtube.com/watch?v=67f_ntEQsps)
 * __Surah Ale-Imran 3/18__: [شَهِدَ ٱللَّهُ أَنَّهُۥ... لَآ إِلَـٰهَ إِلَّا هُوَ... وَٱلْمَلَـٰٓئِكَةُ وَأُو۟لُوا۟ ٱلْعِلْمِ قَآئِمًۢا بِٱلْقِسْطِ ۚ... لَآ إِلَـٰهَ إِلَّا هُوَ... ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/3/18)
 * __Twice Repeated__: "La ilaha illa huwa" (لَا إِلَٰهَ إِلَّا هُوَ)

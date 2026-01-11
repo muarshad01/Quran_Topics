@@ -206,10 +206,14 @@ Silsila & Khilafat
 *** 
 
 #### [Hazrat Nizamuddin auliya - Mahbub-e-Ilahi](https://www.youtube.com/shorts/_b6TTruskHo)
-1. Moin-ud-din Chishti
-2. Qutb-ud-din Bakhtiar Kaki [1173 – 1235](SSA Shah 1985 Peshawar incident)
-3. Farid-ud-din Ganjshakar
-3. Nizam-ud-din Auliya
+* ## Haqq, Haqq, Haqq - Naaraa
+1. Moin-ud-din Chishti       [1143 - 1236 = 93 years]
+2. Qutb-ud-din Bakhtiar Kaki [1173 - 1235 = 62 years](SSA Shah 1985 Peshawar incident)
+3. Farid-ud-din Ganjshakar   [1173 – 1266 = 93 years]
+4. Nizam-ud-din Auliya
+
+* Ala-ud-din Ali Ahmed Sabir (Sabir Kaliyari) [1196 – 1291 = 95 years]
+   * Nephew and successor to Baba Fareed.
 
 *** 
 

@@ -146,3 +146,23 @@
 7. Wa atubu ilaih"(وَأَتُوبُ إِلَيْهِ)
 
 ***
+
+#### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
+* That muslim is not WISE, who doesn't remind Allah SWT His promise.
+* The muslim it not WISE, who can't dodge Satan.
+* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+#### Hadith
+* Afzal Zikr - "La ilaha illallah" (لَا إِلَٰهَ إِلَّا ٱللَّٰهُ)
+* Afzal duaa -  Alhamdulillah (ٱلْحَمْدُ لِلَّٰهِ)
+* ✦ Jabir bin Abdullah Radi Allahu Anhu said, I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) 
+#### Darood Sharif: 
+* 1/3, 1/2, Only Darood..with do kafait!!!
+#### Anxiety & Depression:
+* Ya-Salaamu & Ya-Momin
+* Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu
+#### Allah SWT Qurab
+* Surah Al-Hashar Last 3-Ayats for Allah SWT Qurub
+* Sheikh-Abdul-Qadir Jilani
+* __Surah 59/22-24__: [](https://quran.com/59/22-24)
+
+***

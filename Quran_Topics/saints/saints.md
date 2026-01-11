@@ -11,7 +11,7 @@
 
 #### [Walayat (19 Levels) - Faqeer Rung: Session 15 - Manzilain Ilm Baatini Ki | SSA Shah](https://www.youtube.com/watch?v=Y0OyNP3Z9XY)
 1. - Don't know themselves - 40,000
-   * Ahl-e-Allah, Ahl-e-Irshad, Rijaal Allah
+* Ahl-e-Allah, Ahl-e-Irshad, Rijaal Allah
 2. - Ahl-e-Haqq or Ahl-e-Imraan - 272
    * Halat-e-Sukkar or Halat-e-Soyoh 
 * 03: `Autaar` - 333

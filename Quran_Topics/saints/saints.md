@@ -84,16 +84,17 @@
 ***
 
 #### [Khwaja Muin al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
-* __Khwaja Usman Harooni__ was the spiritual mentor of Khwaja Moinuddin Chishti, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
-1. Tark-e-Dunya
-2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but ONLY Allah SWT!!__
-3. Takk-e-manam (Neend)
-4. Tark-e-hawai-e-Nafas
+* __Khwaja Usman Harooni__ was the spiritual mentor of __Khwaja Moinuddin Chishti__, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
+1. - Tark-e-Dunya
+2. - Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but ONLY Allah SWT!!__
+3. - Takk-e-manam (Neend)
+4. - Tark-e-hawai-e-Nafas
+   * 1. - Takr-e-Manam (kaam soona)
+   * 2. - Tark-e-Taum (kaam khana)
+   * 3. - Tark-e-Kalam (kaam bolna)
+   * 4. - ...
 
-1. Takr-e-Manam (kaam soona)
-2. Tark-e-Taum (kaam khana)
-3. Tark-e-Kalam (kaam bolna)
-4. ...
+***
 
 #### Ishab-e-Suffa
 * __Surah Al-Baqarah 2/271__: [إِن تُبْدُوا۟ ٱلصَّدَقَـٰتِ فَنِعِمَّا هِىَ ۖ... وَإِن تُخْفُوهَا وَتُؤْتُوهَا ٱلْفُقَرَآءَ فَهُوَ خَيْرٌۭ لَّكُمْ ۚ... وَيُكَفِّرُ عَنكُم مِّن سَيِّـَٔاتِكُمْ ۗ ....وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/2/271)

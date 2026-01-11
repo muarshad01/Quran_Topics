@@ -18,6 +18,10 @@
 
 ***
 
+#### [Chashat ki Namaz - Hadith](https://sunnah.com/bukhari:1178)
+
+***
+
 #### [ Namaz Mein Haath Uthana | SSA Shah](https://www.youtube.com/shorts/UCKWkERKgCg)
 
 ***

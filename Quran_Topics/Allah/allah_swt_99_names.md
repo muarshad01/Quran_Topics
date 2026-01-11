@@ -1,3 +1,7 @@
+#### [Quran Mein Asma-e-Husna Kiun Istemal Huay? | Allama Talib Jauhari](https://www.youtube.com/watch?v=prKgcUS8wcs)
+
+***
+
 #### [I was a hidden treasure Khazana - Allah SWT](https://www.youtube.com/watch?v=HNbF6SFLnt8)
 
 ***

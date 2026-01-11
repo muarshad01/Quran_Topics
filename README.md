@@ -41,17 +41,26 @@
 
 | No.  | Special Topics | Last Updated|
 |---|---|---|
-|1. (M-A-)| [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | 12/06/2025 |
-|2. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/sabr_patience.md)| 12/06/2025 |
-|3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/namaaz_in_quran.md); [Sajdah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/sajdah.md); [Azan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/azan.md)| 12/06/2025|
-|4. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/thank_in_quran.md) | 12/06/2025 |
-|5. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Istighfar.md) | 12/06/2025 |
-|6. | [Tawbah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawah.md)|12/06/2025|
-|7. | [Tawaqqal (Trust on Allah SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawaqqal.md) | 12/06/2025 |
-|8. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Trouble.md) | 12/06/2025 |
-|9. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/muqadma.md)| 12/06/2025|
-|10.| [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/success.md)  | 12/06/2025 |
-|10.| [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/rizq.md)  | 12/06/2025 |
+| 1. (M-A-)| [How to make Dua (Supplication)](https://github.com/muarshad01/YouTube_Videos/blob/main/FaqeerRung/FaqeerRungSession09.md) | 12/06/2025 |
+| 2. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/sabr_patience.md)| 12/06/2025 |
+| 3. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/namaaz_in_quran.md); [Sajdah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/sajdah.md); [Azan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/azan.md)| 12/06/2025|
+| 4. | [Tawbah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawah.md)|12/06/2025|
+| 5. | [Tawaqqal (Trust on Allah SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawaqqal.md) | 12/06/2025 |
+| 6. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Trouble.md) | 12/06/2025 |
+| 7. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/muqadma.md)| 12/06/2025|
+| 8. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/success.md)  | 12/06/2025 |
+| 9. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/rizq.md)  | 12/06/2025 |
+
+***
+
+#### Zikr and Tasbeen
+
+| No.  | Zikr and Tasbeen | Last Updated |
+|---|---|---|
+| 1. | [Zikr (Rememberance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/zikr_benefits.md) | 10/01/2026 | 
+| 2. | [Tasbeeh (Glorifying and Praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 10/01/2026 | 
+| 3. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/thank_in_quran.md) | 12/06/2025 |
+| 4. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Istighfar.md) | 12/06/2025 |
 
 ***
 
@@ -68,15 +77,6 @@
 |7. | [Allah SWT - Blessing](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_blessings.md) | 12/6/2025 |
 |8. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 05/01/2026 |
 |9. | [Fazl (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_fazl.md)| 12/6/2025 |
-
-***
-
-#### Zikr and Tasbeen
-
-| No.  | Zikr and Tasbeen | Last Updated |
-|---|---|---|
-| 1. | [Zikr (Rememberance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/zikr_benefits.md) | 10/01/2026 | 
-| 2. | [Tasbeeh (Glorifying and Praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 10/01/2026 | 
 
 ***
 

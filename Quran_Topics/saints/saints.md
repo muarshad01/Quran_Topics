@@ -105,11 +105,11 @@
    * Khwaja Moin-ud-din Chishti disciple of Khwaja Usman Harooni
    * __One Letter__ to recite
 2. - Silsila Junadia Awasia (2nd Khilafat)
-   *  `One Word` to recite
+   *  __One Word__ to recite
    * Hazrat Data Ganj Bakhsh (Ali al-Hujwiri) was discple of Hazrat Abu Fazl bin Hasan Khattali (or Khatli)
    * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
 4. - Silsila Qadria (3rd Khilafat)
-   - `One Letter` to recite
+   * __One Letter__ to recite
    * Abdul Qadir Gilani
 
 ***

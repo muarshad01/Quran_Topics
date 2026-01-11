@@ -102,13 +102,13 @@
 
 ## Syed Sarfaraz Ahmed ShahSilsila & Khilafat 
 1. - Silsila Chishtia (First Khilafat)
-   - Khwaja Moin-ud-din Chishti disciple of __Khwaja Usman Harooni__
-   - `One Letter` to recite
+   * Khwaja Moin-ud-din Chishti disciple of Khwaja Usman Harooni
+   * __One Letter__ to recite
 2. - Silsila Junadia Awasia (2nd Khilafat)
-   - `One Word` to recite
+   *  `One Word` to recite
+   * Hazrat Data Ganj Bakhsh (Ali al-Hujwiri) was discple of Hazrat Abu Fazl bin Hasan Khattali (or Khatli)
    * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
-   * Hazrat Data Ganj Bakhsh 
-3. - Silsila Qadria (3rd Khilafat)
+4. - Silsila Qadria (3rd Khilafat)
    - `One Letter` to recite
    * Abdul Qadir Gilani
 

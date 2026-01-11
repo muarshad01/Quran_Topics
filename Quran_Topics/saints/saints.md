@@ -11,79 +11,80 @@
 
 #### [Walayat (19 Levels) - Faqeer Rung: Session 15 - Manzilain Ilm Baatini Ki | SSA Shah](https://www.youtube.com/watch?v=Y0OyNP3Z9XY)
 1. - Don't know themselves - 40,000
-* Ahl-e-Allah, Ahl-e-Irshad, Rijaal Allah
-2. - Ahl-e-Haqq or Ahl-e-Imraan - 272
+   * Ahl-e-Allah, Ahl-e-Irshad, Rijaal Allah
+2. - __Ahl-e-Haqq__ or __Ahl-e-Imraan__: 272
    * Halat-e-Sukkar or Halat-e-Soyoh 
-* 03: `Autaar` - 333
-   * On duty around the 4 Buurajs around the Earth 
-* 04: Khaleseen - 676
+3. - __Autaar__: 333
+   * On duty around the 4 Buraajs around the Earth 
+4. - __Khaleseen__: 676
    * Halat-e-Sukar or Halat-e-Soyoh 
-* 05: `Autud` - 233
-   * From La-hoot to ta-hoot
+5. - __Autud__: 233
+   * From La-hoot to Ta-hoot
    * `Faqar` starts from there
-* 06: `Akhyaar` - 313
+6. - __Akhyaar__: 313
    * Halat-e-Sukkar or Halat-e-Soyoh
-   * [akhyaar](https://quran.com/38/48)
-* 07: `ABDAAL` - 72
+   * __Surah Saad 38/48 (وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ)__: [وَٱذْكُرْ إِسْمَـٰعِيلَ وَٱلْيَسَعَ وَذَا ٱلْكِفْلِ ۖ... وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ](https://quran.com/38/48)
+7. - __ABDAAL__: 72
    * Some walk with `Hazrat Khizir AS`
    * They fly around the Earh
    * They are in groups of 7
    * Hazrat Ali RA Roza-e-Mubarak, 11 Abdaals are on duty there according to a rawaih 
-* 08: `Muqarab-ul-Haqq` - 40 (Allah Husamad; Baba Irfan-ul-Haq??)
+8. - __Muqarab-ul-Haqq__: 40 (Allah Husamad; Baba Irfan-ul-Haq??)
    * Dars-o-tadress in people, spread Ilm
-   * One level ahead of Abdaal 
-* 09: `Abrar` - 227
-   * 224 on duty; 3 on hazori
-* 10: `GHAUS` - 3
+   * One-level ahead of Abdaal 
+9. - __Abrar__: 227
+   * 224 on duty
+   * 3 on hazori
+   * __Surah Al-Insan 76/5 (إِنَّ ٱلْأَبْرَارَ)__: [إِنَّ ٱلْأَبْرَارَ... يَشْرَبُونَ مِن كَأْسٍۢ كَانَ مِزَاجُهَا كَافُورًا](https://quran.com/76/5)
+   * __Surah Al-Mutaffifin 83/22-28__: [إِنَّ ٱلْأَبْرَارَ... لَفِى نَعِيمٍ](https://quran.com/83/22-28)
+10 - __GHAUS__: 3
    * Only one on duty
-   * [Hazrat Baha-ud-din (Baha-ul-Haq) Zakariya Multani - Ghaus of his time | SSA Shah](Hazat Bahao Din Zikriya - by Syed Sarfraz Shah
-)
+   * [Hazrat Baha-ud-din (Baha-ul-Haq) Zakariya Multani - Ghaus of his time | SSA Shah](...)
    * The other two don't show-up
-* 11: `Naqeeb-e-Ala`: 2
-   * Remain in Halat-e-Soyoh
-* 12: `Raqeeb al Al'Haqq`: Don't reveal themselves
-   * Mansur Al-Hallaj
-   * Bayazid Bastami (Jo aik bhi sunnat tarak karta hai, woh rohaniyat ki khosboo bhi nahi paa sakta!)
-* 13: `QUTUB`: Only 3 (`Syed Mohammad Baba Taj-ud-din`)
-   * Compass: Qutub Numa, they protect the 4 corners (East, West, North, South) of Earth
-   * Performs his duty on `1/3-rd` of world
-   * Is ruler over a `Continent`
+11. - __Naqeeb-e-Alaa__: 2
+    * Remain in Halat-e-Soyoh
+12. - __Raqeeb al-Haqq__: Don't reveal themselves
+    * Mansur Al-Hallaj
+    * Bayazid Bastami (Jo aik-bhi-sunnat tarak-karta-hai, woh rohaniyat-ki-khosboo bhi nahi-paa-sakta!)
+13. - __QUTUB__: Only 3 (`Syed Mohammad Baba Taj-ud-din`)
+    * Compass: Qutub Numa, they protect the 4 corners (East, West, North, South) of Earth
+    * Performs his duty on `1/3-rd` of world
+    * Is ruler over a `Continent`
 
 ***
 
-* 14: `Qutb-al-Aqtab` or Ghaus:
-   * Qutub-ud-din Bakhtiar Kaki [1173 – 1235] student of `Hazrat Moin al-Din Chishti`
-      * Peshawar incident 1985
-      * `Syed Sarfarz A. Shah`
-   * `Ruler over all Qura-e-Ardh`   
-   * `Ruler over all Qutubs`
+14. - __GHAUS__ or `Qutb-al-Aqtab`
+    *  Qutub-ud-din Bakhtiar Kaki [1173 – 1235] student of `Hazrat Moin al-Din Chishti`
+    * Peshawar incident 1985
+    * `Syed Sarfarz A. Shah`
+    * `Ruler over all Qura-e-Ardh`   
+    * `Ruler over all Qutubs`
    * Ghaus-e-Zaman / Qutub-ul-Aqtab - Sheikh Abdul Qadir Julani
 
 ***
 
-* 15: `Nigran-e-Alaa`: Only one
-* 16: `Imam`: Only 4 (Tareeqat kay silsilon kay wali aur nigrann)
-* 17: `12 Imans`: Hazrat Hassan RA and Hazrat Hussain RA (Ahle-e-Bait 12 Aima Ikram); Qoom kay sardar hain
+15. - __Nigran-e-Alaa__: Only one
+16. - __Imam__: Only 4 (Tareeqat kay silsilon kay wali aur nigrann)
+17. - __12 Imans__: Hazrat Hassan RA and Hazrat Hussain RA (Ahle-e-Bait 12 Aima Ikram);
+    * Qoom kay sardar hain
+18. - Hazrat Ali RA
+    * `Bab al-Ilm` or `Abu Turab` are titles
+19. - Prophet Muhammad PBUH: Chair
 
-* [❤️ 12 imams Names Beautifully inscribed in Masjid Nabi ﷺ | Mufti Fazal Hamdard](https://www.youtube.com/watch?v=lKAIw_es4nE)
-```
-01. Ali ibn Abi Talib
-02. Hasan ibn Ali
-03. Husayn ibn Ali
-04. [Ali ibn Husayn (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
+#### [❤️ 12 imams Names Beautifully inscribed in Masjid Nabi ﷺ | Mufti Fazal Hamdard](https://www.youtube.com/watch?v=lKAIw_es4nE)
+ 1. - Ali ibn Abi Talib
+ 2. - Hasan ibn Ali
+ 3. - Husayn ibn Ali
+ 4. - [Ali ibn Husayn (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
 ---
-05. Muhammad al-Baqir (https://www.youtube.com/shorts/Q0CGKBWWXHI)
-06. Jafar al-Sadiq (https://www.youtube.com/shorts/zYJCFrAXpYY)
-07. Musa al-Kadhim (https://www.youtube.com/shorts/gjpRjkI8pf4) - 7th
-08. Ali al-Rida
-09. Muhammad al-Taqi (also known as al-Jawad) - 9th
-10. Ali al-Hadi (also known as al-Naqi)
-11. Hasan al-Askari
-12. Muhammad al-Mahdi (also known as al-Qaim) 
-```
-* 18 Hazrat Ali RA
-   * `Bab al-Ilm` or `Abu Turab` are titles
-* 19 `Prophet Muhammad PBUH`: Chair
+ 5. - [Muhammad al-Baqir](https://www.youtube.com/shorts/Q0CGKBWWXHI)
+ 6. - [Jafar al-Sadiq](https://www.youtube.com/shorts/zYJCFrAXpYY)
+ 7. - [Musa al-Kadhim - 7th](https://www.youtube.com/shorts/gjpRjkI8pf4)
+ 8. - Ali al-Rida
+ 9. - [Muhammad al-Taqi (also known as al-Jawad) - 9th]
+10. - [Ali al-Hadi (also known as al-Naqi)]
+11. - Hasan al-Askari
+12. - Muhammad al-Mahdi (also known as al-Qaim)
 
 ***
 
@@ -360,3 +361,8 @@ https://en.wikipedia.org/wiki/Ibn_Arabi
 ***
 
 * Nizamuddin Auliya (1238-1325) was a revered Indian Sunni Muslim Sufi saint of the Chishti Order, known for his teachings of love, tolerance, and service to humanity, with his shrine (Nizamuddin Dargah) in Delhi becoming a major spiritual center. He was called Mahbub-e-Ilahi (Beloved of God) and was a disciple of Fariduddin Ganjshakar, influencing many, including poet Amir Khusrau, and embodying the anti-establishment yet influential spirit of Sufism in Northern India. 
+
+*  Qutub-ud-din Bakhtiar Kaki [1173 – 1235] student of `Hazrat Moin al-Din Chishti`
+    * Peshawar incident 1985
+
+ * Bayazid Bastami (Jo aik-bhi-sunnat tarak-karta-hai, woh rohaniyat-ki-khosboo bhi nahi-paa-sakta!)

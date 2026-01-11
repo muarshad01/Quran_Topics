@@ -90,3 +90,5 @@ https://quranwbw.com/18/65
 > * ashhadu anna Muhammadan abduhu wa rasula
 
 ***
+
+   * __Surah Saad 38/48__: [وَٱذْكُرْ إِسْمَـٰعِيلَ وَٱلْيَسَعَ وَذَا ٱلْكِفْلِ ۖ وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ](https://quran.com/38/48)

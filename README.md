@@ -294,7 +294,7 @@
 |30. | [Eid-ul-Adha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/eid-ul-adha.md) |12/27/2025|
 |31. | [Nazr-e-Baad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/nazr-e-baad.md) |12/27/2025|
 |32. | [Qiyamah (Judgement Day)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/qiyamah.md) | 06/01/2026|
-|33. | [Abad, Ibadah, Bashar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/abad_ibadat_bashar.md) |12/27/2025|
+|33. | [Abad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/abad_ibadat_bashar.md), [Ibadah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/Ibadat.md) |12/27/2025|
 |34. | [Miraj](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/miraj.md) | 05/01/2026 |
 |35. | [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran_and_mathematics.md) | 05/01/2026 |
 |36. | [Recording Chip](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/recording-chip.md) | 06/01/2026 |

@@ -100,20 +100,23 @@
 
 ***
 
-## Silsila & Khilafat
-* Silsila Chishtia (First Khilafat) - `One Letter` to recite
-    * Khwaja Moin-ud-din Chishti disciple of __Khwaja Usman Harooni__ 
-* Silsila Junadia Awasia (2nd Khilafat) - `One Word` to recite
-    * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
-       * Hazrat Data Ganj Bakhsh 
-* Silsila Qadria (3rd Khilafat) - `One Letter` to recite
+## Syed Sarfaraz Ahmed ShahSilsila & Khilafat 
+1. - Silsila Chishtia (First Khilafat)
+   - Khwaja Moin-ud-din Chishti disciple of __Khwaja Usman Harooni__
+   - `One Letter` to recite
+2. - Silsila Junadia Awasia (2nd Khilafat)
+   - `One Word` to recite
+   * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
+   * Hazrat Data Ganj Bakhsh 
+3. - Silsila Qadria (3rd Khilafat)
+   - `One Letter` to recite
    * Abdul Qadir Gilani
 
 ***
 
 #### Wali Allah Types
-* Salik (Has good hoosh-p-hawash)
-* Majzoob (Has lost hoost-o-hawash; Dooi kay muqaam say Yakgai ka muqaam)
+* Salik (Has good hoosh-o-hawash)
+* Majzoob (Has lost hoosh-o-hawash; Dooi kay-muqaam say Yakgai ka-muqaam)
 
 ***
 

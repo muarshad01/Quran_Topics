@@ -3,16 +3,16 @@
 ***
 
 #### [The Secret Work of Auliya Allah | SSA Shah](https://www.youtube.com/watch?v=q4mFuGygFps)
-* Auliaa akram are sahib-e-ilm.
-* Ilm-kay-natijay-me unhayn aqal-o-farast ataa ki-jaati-hai.
-* Woh apni aqal-o-farast say kam-laitay-hayn.
+* Auliaa akram are Sahib-e-Ilm.
+* Ilm-kay-natijay-me unhayn Aqal-o-Farast ataa ki-jaati-hai.
+* Woh apni Aqal-o-Farast say kam-laitay-hayn.
 
 ***
 
-#### [Khwaja Mu'in al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
+#### [Khwaja Muin al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)
 * __Khwaja Usman Harooni__ was the spiritual mentor of Khwaja Moinuddin Chishti, who introduced the Chishti Sufi order to South Asia and is buried in Ajmer.
 1. Tark-e-Dunya
-2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but only Allah SWT!!__
+2. Tark-e-Akhirat bajuz Zaat-e-Haqq (Allah SWT). __Not even Jannat is the desire but ONLY Allah SWT!!__
 3. Takk-e-manam (Neend)
 4. Tark-e-hawai-e-Nafas
 
@@ -21,7 +21,12 @@
 3. Tark-e-Kalam (kaam bolna)
 4. ...
 
-* __Ishab-e-Suffa__ in Quran: THey only desire, Allah SWT face
+#### Ishab-e-Suffa
+* They only desire, Allah SWT face:
+* __Surah Al-Baqarah 2/271__: [إِن تُبْدُوا۟ ٱلصَّدَقَـٰتِ فَنِعِمَّا هِىَ ۖ... وَإِن تُخْفُوهَا وَتُؤْتُوهَا ٱلْفُقَرَآءَ فَهُوَ خَيْرٌۭ لَّكُمْ ۚ... وَيُكَفِّرُ عَنكُم مِّن سَيِّـَٔاتِكُمْ ۗ ....وَٱللَّهُ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/2/271)
+* __Surah Al-Baqarah 2/272__: [۞ لَّيْسَ عَلَيْكَ هُدَىٰهُمْ ...وَلَـٰكِنَّ ٱللَّهَ يَهْدِى مَن يَشَآءُ ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ فَلِأَنفُسِكُمْ ۚ ...وَمَا تُنفِقُونَ إِلَّا ٱبْتِغَآءَ وَجْهِ ٱللَّهِ ۚ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ يُوَفَّ إِلَيْكُمْ ...وَأَنتُمْ لَا تُظْلَمُونَ](https://quran.com/2/272)
+* __Surah Al-Baqarah 2/273__: [لِلْفُقَرَآءِ... ٱلَّذِينَ أُحْصِرُوا۟ فِى سَبِيلِ ٱللَّهِ ...لَا يَسْتَطِيعُونَ ضَرْبًۭا فِى ٱلْأَرْضِ... يَحْسَبُهُمُ ٱلْجَاهِلُ أَغْنِيَآءَ مِنَ ٱلتَّعَفُّفِ... تَعْرِفُهُم بِسِيمَـٰهُمْ... لَا يَسْـَٔلُونَ ٱلنَّاسَ إِلْحَافًۭا ۗ... وَمَا تُنفِقُوا۟ مِنْ خَيْرٍۢ ...فَإِنَّ ٱللَّهَ بِهِۦ عَلِيمٌ](https://quran.com/2/273)
+* __Surah Al-Baqarah 2/274__: [ٱلَّذِينَ يُنفِقُونَ أَمْوَٰلَهُم بِٱلَّيْلِ وَٱلنَّهَارِ... سِرًّۭا وَعَلَانِيَةًۭ... فَلَهُمْ أَجْرُهُمْ عِندَ رَبِّهِمْ ...وَلَا خَوْفٌ عَلَيْهِمْ وَلَا هُمْ يَحْزَنُونَ](https://quran.com/2/274)
 
 ***
 

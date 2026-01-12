@@ -1,3 +1,7 @@
+* https://brilliant.org/
+
+***
+
 #### [Motivation For Muslims (English)](https://www.youtube.com/@MotivationForMuslims-iv9pg)
 
 ***

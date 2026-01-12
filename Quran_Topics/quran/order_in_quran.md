@@ -86,4 +86,9 @@
 
 *** 
 
-
+* __Surah Ale-i-Imran 3/17 (${\color{red}Forgiveness ~before ~Dawn}$)__: [ٱلصَّـٰبِرِينَ... وَٱلصَّـٰدِقِينَ ...وَٱلْقَـٰنِتِينَ... وَٱلْمُنفِقِينَ... وَٱلْمُسْتَغْفِرِينَ بِٱلْأَسْحَارِ](https://quran.com/3/17)
+1. Patient,
+2. sincere,
+3. obedient,
+4. and charitable,
+5. and who pray for forgiveness before dawn.

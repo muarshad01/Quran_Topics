@@ -563,3 +563,5 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 * The distinction between the two (poor, needy) lies in the fact that the `poor-have-NOTHING` at all, while the `needy-have-VERY-LITTLE` to sustain themselves.
 
 ***
+
+* __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ... وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quran.com/8/33)

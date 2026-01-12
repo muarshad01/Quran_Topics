@@ -9,10 +9,17 @@ Mataa-e-Bebaha Hai Dard-o-Souz-e-Arzoo-Mandi
 Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 ```
 
+#### [Imam Ali’s (R.A) Dua | Brings Peace in Times of Loss | غم میں صبر—حضرت علیؓ کی دعا | SSA Shah](https://www.youtube.com/watch?v=gHBm1jdt1mw)
 ```
 Arabic: اَللَّهُمَّ كَفَانِي عِزّاً أَنْ تَكُونَ لِي رَبّاً وَكَفَانِي فَخْراً أَنْ أَكُونَ لَكَ عَبْداً
 Translation: "O Allah, it is sufficient for me as an honor that You are my Lord, and it is sufficient for me as a glory that I am Your servant (slave)." 
 ```
+
+```
+Ya Allah! Bayshak, Tuh wesa-hi-hai jaisa-mayn-nay-Tujhay Chahaa
+Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
+```
+
 ***
 
 * __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)

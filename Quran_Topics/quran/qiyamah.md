@@ -26,3 +26,7 @@
 * __Surah Al-Inshiqaaq (The Splitting Open) 84__: [إِذَا ٱلسَّمَآءُ ٱنشَقَّتْ](https://quran.com/84)
 
 *** 
+
+#### [Qayamat ki Nishani | Molana Tariq Jameel](https://www.youtube.com/watch?v=fZwPK4XKmME)
+
+***

@@ -339,3 +339,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Jadu Or Jadu Karne Waly Se Hamesha Ke Liye Azadi Ka Wazifa Mil Gaya | Abdullah Bhatti |Faqeer Di Dua](https://www.youtube.com/watch?v=JOiGIOVyd9M)
+
+#### [Ya Khabeeru | 812 time after Isha | 7 days](https://www.youtube.com/shorts/VqdcvVmNkKo)
+
+***

@@ -142,3 +142,8 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 * First condition is "keep-the-Secret", if you help others.
 
 ***
+
+* __Ibadat__: Allah SWT say baat-karna
+* Apni-ZINDAGI-ko uss-Allah-kay hawalay-kar-do jo NAIMATOON-ka KHALIQ-hai
+
+***

@@ -10,6 +10,9 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 ```
 
 #### [Imam Ali’s (R.A) Dua | Brings Peace in Times of Loss | غم میں صبر—حضرت علیؓ کی دعا | SSA Shah](https://www.youtube.com/watch?v=gHBm1jdt1mw)
+* This Duaa has two parts:
+1. Thankfulness
+2. Bandagi
 ```
 Arabic: اَللَّهُمَّ كَفَانِي عِزّاً أَنْ تَكُونَ لِي رَبّاً وَكَفَانِي فَخْراً أَنْ أَكُونَ لَكَ عَبْداً
 Translation: "O Allah, it is sufficient for me as an honor that You are my Lord, and it is sufficient for me as a glory that I am Your servant (slave)." 

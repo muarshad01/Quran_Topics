@@ -8,6 +8,10 @@
 
 ***
 
+#### [How Honor is Granted? | مقام و مرتبہ کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=lmyrvI_H6Ss)
+
+***
+
 #### [Ya Rahman](https://www.youtube.com/shorts/ZTfDA1FwwMI)
 
 ***

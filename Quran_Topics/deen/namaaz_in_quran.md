@@ -6,6 +6,13 @@
 
 ***
 
+#### [Wazu Main Her Kaam Teen Baar Kyun Kerty Hain | SSA Shah](https://www.youtube.com/watch?v=BukxMVHrPqU)
+1. Safai
+2. Pakazgi
+3. Tatheer
+
+***
+
 #### [Kya Driving ke Dauran Namaz Ho Sakti Hai? | Javed Ahmed Ghamidi](https://www.youtube.com/shorts/fqzCezlXyNc)
 * __Surah Al-Baqarah 2/239 (فَإِنْ خِفْتُمْ فَرِجَالًا أَوْ رُكْبَانًۭا ۖ)__: [فَإِنْ خِفْتُمْ فَرِجَالًا أَوْ رُكْبَانًۭا ۖ فَإِذَآ أَمِنتُمْ فَٱذْكُرُوا۟ ٱللَّهَ كَمَا عَلَّمَكُم مَّا لَمْ تَكُونُوا۟ تَعْلَمُونَ](https://quran.com/2/239)
 ***

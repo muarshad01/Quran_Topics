@@ -6,6 +6,14 @@
 
 ***
 
+#### [Danger Signs in Dreams | خواب میں خطرناک اشارے کس چیز کو ظاہرکرتے ہیں؟| SSA Shah](https://www.youtube.com/watch?v=sccghkdwmkM)
+* In west, Lift a table with your brain power.
+1. Unconcious mind
+2. Subconcious mind (Most active) - La-Shahoar
+3. Concisou mind
+
+***
+
 #### [Dream Signs You Must Know | SSA Shah](https://www.youtube.com/watch?v=dZjCe02IDFo)
 * Never tell-your-dream after __2:00 pm__ in the afternoon. Otherwise, it is wasted!!
 * There are three types of dreams:

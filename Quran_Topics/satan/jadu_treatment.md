@@ -343,3 +343,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Ya Khabeeru | 812 time after Isha | 7 days](https://www.youtube.com/shorts/VqdcvVmNkKo)
 
 ***
+
+#### [Jo Mariz Asatna Nahi Ja Sakte | Speical Dam Dua by Peer Azmat Nawaz Sarkar | Allah Pak Shafa De Ga](https://www.youtube.com/watch?v=fi0i8t1YiCA)
+
+***

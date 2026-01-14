@@ -52,3 +52,7 @@
 * __Surah An-Naml 27/59-66__: [](https://quran.com/27/59-66)
 
 *** 
+
+#### [Yearning for God | Prof ARA](https://www.youtube.com/shorts/VyaGXuP8azc)
+
+***

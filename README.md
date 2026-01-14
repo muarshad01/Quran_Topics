@@ -167,7 +167,7 @@
 | 10. | [Sidrat al-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
 | 11. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 05/01/2026 |
 | 12. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
-|13. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) ||
+|13. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) | 13/01/2026 |
 |14. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
 |15. | [Order in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/order_in_quran.md) | 02/02/2026 |
 |16. | [Signs in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/signs_in_quran.md) | 12/27/2025|

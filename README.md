@@ -240,7 +240,7 @@
 | No. | Miscalleneous | Last Updated |
 |---|---|---|
 |1. | [Food in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/food_in_quran.md)|12/06/2025|
-|2. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) |12/06/2025|
+|2. | [Fingerprint in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/fingerprint_in_quran.md) | 14/01/2026 |
 |3. | [Animals in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/animals_in_quran.md) |12/06/2025|
 |4. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
 |5. | [Wasila in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/wasila_in_quran.md) | 14/01/2026 |

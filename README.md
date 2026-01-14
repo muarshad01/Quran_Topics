@@ -248,7 +248,7 @@
 | 7. | [Colors in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/colors_in_quran.md) |12/06/2025|
 |---|---|---|
 |1. | [Sadaqah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/sadaqah_in_quran.md) |  12/06/2025|
-|3. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow_in_quran.md) | 12/06/2025|
+|3. | [Shadow](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/shadow_in_quran.md) | 14/01/2026 |
 |5. | [Happy Faces](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/happy_faces.md) | 14/01/2026 |
 |6. | [Majority and Minority](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/majority_vs_minority.md) |12/06/2025|
 |7. | [Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)| 06/01/2026 |

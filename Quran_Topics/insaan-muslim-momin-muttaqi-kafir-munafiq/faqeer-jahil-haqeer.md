@@ -1,31 +1,29 @@
-* Faqeer par lazim hai, woh `khalq-e-khuda` say door-rahey aur `kam-say-kam` loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
-* Jisay `Rabb-say-pyaar` hota hai, usay `tanhai-say-unas` ho jaata hai. -- Hazrat Usman Ghani
-* Think in solitude. FOCUS on `Ghor-o-Fikr`
-
-***
-
-#### [Positive Changes with Faqeer's Company | SSA Shah](https://www.youtube.com/watch?v=n3vSwR1tvk0)
+#### FAQEER
+* Faqeer par LAZIM hai, woh khalq-e-khuda say DOAR-rahey aur KAM-say-KAM loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
+* Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
+* __THINK__ in SOLITUDE.
+* __FOCUS__ on `Ghor-o-Fikr`
 
 ***
 
 #### [Rishtay Aur Sabr-o-Bardasht | SSA Shah](https://www.youtube.com/shorts/MDFbeKDnm9I)
-* FAQEER wo hai, jis-nay __DUNYA-ko-TUKHRAYA__
+* __FAQEER__ wo hai, jis-nay __DUNYA-ko-TUKHRAYA__
+
+***
+
+#### [ Simple way to heal a hurting heart | SSA Shah](https://www.youtube.com/shorts/sJI9qOYmvPc)
+* __FAQEER__ saari-umer __DOOSRON__-mayn __KHUSIYAN__-bantaa-hai
 
 ***
 
 #### [Why is Faqeer Peaceful | SSA Shah](https://www.youtube.com/shorts/oOXQY7IXo2M)
-* Kamyabi ki qeemat mehnat, dukh, aur takleef hai.
-* __FAQEER's objective__: Mujhay __Rabb-ka-QURAB__ hasil ho jai.
+* __FAQEER's objective__ is mujhay __Rabb-ka-QURAB__ hasil ho jai.
+* Kamyabi-ki-price Mehnat, Dukh-aur-Takleef hai.
   
 ***
 
-#### [ Simple way to heal a hurting heart | SSA Shah](https://www.youtube.com/shorts/sJI9qOYmvPc)
-* __Faqeer saari-umer doosron-mayn KHUSIYAN-bantaa-hai__
-
-***
-
 #### [Character That Makes a Leader | اچھے لیڈر کا کردار | SSA Shah](https://www.youtube.com/watch?v=3KqK83y0DRU)
-* __Faqeer umer-bhar apnay-NAQAIS doar-karnay-mayn laga-rehay-gaa__
+* __FAQEER__ umer-bhar apnay-__NAQAIS__ doar-karnay-mayn laga-rehay-gaa.
 
 ***
 
@@ -43,14 +41,18 @@
 ***
 
 #### Hazrat Daata Jang-Baksh
-* Faqeer par lazim-hai, kay-woh __doosron-ki-KHIDMAT__ iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, faqeer-par ihsaan kar-rahay-hayn.
+* __FAQEER__ par lazim-hai, kay-woh __DOOSRON-ki-KHIDMAT__ iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, __FAQEER-par-IHSAAN__ kar-rahay-hayn.
 
 ***
 
 #### [Apni-Zaat Ka Irfan | SSA Shah](https://www.youtube.com/shorts/lcy6z2eAF5c)
-* Shah Hussain said, "Mayn-nahi sabb-Tuhi".
+* Shah Hussain said, __"Mayn-nahi sabb-Tuhi".__
 * __Surah Faatir 35/10 (All Izzat)__: [فَلِلَّهِ ٱلْعِزَّةُ جَمِيعًا ۚ](https://quranwbw.com/35/10)
-* __Surah Yaseen 36/77 (Haqeer)__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
+* __Surah Yaseen 36/77 (Haqeer)__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ ...أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ... فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quranwbw.com/36/77)
+
+***
+
+#### [Positive Changes with Faqeer's Company | SSA Shah](https://www.youtube.com/watch?v=n3vSwR1tvk0)
 
 ***
 

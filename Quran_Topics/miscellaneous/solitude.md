@@ -1,3 +1,8 @@
+#### SOLITUDE
+* Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
+* __THINK__ in SOLITUDE.
+* __FOCUS__ on `Ghor-o-Fikr`
+
 #### [If a man has no friends...very secure man!](https://www.youtube.com/shorts/K5OVHIBMinM)
 
 ***

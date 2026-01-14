@@ -9,6 +9,6 @@
 ***
 
 #### [The Formula for Lasting Happiness | حقیقی خوشی کیسے حاصل ہوتی ہے؟ | SSA Shah](https://www.youtube.com/watch?v=ltbutngPzUs)
-* Loag __ROTHAY__-huay meray-pass aayan aur __HANSTAY__huway-jayn.
+* Loag __ROTHAY__-huay meray-pass aayan aur __HANSTAY__-huway-jayn.
 
 ***

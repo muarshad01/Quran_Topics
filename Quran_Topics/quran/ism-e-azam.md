@@ -4,6 +4,10 @@
 
 ***
 
+#### [REEL : Ism e Azam Ko Kaise Talash Karein? | SSA Shah](https://www.youtube.com/shorts/JPcSDFBU8eo)
+
+***
+
 #### [Aik Ba-Barkat Wazifa](https://www.youtube.com/shorts/3A6Linj145E)
 * "Wa Huwar Rahmanur Rahim" (وَهُوَ الرَّحْمَنُ الرَّحِيمُ) -- CREATION
 

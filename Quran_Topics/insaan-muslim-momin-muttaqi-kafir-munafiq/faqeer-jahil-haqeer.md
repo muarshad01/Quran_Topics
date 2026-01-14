@@ -1,5 +1,5 @@
 #### FAQEER
-* Faqeer par LAZIM hai, woh khalq-e-khuda say DOAR-rahey aur KAM-say-KAM loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
+* Faqeer par __LAZIM__ hai, woh khalq-e-khuda say __DOAR__-rahey aur __KAM-say-KAM__ loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * __THINK__ in SOLITUDE.
 * __FOCUS__ on `Ghor-o-Fikr`

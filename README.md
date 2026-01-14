@@ -176,11 +176,12 @@
 
 | No  | Stories | Last Updated |
 |---|---|---|
-|1.| [Harut and Marut (2/102)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 05/01/2026 |
-|2. | [Talut and Jaloot (2/47-52)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/talut_and_jalut.md) | 09/01/2026 |
-|3. | [Habeel and Kabeel (5/27-31)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/habeel_kabeel.md) | 09/01/2026 |
-|4. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) | 09/01/2026 |
-|5. | [Aad and Samud](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/aad_and_samud.md) | 09/01/2026 |
+| 1.| [Harut and Marut (2/102)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/harut_and_marut.md) | 05/01/2026 |
+| 2. | [Talut and Jaloot (2/47-52)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/talut_and_jalut.md) | 09/01/2026 |
+| 3. | [Habeel and Kabeel (5/27-31)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/habeel_kabeel.md) | 09/01/2026 |
+| 4. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) | 09/01/2026 |
+| 5. | [Aad and Samud](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/aad_and_samud.md) | 09/01/2026 |
+| 6.| [Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
 
 ***
 
@@ -254,8 +255,7 @@
 |7. | [Worldly Life](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/worldly_life.md)| 06/01/2026 |
 |8. | [Wealth & Children](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/wealth_and_children.md)| 06/01/2026 |
 |9. | [Marriage](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/marriage.md)|12/06/2025|
-|10.| [Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md)|12/06/2025|
-|11.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 09/01/2026 |
+| 10.| [Taboot-e-Sakina](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/taboot-e-sakina.md)| 09/01/2026 |
 
 ***
 

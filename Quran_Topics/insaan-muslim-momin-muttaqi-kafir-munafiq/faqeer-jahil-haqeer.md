@@ -5,6 +5,7 @@
 * __FAQEER's objective__ is mujhay __Rabb-ka-QURAB__ hasil ho jai.
 * __FAQEER__ umer-bhar apnay-__NAQAIS__ doar-karnay-mayn laga-rehay-gaa.
 * __FAQEER__ par lazim-hai, kay-woh __DOOSRON-ki-KHIDMAT__ iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, __FAQEER-par-IHSAAN__ kar-rahay-hayn. -- Hazrar Ali bin Usman al-Hajvari
+* __FAQEER__ par lazim hai, woh Rabb ki Zameen par chal kar, cheezon ka mushahida karay. --H. Bakhtiar Kaka
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * __THINK__ in SOLITUDE.
 * __FOCUS__ on `Ghor-o-Fikr`

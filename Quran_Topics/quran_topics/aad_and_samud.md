@@ -185,3 +185,5 @@
 #### [Samud | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=FVDVAGwa9Rc)
 
 ***
+
+* [Qaum-e-Aad Aur Allah Ka Azaab](https://www.youtube.com/shorts/FSzJCXMgLWA)

@@ -28,3 +28,8 @@
 #### [Surah Bani Israel Mein Waqya Miraj Ka Zikar ? | Suno Pakistan | EP 329](https://www.youtube.com/watch?v=2E7ssHmXSo4)
 
 ***
+
+
+#### [Shab-e-Miraj Par Nabi ﷺ Ka Safar | Saat Asmanon Ki Haqeeqat | Abdul Salam Arif](https://www.youtube.com/watch?v=q7rUfowsv0c)
+
+***

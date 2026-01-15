@@ -144,6 +144,6 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 ***
 
 * __Ibadat__: Allah SWT say baat-karna
-* Apni-ZINDAGI-ko uss-Allah-kay hawalay-kar-do jo NAIMATOON-ka KHALIQ-hai
+* Apni-__ZINDAGI__-ko uss-Allah-kay hawalay-kar-do jo __NAIMATOON__-ka __KHALIQ__-hai
 
 ***

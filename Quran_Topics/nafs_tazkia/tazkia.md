@@ -190,3 +190,7 @@
 #### [Tazkia Nafs Kaise Kiya Jaye? | SSA Shah](https://www.youtube.com/watch?v=KV22YWPRArY)
 
 ***
+
+#### [Jihad Bil Nafs ka Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=27aXvdwrCVA)
+
+***

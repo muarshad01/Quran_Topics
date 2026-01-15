@@ -99,3 +99,5 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 #### [Shab-e-Miraj 27th Rajab 🌙 | Tonight’s Special Amal You Must Do | Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=eVcxehB-Ic8)
 
 ***
+
+#### [Shab-e-Meraj Kay Fazail Aur Khasoosi Aamaal | Prof Abdullah Bhatti](https://www.youtube.com/watch?v=G9K-Ez3agPA)

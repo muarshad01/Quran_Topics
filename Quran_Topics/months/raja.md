@@ -92,6 +92,10 @@ The Prophet ﷺ informed us that Jannah has eight gates, each for a special grou
 
 ***
 
-#### [Allama Talib Johri | New 13 Rajab Jashan-e-Molod-e-Kaaba | Must Watch](https://www.youtube.com/watch?v=UshR_9pWAOw)(https://www.youtube.com/watch?v=UshR_9pWAOw)
+#### [Allama Talib Johri | New 13 Rajab Jashan-e-Molod-e-Kaaba](https://www.youtube.com/watch?v=UshR_9pWAOw)(https://www.youtube.com/watch?v=UshR_9pWAOw)
+
+***
+
+#### [Shab-e-Miraj 27th Rajab 🌙 | Tonight’s Special Amal You Must Do | Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=eVcxehB-Ic8)
 
 ***

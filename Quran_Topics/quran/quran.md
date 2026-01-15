@@ -195,3 +195,20 @@
 * Ilm-e-Ilahi in Noor is Muhammad PBUH
 
 ***
+
+#### [Quran Is Not A Book Of Reward | Irfan-ul-Haq](https://www.youtube.com/watch?v=68DABD300ZE)
+* Quran mentions about Itaitat of 4 people
+* Parwai of only Prophet PBUH
+* __Surah An-Nisa 4/59 (أَطِيعُوا۟ ٱللَّهَ ...وَأَطِيعُوا۟ ٱلرَّسُولَ ...وَأُو۟لِى ٱلْأَمْرِ مِنكُمْ ۖ)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوٓا۟... أَطِيعُوا۟ ٱللَّهَ وَأَطِيعُوا۟ ٱلرَّسُولَ وَأُو۟لِى ٱلْأَمْرِ مِنكُمْ ۖ... فَإِن تَنَـٰزَعْتُمْ فِى شَىْءٍۢ فَرُدُّوهُ إِلَى ٱللَّهِ وَٱلرَّسُولِ إِن كُنتُمْ تُؤْمِنُونَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۚ ذَٰلِكَ خَيْرٌۭ وَأَحْسَنُ تَأْوِيلًا](https://quran.com/4/59)
+
+* __Surah Al-Imran (3/31-32)__: []() "Say, 'If you should love Allah, then follow me, [so] Allah will love you and forgive you your sins. And Allah is Forgiving and Merciful.' Say, 'Obey Allah and the Messenger.' But if they turn away—then indeed, Allah does not like the disbelievers."
+
+* __Surah An-Nisa (4/59)__: []() "O you who have believed, obey Allah and obey the Messenger and those in authority among you. And if you disagree over anything, refer it to Allah and the Messenger, if you should believe in Allah and the Last Day. That is the best [way] and best in result."
+
+* __Surah Al-Ahzab (33/21)__: []() "Indeed, in the Messenger of Allah you have an excellent example for whoever has hope in Allah and the Last Day and remembers Allah often."
+
+* __Surah An-Nur (24/54)__: []() "Say, 'Obey Allah and obey the Messenger; but if you turn away - then he is only responsible for what he has been charged with, and you are responsible for what you have been charged with. And if you obey him, you will be [rightly] guided. And there is nothing upon the Messenger except [to convey] the clear message.'"
+
+* __Surah Al-Ma'idah (5:92)__: []() "And obey Allah and obey the Messenger and beware. And if you turn away, then know that upon Our Messenger is [only] clear notification." 
+
+***

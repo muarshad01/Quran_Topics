@@ -33,3 +33,22 @@
 #### [Shab-e-Miraj Par Nabi ﷺ Ka Safar | Saat Asmanon Ki Haqeeqat | Abdul Salam Arif](https://www.youtube.com/watch?v=q7rUfowsv0c)
 
 ***
+
+#### [Shab-e-Mi’raj 27th Rajab | Important Aamaal for This Blessed Night | Must Do Deeds | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=ZpDHid6Hw88)
+* Taubah ki Niyat
+* Sukhranay ki Niyat
+* 12 Nafals
+  * Bait ullah (Makkah)
+  * Bail ul-Maqdas (Israa)
+  * 7-Heavens
+  * Sidrah-tuh-Muntana
+  * Saree-ul-Aqlam
+  * Arsha-e-Muala
+   
+* Salat-e-Tasbeeh
+* __Surah Al-Isra 17__: [](https://quran.com/17)
+* __Surah An-Najam 53__: [](https://quran.com/53)
+* Darood Sharif (300, 3k, 10k, 25k, 70k, 125k)
+* Ask for Muqam-e-Mehmood
+* Razeet Billah Rabbun, wa bil Islem Deenan, wa bi Muhammad Nabiyum SAW
+***

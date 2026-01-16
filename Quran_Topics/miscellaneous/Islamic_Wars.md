@@ -46,3 +46,10 @@
 ***
 
 "Al-Qa'qa' (Alqama) al-Sahabi (PBUH)" refers to Al-Qa'qa' ibn Amr al-Tamimi, a famous, courageous Rashidun general and Companion (Sahabi) of Prophet Muhammad (PBUH), known for his bravery, tactical genius, and pivotal role in early Islamic conquests like Yarmouk and Qadisiyyah, often described as a thousand men in battle. The "PBUH" (Peace Be Upon Him) signifies respect for this esteemed companion. 
+
+***
+
+#### Battle of the Yarmuk
+* 8,500 martyrs
+
+*** 

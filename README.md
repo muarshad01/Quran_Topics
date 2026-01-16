@@ -190,7 +190,7 @@
 
 | No.  | Islamic Months | Last Updated |
 |---|---|---|
-| 1.| [12 Islamic Months](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/islamic_months.md) | 09/01/2026 |
+| 1.| [12 Islamic Months](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/islamic_months.md) | 16/01/2026 |
 | 2.| [1 - Muharram](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/muharram.md) | 12/06/2025|
 | 3.| [7 - Rajab (Allah SWT Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/raja.md) | 09/01/2026 |
 | 4.| [8 - Shaban (My Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/shaban.md) | 08/01/2026 |

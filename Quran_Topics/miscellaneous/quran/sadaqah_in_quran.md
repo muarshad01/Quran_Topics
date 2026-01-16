@@ -1,3 +1,8 @@
+#### Sadqah
+* __Best SADAQAH__: If you've a divorced daughter / sister...taking care of her.
+
+***
+
 #### [Tobah ki kaboliyat ka secret raaz | Prof ARA](https://www.youtube.com/shorts/ewnwK9h-edQ)
 
 ***

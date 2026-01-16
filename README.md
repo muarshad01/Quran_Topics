@@ -285,7 +285,7 @@
 |---|---|---|
 |21. | [Family](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/family.md) | 06/01/2026 |
 |22. | [Exercise](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/exercise.md) |12/27/2025|
-|23. | [Death](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/death.md) |12/27/2025|
+|23. | [Death](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/death.md) | 16/01/2026 |
 |24. | [Anger](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/anger_ghusa.md) |12/27/2025|
 |25. | [Justice](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/adal_justice.md) |12/27/2025|
 |26. | [Taqdeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/taqdeer.md) |12/27/2025|

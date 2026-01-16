@@ -1,13 +1,5 @@
 ## Paradise
 
-#### [Psychologically upset children and absent minded people in heaven | Prof ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
-
-***
-
-#### [Aap (S.A.W) Ke Ummat-Ke Kon-Log Hon-Ge Jo Seedha-Jannat-Main Jayein-Ge? | SSA Shah](https://www.youtube.com/watch?v=vebojKZLCl4)
-
-***
-
 #### [(35)Chapter: “…They want to change Allah’s Words….”](https://sunnah.com/bukhari:7498)
 ```
 Narrated Abu Huraira: the Prophet (ﷺ) said, "Allah said,
@@ -19,11 +11,20 @@ nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 
 ***
 
-* __Surah Ale-Imran 3/133__: [۞ وَسَارِعُوٓا۟ إِلَىٰ مَغْفِرَةٍۢ مِّن رَّبِّكُمْ ...وَجَنَّةٍ عَرْضُهَا ٱلسَّمَـٰوَٰتُ وَٱلْأَرْضُ ...أُعِدَّتْ لِلْمُتَّقِينَ](https://quran.com/3/133)
+#### Size of Jannah:
+* __Surah Ale-Imran 3/133__: [وَجَنَّةٍ عَرْضُهَا ٱلسَّمَـٰوَٰتُ وَٱلْأَرْضُ](https://quran.com/3/133)
+* __Surah Al-Hadid 57/21__: [وَجَنَّةٍ عَرْضُهَا كَعَرْضِ ٱلسَّمَآءِ وَٱلْأَرْضِ](https://quran.com/57/21)
 
 ***
 
+#### [Journey of Jannah Explained in Quran and Hadith | Jannat Kaise Hogi](https://www.youtube.com/watch?v=N0lVPspQYdg)
 
- * Size of Jannah:
-    * __Surah 3/133__: [وَجَنَّةٍ عَرْضُهَا ٱلسَّمَـٰوَٰتُ وَٱلْأَرْضُ](https://quran.com/3/133)
-    * __Surah 57/21__: [وَجَنَّةٍ عَرْضُهَا كَعَرْضِ ٱلسَّمَآءِ وَٱلْأَرْضِ](https://quran.com/57/21)
+***
+
+#### [Psychologically upset children and absent minded people in heaven | Prof ARA](https://www.youtube.com/watch?v=2NlZWe22InE)
+
+***
+
+#### [Aap (S.A.W) Ke Ummat-Ke Kon-Log Hon-Ge Jo Seedha-Jannat-Main Jayein-Ge? | SSA Shah](https://www.youtube.com/watch?v=vebojKZLCl4)
+
+***

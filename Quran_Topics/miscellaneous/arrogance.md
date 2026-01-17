@@ -2,6 +2,12 @@
 
 ***
 
+* __Surah Al-Isra 17/37__: [وَلَا تَمْشِ فِى ٱلْأَرْضِ مَرَحًا ۖ... إِنَّكَ لَن تَخْرِقَ ٱلْأَرْضَ.. وَلَن تَبْلُغَ ٱلْجِبَالَ طُولًۭا](https://quran.com/17/37)
+* And do not walk on the earth arrogantly.
+* Surely you can neither crack the earth ...nor stretch-to-the-height of the mountains.
+
+***
+
 #### Takabar Types / Idols
 * Ego (self)
 * Aijzi (Humility) - most dangerours

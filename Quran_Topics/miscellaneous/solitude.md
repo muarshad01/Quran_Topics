@@ -4,6 +4,13 @@
 * __FOCUS__ on `Ghor-o-Fikr`
 
 #### [If a man has no friends...very secure man!](https://www.youtube.com/shorts/K5OVHIBMinM)
+* Ibadah has 10 parts:
+1. 9 parts are silence
+2. 1 part is avoiding people
+
+***
+
+#### [](https://www.youtube.com/shorts/3mKd3MZTvh4)
 
 ***
 

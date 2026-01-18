@@ -2,6 +2,11 @@
 
 ***
 
+#### [who creates universe | Claim of God | Prof ARA](https://www.youtube.com/watch?v=3YuorcNiCUs)
+* __Surah An-Naml 27/62 (أَمَّن يُجِيبُ ٱلْمُضْطَرَّ إِذَا دَعَاهُ وَيَكْشِفُ ٱلسُّوٓءَ)__: [أَمَّن يُجِيبُ ٱلْمُضْطَرَّ إِذَا دَعَاهُ وَيَكْشِفُ ٱلسُّوٓءَ... وَيَجْعَلُكُمْ خُلَفَآءَ ٱلْأَرْضِ ۗ ...أَءِلَـٰهٌۭ مَّعَ ٱللَّهِ ۚ... قَلِيلًۭا مَّا تَذَكَّرُونَ](https://quran.com/27/62)
+
+***
+
 #### [Does God Exist? | Pir Syed Naseer-ud-Deen Naseer Shah](https://www.youtube.com/shorts/NdJNcQOQUfo)
 * __Surah Al-Anam 6/103__: [لَّا تُدْرِكُهُ ٱلْأَبْصَـٰرُ ...وَهُوَ يُدْرِكُ ٱلْأَبْصَـٰرَ ۖ... وَهُوَ ٱللَّطِيفُ ٱلْخَبِيرُ](https://quran.com/6/103)
 

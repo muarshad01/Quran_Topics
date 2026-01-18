@@ -262,42 +262,42 @@
 
 | No. | Other Topics | Last Updated |
 |---|---|---|
-|1. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
-|2. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|
-|3. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) |12/06/2025|
-|4. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/digits.md) |12/06/2025|
-|5. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Numbers.md) |12/06/2025|
-|6. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) |12/06/2025|
-|7. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) |12/06/2025|
-|8. | [Kashf](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/kashf.md) |12/06/2025|
-|9. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) |12/06/2025|
-|10.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
-|11.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|
-|12. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) | 06/01/2026 |
-|13. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) | 06/01/2026 |
-|14. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) | 06/01/2026 |
-|15. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
-|16. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
-|17. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
-|18. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|
-|19. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
-|20. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) |12/06/2025|
+| 01. | [Fear](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fear.md) |12/06/2025|
+| 02. | [Depression](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/depression.md) |12/06/2025|
+| 03. | [Psychological Problems](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/psychological_problems.md) |12/06/2025|
+| 04. | [Digits](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/digits.md) |12/06/2025|
+| 05. | [Numbers](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Numbers.md) |12/06/2025|
+| 06. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) |12/06/2025|
+| 07. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) |12/06/2025|
+| 08. | [Kashf](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/kashf.md) |12/06/2025|
+| 09. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) |12/06/2025|
+| 10.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
+| 11.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|
+| 12. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) | 06/01/2026 |
+| 13. | [Leader](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/leader.md) | 06/01/2026 |
+| 14. | [Effort](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/effort.md) | 06/01/2026 |
+| 15. | [Fitrat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fitrat.md) |12/06/2025|
+| 16. | [Hisar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/hisar.md) |12/06/2025|
+| 17. | [Future of Pakistan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/future_of_pakistan.md) |12/06/2025|
+| 18. | [Different Alams and Jahans](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/different_alams_jahans.md) |12/06/2025|
+| 19. | [Sugar Insulin](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/sugar_insulin.md) |12/06/2025|
+| 20. | [Arrogance](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/arrogance.md) | 17/01/2026 |
 |---|---|---|
-|21. | [Family](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/family.md) | 06/01/2026 |
-|22. | [Exercise](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/exercise.md) |12/27/2025|
-|23. | [Death](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/death.md) | 16/01/2026 |
-|24. | [Anger](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/anger_ghusa.md) |12/27/2025|
-|25. | [Justice](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/adal_justice.md) |12/27/2025|
-|26. | [Taqdeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/taqdeer.md) |12/27/2025|
-|27. | [Time Dilation](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/time-dilation.md) |12/27/2025|
-|28. | [Ishq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Ishq.md) |12/27/2025|
-|29. | [Job](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/job.md) |12/27/2025|
-|30. | [Eid-ul-Adha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/eid-ul-adha.md) |12/27/2025|
-|31. | [Nazr-e-Baad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/nazr-e-baad.md) |12/27/2025|
-|32. | [Qiyamah (Judgement Day)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/qiyamah.md) | 06/01/2026|
-|33. | [Abad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/abad_ibadat_bashar.md), [Ibadah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/Ibadat.md) |12/27/2025|
-|34. | [Miraj](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/miraj.md) | 05/01/2026 |
-|35. | [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran_and_mathematics.md) | 05/01/2026 |
-|36. | [Recording Chip](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/recording-chip.md) | 06/01/2026 |
+| 21. | [Family](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/family.md) | 06/01/2026 |
+| 22. | [Exercise](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/exercise.md) |12/27/2025|
+| 23. | [Death](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/death.md) | 16/01/2026 |
+| 24. | [Anger](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/anger_ghusa.md) |12/27/2025|
+| 25. | [Justice](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/adal_justice.md) |12/27/2025|
+| 26. | [Taqdeer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/taqdeer.md) |12/27/2025|
+| 27. | [Time Dilation](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/time-dilation.md) |12/27/2025|
+| 28. | [Ishq](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Ishq.md) |12/27/2025|
+| 29. | [Job](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/job.md) |12/27/2025|
+| 30. | [Eid-ul-Adha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/eid-ul-adha.md) |12/27/2025|
+| 31. | [Nazr-e-Baad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/nazr-e-baad.md) |12/27/2025|
+| 32. | [Qiyamah (Judgement Day)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/qiyamah.md) | 06/01/2026|
+| 33. | [Abad](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/abad_ibadat_bashar.md), [Ibadah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/Ibadat.md) |12/27/2025|
+| 34. | [Miraj](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/miraj.md) | 05/01/2026 |
+| 35. | [Quran and Mathematics](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran_and_mathematics.md) | 05/01/2026 |
+| 36. | [Recording Chip](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/recording-chip.md) | 06/01/2026 |
 
 ***

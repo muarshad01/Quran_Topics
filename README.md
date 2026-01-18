@@ -158,7 +158,7 @@
 | No  | Different Quranic Terms | Last Updated |
 |---|---|---|
 | 1. | [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 05/01/2026 |
-| 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) |12/06/2025 |
+| 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) | 18/01/2026 |
 | 3. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) | 18/01/2026 |
 | 5. | [Tahtus-Sara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) | 05/01/2026 |
 | 6. | [Dabat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) | 09/01/2026 |

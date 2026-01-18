@@ -11,7 +11,7 @@
 * __Surah An-Najm 53/12__: [أَفَتُمَـٰرُونَهُۥ عَلَىٰ مَا يَرَىٰ](https://quran.com/53/12)
 * __Surah An-Najm 53/13__: [وَلَقَدْ رَءَاهُ نَزْلَةً أُخْرَىٰ](https://quran.com/53/13)
 * __Surah An-Najm 53/14__: [عِندَ سِدْرَةِ ٱلْمُنتَهَىٰ](https://quran.com/53/14)
-* __Muntaha__: The final-end. The final-border. The last-thing you can see.
+  * __Muntaha__: The final-end. The final-border. The last-thing you can see.
 * __Surah An-Najm 53/15__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ](https://quran.com/53/15)
   * __Mauva__: The Garden-of-refuge
   * Jannah is in the evens

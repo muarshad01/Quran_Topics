@@ -32,6 +32,9 @@
 * __Surah At-Tin 95/1__: [By the fig and the olive. ١ وَالتِّينِ وَالزَّيْتُونِ](https://quran.com/95/1)
 * __Surah At-Tin 95/2__: [And Mount Sinai. ٢ وَطُورِ سِينِينَ](https://quran.com/95/2)
 * __Surah At-Tin 95/3__: [And this safe land. ٣ وَهَٰذَا الْبَلَدِ الْأَمِينِ](https://quran.com/95/3)
+
+***
+
 * __Surah Al-Adyat 100/1__: [By the racers panting. وَالْعَادِيَاتِ ضَبْحًا](https://quran.com/100/1)
 * __Surah Al-Asr 103/1__: [By Time. ١ وَالْعَصْرِ](https://quran.com/103/1)
 

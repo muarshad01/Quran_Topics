@@ -157,21 +157,21 @@
 
 | No  | Different Quranic Terms | Last Updated |
 |---|---|---|
-| 1. | [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 05/01/2026 |
-| 2. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) | 18/01/2026 |
-| 3. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) | 18/01/2026 |
-| 5. | [Tahtus-Sara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) | 05/01/2026 |
-| 6. | [Dabat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) | 09/01/2026 |
-| 7. | [Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)| 10/01/2026 |
-| 8. | [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)| 18/01/2026 |
-| 9. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 11/01/2026 |
-| 10. | [Sidrat al-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) |12/06/2025|
-| 11. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 05/01/2026 |
-| 12. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
-|13. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) | 13/01/2026 |
-|14. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
-|15. | [Order in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/order_in_quran.md) | 02/02/2026 |
-|16. | [Signs in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/signs_in_quran.md) | 12/27/2025|
+| 01. | [Sultan-e-Naseer](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sultan_naseer.md)| 05/01/2026 |
+| 02. | [Kun-FaYa-Koon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/kun_faya_kun.md) | 18/01/2026 |
+| 03. | [Burhaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/burhaan.md) | 18/01/2026 |
+| 04. | [Tahtus-Sara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/tahtas_saraa.md) | 05/01/2026 |
+| 05. | [Dabat al-Ardh](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/dabat-ul-ardh.md) | 09/01/2026 |
+| 06. | [Yashaa (What Allah SWT Wills)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/yashaaa_wish.md)| 10/01/2026 |
+| 07. | [Swear in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/swear_in_quran.md)| 18/01/2026 |
+| 08. | [Promise (Covenant)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/promise.md)| 11/01/2026 |
+| 09. | [Sidrat al-Muntaha](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/sidratul_muntaha.md) | 18/01/2026 |
+| 10. | [Heen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heen.md) | 05/01/2026 |
+| 11. | [Qarz Hasna (Benevolent loan)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/qaraz_hasana_in_quran.md) |  12/06/2025|
+| 12. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) | 13/01/2026 |
+| 13. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 12/06/2025|
+| 14. | [Order in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/order_in_quran.md) | 02/02/2026 |
+| 15. | [Signs in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/signs_in_quran.md) | 12/27/2025|
 
 ***
 

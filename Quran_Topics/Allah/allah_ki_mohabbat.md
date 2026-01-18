@@ -182,5 +182,12 @@
 ***
 
 #### [Allah Kin Logon Ko Ghasit Kar Apni Taraf Le Aata Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=gpLEKSKWQuE)
+1. Softness of HEART and Humility
+2. Ikhlas and Purity of Nayah
+3. HEART returns towards Allah SWT. Allah SWT rememberance lives in their hearts constantly. They don't fear solitute because in Solitude they fell the closeness (QURBAT) of Allah SWT. Uneeb and Muneebs...hearts constantly keep towards Allah SWT.
+
+***
+
+#### [Wo Khaas Bande Jin Se Allah Khud Mohabbat Karta Hai | 3 Bari Nishaniyan | Wasif Ali Wasif ](https://www.youtube.com/watch?v=cFDGwUCWzTA)
 
 ***

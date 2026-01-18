@@ -33,14 +33,14 @@
 * Arz-e-Faqeer, Lecture 9, page 91
 * __Surah Yusuf 12/24__: [وَلَقَدْ هَمَّتْ بِهِۦ ۖ وَهَمَّ بِهَا... لَوْلَآ أَن رَّءَا بُرْهَـٰنَ رَبِّهِۦ ۚ... كَذَٰلِكَ لِنَصْرِفَ عَنْهُ ٱلسُّوٓءَ وَٱلْفَحْشَآءَ ۚ... إِنَّهُۥ مِنْ عِبَادِنَا ٱلْمُخْلَصِينَ ](https://quran.com/12/24)
 * Anyone can Experience-the-Burhaan
-* Agar-hum gunah-say Taubah-kar-layn, aur irada-kar-layn apnay-aur-Rabb-kay-saath kay-hum gunah-nahi-karayan-gay, aur Rabb-Tallah-say yeah darkhawast-kar-layn
-* __Ya-Bari-Talaa, mayn-KAMZOOR-hoon, merey-qadam-larkaraha-jaatay-hayn, meri-MADAD-farma, aur mujhay-gunahoon-say MEHFOOR-raakh. Mayn-apnay-app-ko Teri-PROTECTION-mayn deeta-hoon__
-* I can say this with full-conviction, you'll experience-Allah-SWT-Burhann
-* Jahan-app gunah-karnay-lagay, wahan Rabb-Talaa nay kuch-iss-tarah ki rukawat-daal-deh, app gunah-ki-jagah-par jaa-hee nahi-sakay, yah gunah kar-nahi-sakay.
-* We're all weak.
-    * Instead of carrying all __WEIGHT__, you try and seek-His-help.
-* Ya-Bari-Talaa, mayn-KAMZOOR-hoon, gunahoon-say bachna-chahta-hoon, tuh nayatoon-ko jannta-hai, meri-MADAD farmay-deh.
-* __Apnay-app-ko Allah-ki-PROTECTION mayn-deh-deayn. Uss say HELP-maang-layn__
+* Agar-hum gunah-say __TAUBAH__-kar-layn, aur __IRADA__-kar-layn apnay-aur-Rabb-kay-saath kay-hum gunah-nahi-karayan-gay, aur Rabb-Tallah-say yeah darkhawast-kar-layn
+   * Ya-Bari-Talaa, mayn-__KAMZOOR__-hoon, merey-qadam-larkaraha-jaatay-hayn, meri-__MADAD__-farma, aur mujhay-gunahoon-say __MEHFOOZ__-raakh. Mayn-apnay-app-ko Teri-__PROTECTION__-mayn deeta-hoon__
+   * I can say this with full-conviction, you'll experience-Allah-SWT-Burhann
+   * Jahan-app gunah-karnay-lagay, wahan Rabb-Talaa nay kuch-iss-tarah ki rukawat-daal-deh, app gunah-ki-jagah-par jaa-hee nahi-sakay, yah gunah kar-nahi-sakay.
+   * We're all weak.
+   * Instead of carrying all __WEIGHT__, you try and seek-His-help!!!
+* Ya-Bari-Talaa, mayn-__KAMZOOR__-hoon, gunahoon-say bachna-chahta-hoon, tuh nayatoon-ko jannta-hai, meri-__MADAD__ farmay-deh.
+* Apnay-app-ko Allah-ki-__PROTECTION__ mayn-deh-deayn. Uss say __HELP__-maang-layn.
 
 ***
 

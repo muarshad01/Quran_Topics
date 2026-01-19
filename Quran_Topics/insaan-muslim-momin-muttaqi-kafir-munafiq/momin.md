@@ -56,7 +56,7 @@ nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 
 ***
 
-* __Surah Al-Israa 17/1-75__: []()
+* __Surah Al-Israa 17/1-75__: [إِذًۭا لَّأَذَقْنَـٰكَ ضِعْفَ ٱلْحَيَوٰةِ وَضِعْفَ ٱلْمَمَاتِ ثُمَّ لَا تَجِدُ لَكَ عَلَيْنَا نَصِيرًۭا](https://quran.com/17/75)
 
 ***
 

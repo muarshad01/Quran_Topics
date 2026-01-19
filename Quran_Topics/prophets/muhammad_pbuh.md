@@ -1,5 +1,9 @@
-#### [Roza-e-Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq]([https://www.youtube.com/](https://www.youtube.com/watch?v=md3KdXqYJIE))
+#### [Roza-e-Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq](https://www.youtube.com/watch?v=md3KdXqYJIE))
 * TODO
+***
+
+#### [Aqa Karim ﷺ Ki Ziarat Ke Liye Intihai Aazmooda Wazifa | Prof Abdullah Bhatti](https://www.youtube.com/shorts/iwuHzoZv3QY)
+1. Surah Kausar & 3rd Kalma -- 500 time
 
 ***
 

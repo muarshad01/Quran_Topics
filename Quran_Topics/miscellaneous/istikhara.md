@@ -4,6 +4,11 @@
 
 ***
 
+#### [Jadu Gar Ka Pata Lagwane Keleay Mujrib Wazeefa| Prof Abdullah Bhatti](https://www.youtube.com/shorts/oxFGBwHqP7I)
+* Ya-Latifu, Ya-Aleemu, Ya-Khabeeru tasbeeh
+
+***
+
 #### [kia ap istikhara Karna chahte Hain](https://www.youtube.com/shorts/lpRDatejk24)
 * 1-time Darood Ibrahim
 * 1-time Surah Fatiha, and repeat the middle ayat (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ) 7-time

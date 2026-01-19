@@ -20,22 +20,22 @@ nor a human HEART can ever think of.' " -- Sahih al-Bukhari 7498
 * __Surah Al-Baqarah 2/153__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟... ٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ... إِنَّ ٱللَّهَ مَعَ ٱلصَّـٰبِرِينَ](https://quran.com/2/153)
 * __Surah Al-Baqarah 2/165 (وَٱلَّذِينَ ءَامَنُوٓا۟ أَشَدُّ حُبًّۭا لِّلَّهِ ۗ)__: [وَمِنَ ٱلنَّاسِ مَن يَتَّخِذُ مِن دُونِ ٱللَّهِ أَندَادًۭا ...يُحِبُّونَهُمْ كَحُبِّ ٱللَّهِ ۖ ...وَٱلَّذِينَ ءَامَنُوٓا۟ أَشَدُّ حُبًّۭا لِّلَّهِ ۗ... وَلَوْ يَرَى ٱلَّذِينَ ظَلَمُوٓا۟ إِذْ يَرَوْنَ ٱلْعَذَابَ ...أَنَّ ٱلْقُوَّةَ لِلَّهِ جَمِيعًۭا... وَأَنَّ ٱللَّهَ شَدِيدُ ٱلْعَذَابِ](https://quran.com/2/165)
 * __Surah Al-Baqarah 2/177 (Righteousness:  ...أُو۟لَـٰٓئِكَ ٱلَّذِينَ صَدَقُوا۟ ۖ... وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُتَّقُونَ)__: [۞ لَّيْسَ ٱلْبِرَّ... أَن تُوَلُّوا۟ وُجُوهَكُمْ قِبَلَ ٱلْمَشْرِقِ وَٱلْمَغْرِبِ ...وَلَـٰكِنَّ ٱلْبِرَّ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَٱلْمَلَـٰٓئِكَةِ وَٱلْكِتَـٰبِ وَٱلنَّبِيِّـۧنَ ...وَءَاتَى ٱلْمَالَ عَلَىٰ حُبِّهِۦ... ذَوِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينَ وَٱبْنَ ٱلسَّبِيلِ وَٱلسَّآئِلِينَ وَفِى ٱلرِّقَابِ ...وَأَقَامَ ٱلصَّلَوٰةَ وَءَاتَى ٱلزَّكَوٰةَ... وَٱلْمُوفُونَ بِعَهْدِهِمْ إِذَا عَـٰهَدُوا۟ ۖ... وَٱلصَّـٰبِرِينَ فِى ٱلْبَأْسَآءِ وَٱلضَّرَّآءِ ...وَحِينَ ٱلْبَأْسِ ۗ ...أُو۟لَـٰٓئِكَ ٱلَّذِينَ صَدَقُوا۟ ۖ... وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُتَّقُونَ](https://quran.com/2/177)
-  * Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who:
-  1. believe in Allah,
-  2. the Last Day,
-  3. the angels,
-  4. the Books,
-  5. and the prophets;
-  * who give charity out of their cherished wealth to:
-  1. relatives,
-  2. orphans,
-  3. the poor,
-  4. ˹needy˺ travellers,
-  5. beggars,
-  6. and for freeing captives;
-  * who establish prayer, pay alms-tax, and keep the pledges they make;
-  * and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle.
-  * It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.
+* Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who:
+1. believe in Allah,
+2. the Last Day,
+3. the angels,
+4. the Books,
+5. and the prophets;
+* who give charity out of their cherished wealth to:
+1. relatives,
+2. orphans,
+3. the poor,
+4. ˹needy˺ travellers,
+5. beggars,
+6. and for freeing captives;
+* who establish prayer, pay alms-tax, and keep the pledges they make;
+* and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle.
+* It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.
 
 * __Surah Al-Baqarah 2/183__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟... كُتِبَ عَلَيْكُمُ ٱلصِّيَامُ... كَمَا كُتِبَ عَلَى ٱلَّذِينَ مِن قَبْلِكُمْ ...لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/183)
 

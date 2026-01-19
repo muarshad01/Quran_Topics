@@ -10,6 +10,11 @@
 
 ***
 
+#### Hadith
+* [Abu Huraira reported: The Messenger of Allah (ﷺ) said: The nearest a servant comes to his Lord is when he is prostrating himself, so make supplication (in this state).](https://sunnah.com/muslim:482) --Sahih Muslim 482 
+
+***
+
 * __Surah Al-A'raf 7/206__: [إِنَّ ٱلَّذِينَ عِندَ رَبِّكَ لَا يَسْتَكْبِرُونَ عَنْ عِبَادَتِهِۦ وَيُسَبِّحُونَهُۥ وَلَهُۥ يَسْجُدُونَ ۩](https://quranwbw.com/7/206)
 
 * __Surah Sajdah 13/15__: [وَلِلَّهِ يَسْجُدُ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ طَوْعًۭا وَكَرْهًۭا وَظِلَـٰلُهُم بِٱلْغُدُوِّ وَٱلْـَٔاصَالِ ۩](https://quran.com/13/15)

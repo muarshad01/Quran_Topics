@@ -26,7 +26,10 @@
 
 * 11 -  Yusuf (Joseph)
 * 12 -  Shu’aib (Jethro)
-      * __Surah Hud 11/87 (${\color{red}Shuabi ~AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quranwbw.com/11/87)
+  * __Surah Hud 11/87 (${\color{red}Shuabi ~AS}$)__: [They asked ˹sarcastically˺, “O Shu’aib! Does your prayer command you that we should abandon what our forefathers worshipped or give up managing our wealth as we please? Indeed, you are such a tolerant, sensible man!”](https://quran.com/11/87)
+   * __Surah Yusuf 12/21__: [وَقَالَ ٱلَّذِى ٱشْتَرَىٰهُ مِن مِّصْرَ لِٱمْرَأَتِهِۦٓ... أَكْرِمِى مَثْوَىٰهُ عَسَىٰٓ أَن يَنفَعَنَآ أَوْ نَتَّخِذَهُۥ وَلَدًۭا ۚ ...وَكَذَٰلِكَ مَكَّنَّا لِيُوسُفَ فِى ٱلْأَرْضِ وَلِنُعَلِّمَهُۥ مِن تَأْوِيلِ ٱلْأَحَادِيثِ ۚ.... وَٱللَّهُ غَالِبٌ عَلَىٰٓ أَمْرِهِۦ... وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَعْلَمُونَ](https://quran.com/12/21)
+
+***
 * 13 -  [Ayyub (Job)](https://quranwbw.com/21/83)
 * 14 -  [Dhulkifl (Ezekiel)](https://quranwbw.com/21/85)
 * 15 -  [Musa (Moses)](https://quranwbw.com/21/48)

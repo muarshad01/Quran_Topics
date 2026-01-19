@@ -104,3 +104,23 @@
 6. who encourage good and forbid evil (ٱلْـَٔامِرُونَ بِٱلْمَعْرُوفِ وَٱلنَّاهُونَ عَنِ ٱلْمُنكَرِ)
 7. and who observe the limits set by Allah (وَٱلْحَـٰفِظُونَ لِحُدُودِ ٱللَّهِ).
 *  And give good news to the believers.
+
+***
+
+* __Surah Al-Baqarah 2/177 (Righteousness:  ...أُو۟لَـٰٓئِكَ ٱلَّذِينَ صَدَقُوا۟ ۖ... وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُتَّقُونَ)__: [۞ لَّيْسَ ٱلْبِرَّ... أَن تُوَلُّوا۟ وُجُوهَكُمْ قِبَلَ ٱلْمَشْرِقِ وَٱلْمَغْرِبِ ...وَلَـٰكِنَّ ٱلْبِرَّ مَنْ ءَامَنَ بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ وَٱلْمَلَـٰٓئِكَةِ وَٱلْكِتَـٰبِ وَٱلنَّبِيِّـۧنَ ...وَءَاتَى ٱلْمَالَ عَلَىٰ حُبِّهِۦ... ذَوِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينَ وَٱبْنَ ٱلسَّبِيلِ وَٱلسَّآئِلِينَ وَفِى ٱلرِّقَابِ ...وَأَقَامَ ٱلصَّلَوٰةَ وَءَاتَى ٱلزَّكَوٰةَ... وَٱلْمُوفُونَ بِعَهْدِهِمْ إِذَا عَـٰهَدُوا۟ ۖ... وَٱلصَّـٰبِرِينَ فِى ٱلْبَأْسَآءِ وَٱلضَّرَّآءِ ...وَحِينَ ٱلْبَأْسِ ۗ ...أُو۟لَـٰٓئِكَ ٱلَّذِينَ صَدَقُوا۟ ۖ... وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُتَّقُونَ](https://quran.com/2/177)
+  * Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who:
+  1. believe in Allah,
+  2. the Last Day,
+  3. the angels,
+  4. the Books,
+  5. and the prophets;
+  * who give charity out of their cherished wealth to:
+  1. relatives,
+  2. orphans,
+  3. the poor,
+  4. ˹needy˺ travellers,
+  5. beggars,
+  6. and for freeing captives;
+  * who establish prayer, pay alms-tax, and keep the pledges they make;
+  * and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle.
+  * It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.

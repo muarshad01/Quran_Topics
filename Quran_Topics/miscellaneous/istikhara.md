@@ -1,10 +1,10 @@
-* __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+* __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ... لَا عِلْمَ لَنَآ... إِلَّا مَا عَلَّمْتَنَآ ۖ... إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
 
 ***
 
 #### [kia ap istikhara Karna chahte Hain](https://www.youtube.com/shorts/lpRDatejk24)
 * 1-time Darood Ibrahim
-* 1-time Surah Fatiha, repeat the middle ayat 7-time
+* 1-time Surah Fatiha, and repeat the middle ayat (اهْدِنَا الصِّرَاطَ الْمُسْتَقِيمَ) 7-time
 
 ***
 

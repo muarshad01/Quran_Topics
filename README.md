@@ -273,7 +273,7 @@
 | 06. | [Dreams](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/dreams.md) |12/06/2025|
 | 07. | [Muraqba](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/muraqba.md) |12/06/2025|
 | 08. | [Kashf](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/kashf.md) |12/06/2025|
-| 09. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) |12/06/2025|
+| 09. | [Istikhara](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/istikhara.md) | 19/01/2026 |
 | 10.| [Islamic Wars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/Islamic_Wars.md) |12/06/2025|
 | 11.| [Solitude](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/solitude.md) |12/06/2025|
 | 12. | [Loneliness](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/loneliness.md) | 06/01/2026 |

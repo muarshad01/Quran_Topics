@@ -92,3 +92,15 @@
 3. obedient,
 4. and charitable,
 5. and who pray for forgiveness before dawn.
+
+***
+
+* __Surah At-Tawbah 9/112 (وَبَشِّرِ ٱلْمُؤْمِنِينَ)__: [ٱلتَّـٰٓئِبُونَ ...ٱلْعَـٰبِدُونَ ...ٱلْحَـٰمِدُونَ... ٱلسَّـٰٓئِحُونَ... ٱلرَّٰكِعُونَ ٱلسَّـٰجِدُونَ... ٱلْـَٔامِرُونَ بِٱلْمَعْرُوفِ وَٱلنَّاهُونَ عَنِ ٱلْمُنكَرِ... وَٱلْحَـٰفِظُونَ لِحُدُودِ ٱللَّهِ ۗ... وَبَشِّرِ ٱلْمُؤْمِنِينَ](https://quran.com/9/112)
+1. ˹It is the believers˺ who repent (ٱلتَّـٰٓئِبُونَ)
+2. who are devoted to worship (ٱلْعَـٰبِدُونَ)
+3. who praise ˹their Lord˺ (ٱلْحَـٰمِدُونَ)
+4. who fast (ٱلسَّـٰٓئِحُونَ)??
+5. who bow down and prostrate themselves (ٱلرَّٰكِعُونَ ٱلسَّـٰجِدُونَ)
+6. who encourage good and forbid evil (ٱلْـَٔامِرُونَ بِٱلْمَعْرُوفِ وَٱلنَّاهُونَ عَنِ ٱلْمُنكَرِ)
+7. and who observe the limits set by Allah (وَٱلْحَـٰفِظُونَ لِحُدُودِ ٱللَّهِ).
+*  And give good news to the believers.

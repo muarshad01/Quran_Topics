@@ -171,7 +171,7 @@
 | 12. | [Owner_Zu](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/owner_zu_in_quran.md) | 13/01/2026 |
 | 13. | [Ya Waliu Ya Naseeru](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/quran/ya_wali_ya_naseer_in_quran.md) | 18/01/2026 |
 | 14. | [Order in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/order_in_quran.md) | 02/02/2026 |
-| 15. | [Signs in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/signs_in_quran.md) | 12/27/2025|
+| 15. | [Signs in Quran](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran/signs_in_quran.md) | 18/01/2026 |
 
 ***
 

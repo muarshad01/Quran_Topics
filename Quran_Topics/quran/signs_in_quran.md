@@ -6,5 +6,6 @@
 * __Surah Yusuf 12/105 (Quran's complaint)__: [وَكَأَيِّن مِّنْ ءَايَةٍۢ فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ... يَمُرُّونَ عَلَيْهَا... وَهُمْ عَنْهَا مُعْرِضُونَ](https://quran.com/12/105)
 
 * __Surah Fussilat 41/53__: [سَنُرِيهِمْ ءَايَـٰتِنَا فِى ٱلْـَٔافَاقِ وَفِىٓ أَنفُسِهِمْ ...حَتَّىٰ يَتَبَيَّنَ لَهُمْ أَنَّهُ ٱلْحَقُّ ۗ... أَوَلَمْ يَكْفِ بِرَبِّكَ... أَنَّهُۥ عَلَىٰ كُلِّ شَىْءٍۢ شَهِيدٌ](https://quran.com/41/53)
+  * We will show them Our signs in the universe and within themselves until it becomes clear to them that this ˹Quran˺ is the truth. __Is it not enough that your Lord is a Witness over all things?__
 
 ***

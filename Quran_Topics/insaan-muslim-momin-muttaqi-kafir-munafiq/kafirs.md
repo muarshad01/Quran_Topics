@@ -1,3 +1,4 @@
+#### Kafir
 * __Surah Al-Baqarah 2/120 (Never be pleased:وَلَن تَرْضَىٰ عَنكَ ٱلْيَهُودُ وَلَا ٱلنَّصَـٰرَىٰ ...حَتَّىٰ تَتَّبِعَ مِلَّتَهُمْ)__: [وَلَن تَرْضَىٰ عَنكَ ٱلْيَهُودُ وَلَا ٱلنَّصَـٰرَىٰ... حَتَّىٰ تَتَّبِعَ مِلَّتَهُمْ ۗ... قُلْ إِنَّ هُدَى ٱللَّهِ هُوَ ٱلْهُدَىٰ... ۗ وَلَئِنِ ٱتَّبَعْتَ أَهْوَآءَهُم بَعْدَ ٱلَّذِى جَآءَكَ مِنَ ٱلْعِلْمِ ۙ مَا لَكَ مِنَ ٱللَّهِ مِن وَلِىٍّۢ وَلَا نَصِيرٍ](https://quran.com/2/120)
 
 * __Surah Al-Baqarah 2/135 (وَقَالُوا۟ كُونُوا۟ هُودًا أَوْ نَصَـٰرَىٰ... تَهْتَدُوا۟)__: [وَقَالُوا۟ كُونُوا۟ هُودًا أَوْ نَصَـٰرَىٰ تَهْتَدُوا۟ ۗ... قُلْ بَلْ مِلَّةَ إِبْرَٰهِـۧمَ حَنِيفًۭا ۖ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/2/135)
@@ -5,13 +6,10 @@
 * __Surah Al-Baqarah 2/175 (فَمَآ أَصْبَرَهُمْ عَلَى ٱلنَّارِ)__: [أُو۟لَـٰٓئِكَ ٱلَّذِينَ ٱشْتَرَوُا۟ ...ٱلضَّلَـٰلَةَ بِٱلْهُدَىٰ وَٱلْعَذَابَ بِٱلْمَغْفِرَةِ ۚ... فَمَآ أَصْبَرَهُمْ عَلَى ٱلنَّارِ](https://quran.com/2/175)
 
 * __Surah Al-Baqarah 2/217 (وَلَا يَزَالُونَ يُقَـٰتِلُونَكُمْ حَتَّىٰ يَرُدُّوكُمْ عَن دِينِكُمْ إِنِ ٱسْتَطَـٰعُوا۟)__: [يَسْـَٔلُونَكَ عَنِ ٱلشَّهْرِ ٱلْحَرَامِ قِتَالٍۢ فِيهِ ۖ قُلْ قِتَالٌۭ فِيهِ كَبِيرٌۭ ۖ وَصَدٌّ عَن سَبِيلِ ٱللَّهِ وَكُفْرٌۢ بِهِۦ وَٱلْمَسْجِدِ ٱلْحَرَامِ وَإِخْرَاجُ أَهْلِهِۦ مِنْهُ أَكْبَرُ عِندَ ٱللَّهِ ۚ وَٱلْفِتْنَةُ أَكْبَرُ مِنَ ٱلْقَتْلِ ۗ... وَلَا يَزَالُونَ يُقَـٰتِلُونَكُمْ حَتَّىٰ يَرُدُّوكُمْ عَن دِينِكُمْ إِنِ ٱسْتَطَـٰعُوا۟ ۚ... وَمَن يَرْتَدِدْ مِنكُمْ عَن دِينِهِۦ فَيَمُتْ وَهُوَ كَافِرٌۭ فَأُو۟لَـٰٓئِكَ حَبِطَتْ أَعْمَـٰلُهُمْ فِى ٱلدُّنْيَا وَٱلْـَٔاخِرَةِ ۖ وَأُو۟لَـٰٓئِكَ أَصْحَـٰبُ ٱلنَّارِ ۖ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/2/217)
-* They ask you ˹O Prophet˺ about fighting in the __sacred months__. Say, “Fighting during these months is a great sin. But hindering ˹others˺ from the Path of Allah, rejecting Him, and expelling the worshippers from the Sacred Mosque is ˹a˺ greater ˹sin˺ in the sight of Allah. For persecution is far worse than killing. __And they will NOT stop fighting you until they turn you away from your faith — if they can__. And whoever among you renounces their own faith and dies a disbeliever, their deeds will become void in this life and in the Hereafter. It is they who will be the residents of the Fire. They will be there forever.”
+  * They ask you ˹O Prophet˺ about fighting in the __sacred months__. Say, “Fighting during these months is a great sin. But hindering ˹others˺ from the Path of Allah, rejecting Him, and expelling the worshippers from the Sacred Mosque is ˹a˺ greater ˹sin˺ in the sight of Allah. For persecution is far worse than killing. __And they will NOT stop fighting you until they turn you away from your faith — if they can__. And whoever among you renounces their own faith and dies a disbeliever, their deeds will become void in this life and in the Hereafter. It is they who will be the residents of the Fire. They will be there forever.”
 
 ***
 
-
-* __Surah An-Naba 78/40 (Turaban)__: [إِنَّآ أَنذَرْنَـٰكُمْ عَذَابًۭا قَرِيبًۭا يَوْمَ يَنظُرُ ٱلْمَرْءُ مَا قَدَّمَتْ يَدَاهُ وَيَقُولُ ٱلْكَافِرُ يَـٰلَيْتَنِى كُنتُ تُرَٰبًۢا](https://quran.com/78/40)
-  * “I wish I were dust.”
 * __Surah Al-Anam 6/22__: [وَيَوْمَ نَحْشُرُهُمْ جَمِيعًۭا... ثُمَّ نَقُولُ لِلَّذِينَ أَشْرَكُوٓا۟ أَيْنَ شُرَكَآؤُكُمُ ...ٱلَّذِينَ كُنتُمْ تَزْعُمُونَ](https://quran.com/6/22)
 * __Surah Al-Anam 6/23 (وَٱللَّهِ رَبِّنَا مَا كُنَّا مُشْرِكِينَ)__: [ثُمَّ لَمْ تَكُن فِتْنَتُهُمْ إِلَّآ أَن قَالُوا۟... وَٱللَّهِ رَبِّنَا مَا كُنَّا مُشْرِكِينَ](https://quran.com/6/23)
 * __Surah Al-Anam 6/24__: [ٱنظُرْ كَيْفَ كَذَبُوا۟ عَلَىٰٓ أَنفُسِهِمْ ۚ وَضَلَّ عَنْهُم مَّا كَانُوا۟ يَفْتَرُونَ](https://quran.com/6/24)
@@ -24,7 +22,7 @@
 ***
 
 * __Surah Ar-Raad 13/18 (لَوْ أَنَّ لَهُم مَّا فِى ٱلْأَرْضِ جَمِيعًۭا وَمِثْلَهُۥ مَعَهُۥ لَٱفْتَدَوْا۟ بِهِ)__: [لِلَّذِينَ ٱسْتَجَابُوا۟ لِرَبِّهِمُ ٱلْحُسْنَىٰ ۚ... وَٱلَّذِينَ لَمْ يَسْتَجِيبُوا۟ لَهُۥ... لَوْ أَنَّ لَهُم مَّا فِى ٱلْأَرْضِ جَمِيعًۭا وَمِثْلَهُۥ مَعَهُۥ لَٱفْتَدَوْا۟ بِهِۦٓ ۚ... أُو۟لَـٰٓئِكَ لَهُمْ سُوٓءُ ٱلْحِسَابِ وَمَأْوَىٰهُمْ جَهَنَّمُ ۖ وَبِئْسَ ٱلْمِهَادُ](https://quran.com/13/18)
-* Even if they were to possess everything in the world twice over, they would certainly offer it to ransom themselves.
+  * Even if they were to possess everything in the world twice over, they would certainly offer it to ransom themselves.
 
 ***
 
@@ -34,4 +32,9 @@
 
 * __Surah Al-Ahqaf 46/35 (Stayed just an hour of day: لَمْ يَلْبَثُوٓا۟ إِلَّا سَاعَةًۭ مِّن نَّهَارٍۭ ۚ)__: [فَٱصْبِرْ كَمَا صَبَرَ أُو۟لُوا۟ ٱلْعَزْمِ مِنَ ٱلرُّسُلِ... وَلَا تَسْتَعْجِل لَّهُمْ ۚ... كَأَنَّهُمْ يَوْمَ يَرَوْنَ مَا يُوعَدُونَ... لَمْ يَلْبَثُوٓا۟ إِلَّا سَاعَةًۭ مِّن نَّهَارٍۭ ۚ بَلَـٰغٌۭ ۚ... فَهَلْ يُهْلَكُ إِلَّا ٱلْقَوْمُ ٱلْفَـٰسِقُونَ](https://quran.com/46/35)
 
+*** 
+
+* __Surah An-Naba 78/40 (Turaban)__: [إِنَّآ أَنذَرْنَـٰكُمْ عَذَابًۭا قَرِيبًۭا يَوْمَ يَنظُرُ ٱلْمَرْءُ مَا قَدَّمَتْ يَدَاهُ وَيَقُولُ ٱلْكَافِرُ يَـٰلَيْتَنِى كُنتُ تُرَٰبًۢا](https://quran.com/78/40)
+  * “I wish I were dust.”
+ 
 *** 

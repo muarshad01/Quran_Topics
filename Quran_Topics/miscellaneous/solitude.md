@@ -24,6 +24,7 @@
 ***
 
 #### [Ustad k bghair ruhani safar krnay walay or Allah say gosha krnay walay kon ha | Irfan-ul-Haq](https://www.youtube.com/watch?v=3sSCS15xg08)
+* Bahauddin Zakariya (Baha-ul-Haq) -- 1170 – 1262 was a student of Shihab al-Din 'Umar al-Suhrawardi
 
 ***
 

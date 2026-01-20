@@ -305,3 +305,5 @@ Silsila & Khilafat
 * Behrum Khan son `Khan-e-Khana`
   
 ***
+
+* Bahauddin Zakariya (Baha-ul-Haq) -- 1170 – 1262 was a student of Shihab al-Din 'Umar al-Suhrawardi

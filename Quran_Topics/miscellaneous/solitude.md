@@ -1,35 +1,26 @@
-#### SOLITUDE
+#### Solitude
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
+* Adopt __SILENCE__, your relationship with God will be established.
+* Insaan hamaisha-apni-__ZABAN__-kay-haathon panash-jata-hai
 * __THINK__ in SOLITUDE.
-* __FOCUS__ on `Ghor-o-Fikr`
-
-#### [If a man has no friends...very secure man!](https://www.youtube.com/shorts/K5OVHIBMinM)
-* Ibadah has 10 parts:
-1. 9 parts are silence
-2. 1 part is avoiding people
+* __FOCUS__ on Ghor-o-Fikr
+* __STOP__ giving advices. Do SELF-analysis!!!
+* Jumma Khutba Prophet Muhammad PBUH, was only 9-10 minutes long.
+  * All other things were demonstrated practically.
 
 ***
 
 #### [](https://www.youtube.com/shorts/3mKd3MZTvh4)
-
-***
-
-#### Quotes
-* Insaan hamaisha-apni-Zaban-kay-haathon panash-jata-hai
-* Khamooshi-ikhtayaar-karoo...Allah SWT say talaq qaim-hoo jaya-gaa.
-* Prophet PBUH, Juma Khutba was only 9-10 minutes; All other things were demonstrated practically.
-* __STOP giving advices. Do self-analysis!!!__
+* Ibadah has 10 parts:
+1. 9-parts are silence
+2. 1-part is avoiding people
 
 ***
 
 #### [Let No One See Your Inner Self | Teachings of Hazrat Yaqoob Ali Shah (R.A.) | SSA Shah](https://www.youtube.com/watch?v=WJMuxErnyEc)
 * I mistakenly picked-up his Tasbeeh and started to play with it...
-* Kya tum-yeah-chahatay-hoo-kay ... loag-tumhayn naik-samajh-kar Salaam-karayn.
+* Kya tum-yeah-chahatay-hoo-kay, loag-tumhayn naik-samajh-kar Salaam-karayn.
   
-***
-
-#### [Why God is alone, but he forced men to live in societies | Professor ARA](https://www.youtube.com/watch?v=R_P9BAf0UZ0)
-
 ***
 
 #### [Ustad k bghair ruhani safar krnay walay or Allah say gosha krnay walay kon ha | Irfan-ul-Haq](https://www.youtube.com/watch?v=3sSCS15xg08)
@@ -45,14 +36,33 @@
 
 ***
 
-#### [The Power of Silence | Wasif Ali Wasif](https://www.youtube.com/watch?v=bdgEz2qZgbk)
+#### [Why God is alone, but he forced men to live in societies | Prof ARA](https://www.youtube.com/watch?v=R_P9BAf0UZ0)
 
+***
+
+#### [The Power of Silence | Wasif Ali Wasif](https://www.youtube.com/watch?v=bdgEz2qZgbk)
+* Khamooshi aki ruhani-riazat hai.
+* Khamooshi is musr for rohani-taraqi.
 ***
 
 #### [Benefits Of Silence | Wasif Ali Wasif](https://www.youtube.com/watch?v=Yv2tVe3JTs4)
-
+* Khamooshi zaban-ka roza-hai.
+* Khamooshi ilm hai.
+* Aqal ko mazboot karti-hai.
+* Khamoosh rah jao, waqat sab-ko jawab deh-deeta-hai.
+#### 4-times when to remain silent:
+1. While in Anger
+2. At time of Argument
+3. When there is no one to understand
+4. When you tongue can break someone's heart
+* Khamooshi taqat hai.
 ***
 
 #### [The power of silence](https://www.youtube.com/shorts/IB_ZfXiZkxw)
+* Sabr, Khamooshi, aur La-talaqui is best revenge.
+* Loagon ko apni khamooshi say darao.
+***
+
+#### [If a man has NO friends...very SECURE man!](https://www.youtube.com/shorts/K5OVHIBMinM)
 
 ***

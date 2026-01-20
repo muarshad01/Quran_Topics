@@ -347,3 +347,5 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Ya Khabeeru | 812 time after Isha | 7 days](https://www.youtube.com/shorts/VqdcvVmNkKo)
 
 ***
+
+#### [23 Saal Ghar Par Jadu ! | Mere Saray Ghar Walay Maar Diye ! | Murday Nazar Atay Hain | Aik Programs](https://www.youtube.com/watch?v=FSgkpHVzju4)

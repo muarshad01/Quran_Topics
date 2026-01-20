@@ -50,7 +50,7 @@
   * Saree-ul-Aqlam
   * Arsha-e-Muala
    
-* Salat-e-Tasbeeh
+* Salat-e-Tasbeeh:
 * __Surah Al-Isra 17__: [](https://quran.com/17)
 * __Surah An-Najam 53__: [](https://quran.com/53)
 * Darood Sharif (300, 3k, 10k, 25k, 70k, 125k)
@@ -59,4 +59,8 @@
 
 ***
 
-### [Isra Wal Miraj](https://www.youtube.com/shorts/uw2pQdoJ2rQ)
+#### [Isra Wal Miraj](https://www.youtube.com/shorts/uw2pQdoJ2rQ)
+
+***
+
+#### [Shab-e-Miraj Ki Khusosi Ibadat Aur Fazila | Prof Abdullah Bhatti](https://www.youtube.com/shorts/lmIE4RYnjTk)

@@ -27,6 +27,10 @@
 * __Surah An-Naml 27/16__: [And David was succeeded by Solomon, who said, “O people! We have been taught the language of birds, and been given everything ˹we need˺. This is indeed a great privilege.”](https://quranwbw.com/27/16)
 * __Surah An-Naml 27/17__: [Solomon’s forces of jinn, humans, and birds were rallied for him, perfectly organized.](https://quranwbw.com/27/17)
 * __Surah An-Naml 27/18__: [And when they came across a valley of ants, an ant warned, “O ants! Go quickly into your homes so Solomon and his armies do not crush you, unknowingly.”](https://quranwbw.com/27/18)
+
+* __Surah An-Naml 27/19 (King Solomon...Thankfulness)__: [فَتَبَسَّمَ ضَاحِكًۭا مِّن قَوْلِهَا... وَقَالَ ...رَبِّ أَوْزِعْنِىٓ ...أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ ...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ... وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
+
+
 * __Surah An-Naml 27/30__: [It is from Solomon, and it reads: ‘In the Name of Allah—the Most Compassionate, Most Merciful.](https://quranwbw.com/27/30)
 * __Surah An-Naml 27/36__: [When the chief-envoy came to him, Solomon said, “Do you offer me wealth? What Allah has granted me is far greater than what He has granted you. No! It is you who rejoice in ˹receiving˺ gifts.](https://quranwbw.com/27/36)
 * __Surah An-Naml 27/44__: [Then she was told, “Enter the palace.” But when she saw the hall, she thought it was a body of water, so she bared her legs. Solomon said. “It is just a palace paved with crystal.” ˹At last˺ she declared, “My Lord! I have certainly wronged my soul. Now I ˹fully˺ submit myself along with Solomon to Allah, the Lord of all worlds.”](https://quranwbw.com/27/44)

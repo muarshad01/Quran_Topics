@@ -1,7 +1,9 @@
 #### [Why Fasting in Shaban Is Special | ماہِ شعبان کی عبادت کی فضیلت | SSA Shah](https://www.youtube.com/watch?v=rx7FUT_FEKU)
-* First, middle, and last Roza.
-* Beyond call of duty: Medal is awarded.
-* Rohaniyat: Momin ka Medal
+* One Shaban Roza is equal to 10 Rozas.
+* First, middle, and last day of Shaban Roza.
+#### Beyond call of duty
+* Medal is awarded.
+* __Rohaniyat__: Momin ka Medal
 
 ***
 

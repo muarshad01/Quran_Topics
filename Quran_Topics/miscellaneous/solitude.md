@@ -67,3 +67,5 @@
 #### [If a man has NO friends...very SECURE man!](https://www.youtube.com/shorts/K5OVHIBMinM)
 
 ***
+
+#### [Hazrat Ali (R.A) Wisdom | Why Wise People Love Solitude | Nida-e-Haq](https://www.youtube.com/watch?v=HB3DWJvmUP0)

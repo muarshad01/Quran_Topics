@@ -6,3 +6,7 @@
 * __ROHANIYAT__ mayn harr-city-ka aik HAKIM-hota-hai
 
 ***
+
+#### [The Right Way to Meet a Faqeer | فقیر سے ملنے کے آداب | SSA Shah](https://www.youtube.com/watch?v=U6-Gh3UO96Q)
+
+***

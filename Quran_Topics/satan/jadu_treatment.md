@@ -2,11 +2,11 @@
 * __Surah Ale-Imran 3/173__: [حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
 * __Surah Al-Anfal 8/30__: [وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/8/30)
 * __Surah Yunus 10/77__: [وَلَا يُفْلِحُ ٱلسَّـٰحِرُونَ](https://quran.com/10/77)
-* __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
+* __Surah Yunus 10/81__: [إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ... إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
 * __Surah Yunus 10/85-86__: [فَقَالُوا۟ عَلَى ٱللَّهِ تَوَكَّلْنَا رَبَّنَا لَا تَجْعَلْنَا فِتْنَةًۭ لِّلْقَوْمِ ٱلظَّـٰلِمِينَ.....وَنَجِّنَا بِرَحْمَتِكَ مِنَ ٱلْقَوْمِ ٱلْكَـٰفِرِينَ](https://quran.com/10/85-86)
      * [Surah Yunus 85-86](https://www.youtube.com/shorts/O-Qch76R4pc)
 * __Surah Taha 20/68__: [قُلْنَا لَا تَخَفْ إِنَّكَ أَنتَ ٱلْأَعْلَىٰ](https://quran.com/20/68) 
-* __Surah Taha 20/69__: [وَأَلْقِ مَا فِى يَمِينِكَ تَلْقَفْ مَا صَنَعُوٓا۟ ۖ إِنَّمَا صَنَعُوا۟ كَيْدُ سَـٰحِرٍۢ ۖ وَلَا يُفْلِحُ ٱلسَّاحِرُ حَيْثُ أَتَىٰ](https://quran.com/20/69)
+* __Surah Taha 20/69__: [وَأَلْقِ مَا فِى يَمِينِكَ تَلْقَفْ مَا صَنَعُوٓا۟ ۖ إِنَّمَا صَنَعُوا۟ كَيْدُ سَـٰحِرٍۢ ۖ... وَلَا يُفْلِحُ ٱلسَّاحِرُ حَيْثُ أَتَىٰ](https://quran.com/20/69)
 * __Surah Al-Qamar 54/10__: [فَدَعَا رَبَّهُۥٓ أَنِّى مَغْلُوبٌۭ فَٱنتَصِرْ](https://quran.com/54/10)
 * __Dua__: [اَللّٰهُمَّ إنَّا نَجْعَلُكَ فِيْ نُحُوْرِهِمْ وَنَعُوذُ بِكَ مِنْ شُرُورِهِمْ][“O Allah, we make You our shield against them, and take refuge in You from their evils.”]
 
@@ -348,4 +348,13 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
-#### [23 Saal Ghar Par Jadu ! | Mere Saray Ghar Walay Maar Diye ! | Murday Nazar Atay Hain | Aik Programs](https://www.youtube.com/watch?v=FSgkpHVzju4)
+#### [23 Saal Ghar Par Jadu ! | Mere Saray Ghar Walay Maar Diye ! | Murday Nazar Atay Hain | Aik Programs](https://www.youtube.com/watch?v=O_P1_aEbN_A)
+* __For Shaadi__: Offer two Rakat Nafals and recite (3, 11, or 21 times):
+1. __Surah Al-Qasas 28/24 (رَبِّ إِنِّى لِمَآ أَنزَلْتَ إِلَىَّ مِنْ خَيْرٍۢ فَقِيرٌۭ)__: [فَسَقَىٰ لَهُمَا ثُمَّ تَوَلَّىٰٓ إِلَى ٱلظِّلِّ فَقَالَ رَبِّ إِنِّى لِمَآ أَنزَلْتَ إِلَىَّ مِنْ خَيْرٍۢ فَقِيرٌۭ](https://quran.com/28/24)
+2. __Surah Al-Furqan 25/74__: [وَٱلَّذِينَ يَقُولُونَ ...رَبَّنَا هَبْ لَنَا مِنْ أَزْوَٰجِنَا وَذُرِّيَّـٰتِنَا قُرَّةَ أَعْيُنٍۢ... وَٱجْعَلْنَا لِلْمُتَّقِينَ إِمَامًا](https://quran.com/25/74)
+* __Sickness__
+* __Surah Al-Anbya 21/83__: [۞ وَأَيُّوبَ إِذْ نَادَىٰ رَبَّهُۥٓ أَنِّى مَسَّنِىَ ٱلضُّرُّ وَأَنتَ أَرْحَمُ ٱلرَّٰحِمِينَ](https://quran.com/21/83)
+* __Dreams__
+* Saqdah Jaria
+
+***

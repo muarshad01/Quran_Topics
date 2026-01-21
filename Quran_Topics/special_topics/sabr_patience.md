@@ -67,11 +67,11 @@ And so are Badr and Hunayn in the battle of existence.
 
 ***
 
-* __Surah An-Naml [Ant] 27/19 (King Solomon...Thankfulness)__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
+* __Surah An-Naml 27/19 (Solomon AS: أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ)__: [فَتَبَسَّمَ ضَاحِكًۭا مِّن قَوْلِهَا... وَقَالَ ...رَبِّ أَوْزِعْنِىٓ ...أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ ...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ... وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 
-* __Surah Al-Ahzzab [The Clans] 33/35__: [Surely ˹for˺ Muslim men and women, believing men and women,1 devout men and women, truthful men and women, patient men and women, humble men and women, charitable men and women, fasting men and women, men and women who guard their chastity, and men and women who remember Allah often—for ˹all of˺ them Allah has prepared forgiveness and a great reward.](https://quranwbw.com/33/35)
+* __Surah Al-Ahzab 33/35 (أَعَدَّ ٱللَّهُ لَهُم مَّغْفِرَةًۭ وَأَجْرًا عَظِيمًۭا)__: [إِنَّ ٱلْمُسْلِمِينَ وَٱلْمُسْلِمَـٰتِ... وَٱلْمُؤْمِنِينَ وَٱلْمُؤْمِنَـٰتِ... وَٱلْقَـٰنِتِينَ وَٱلْقَـٰنِتَـٰتِ ...وَٱلصَّـٰدِقِينَ وَٱلصَّـٰدِقَـٰتِ... وَٱلصَّـٰبِرِينَ وَٱلصَّـٰبِرَٰتِ... وَٱلْخَـٰشِعِينَ وَٱلْخَـٰشِعَـٰتِ ...وَٱلْمُتَصَدِّقِينَ وَٱلْمُتَصَدِّقَـٰتِ... وَٱلصَّـٰٓئِمِينَ وَٱلصَّـٰٓئِمَـٰتِ... وَٱلْحَـٰفِظِينَ فُرُوجَهُمْ وَٱلْحَـٰفِظَـٰتِ... وَٱلذَّٰكِرِينَ ٱللَّهَ كَثِيرًۭا وَٱلذَّٰكِرَٰتِ... أَعَدَّ ٱللَّهُ لَهُم مَّغْفِرَةًۭ وَأَجْرًا عَظِيمًۭا](https://quran.com/33/35)
 
-* __Surah Az-Zumar [The Groups] 39/9__: [[If you disbelieve, then ˹know that˺ Allah is truly not in need of you, nor does He approve of disbelief from His servants. But if you become grateful ˹through faith˺, He will appreciate that from you. No soul burdened with sin will bear the burden of another. Then to your Lord is your return, and He will inform you of what you used to do. He certainly knows best what is ˹hidden˺ in the heart.](https://quranwbw.com/39/7)]
+* __Surah Az-Zumar [The Groups] 39/9__: [إِن تَكْفُرُوا۟.. فَإِنَّ ٱللَّهَ غَنِىٌّ عَنكُمْ ۖ... وَلَا يَرْضَىٰ لِعِبَادِهِ ٱلْكُفْرَ ۖ... وَإِن تَشْكُرُوا۟... يَرْضَهُ لَكُمْ ۗ... وَلَا تَزِرُ وَازِرَةٌۭ وِزْرَ أُخْرَىٰ ۗ... ثُمَّ إِلَىٰ رَبِّكُم مَّرْجِعُكُمْ... فَيُنَبِّئُكُم بِمَا كُنتُمْ تَعْمَلُونَ ۚ... إِنَّهُۥ عَلِيمٌۢ بِذَاتِ ٱلصُّدُورِ](https://quran.com/39/7)
 
 * __Surah Al-Ghafir 40/55 (وَٱسْتَغْفِرْ لِذَنۢبِكَ ...وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ)__: [فَٱصْبِرْ... إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ ...وَٱسْتَغْفِرْ لِذَنۢبِكَ ...وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
 

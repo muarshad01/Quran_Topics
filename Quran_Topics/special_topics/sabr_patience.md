@@ -73,20 +73,21 @@ And so are Badr and Hunayn in the battle of existence.
 
 * __Surah Az-Zumar [The Groups] 39/9__: [[If you disbelieve, then ˹know that˺ Allah is truly not in need of you, nor does He approve of disbelief from His servants. But if you become grateful ˹through faith˺, He will appreciate that from you. No soul burdened with sin will bear the burden of another. Then to your Lord is your return, and He will inform you of what you used to do. He certainly knows best what is ˹hidden˺ in the heart.](https://quranwbw.com/39/7)]
 
-* __Surah Ghafir 40/55__: [فَٱصْبِرْ إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ وَٱسْتَغْفِرْ لِذَنۢبِكَ وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
+* __Surah Al-Ghafir 40/55 (وَٱسْتَغْفِرْ لِذَنۢبِكَ ...وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ)__: [فَٱصْبِرْ... إِنَّ وَعْدَ ٱللَّهِ حَقٌّۭ ...وَٱسْتَغْفِرْ لِذَنۢبِكَ ...وَسَبِّحْ بِحَمْدِ رَبِّكَ بِٱلْعَشِىِّ وَٱلْإِبْكَـٰرِ](https://quranwbw.com/40/55)
 
-* __Surah Fussilat [Explained in Detail] 41/35 (Truly fortunate...)__: [But this cannot be attained except by those who are patient and who are truly fortunate.](https://quranwbw.com/41/35)
+* __Surah Fussilat 41/35 (Truly fortunate: يُلَقَّىٰهَآ إِلَّا ذُو حَظٍّ عَظِيمٍۢ)__: [وَمَا يُلَقَّىٰهَآ... إِلَّا ٱلَّذِينَ صَبَرُوا۟... وَمَا يُلَقَّىٰهَآ... إِلَّا ذُو حَظٍّ عَظِيمٍۢ](https://quran.com/41/35)
 
 * __Surah At-Tur 52/48 (Be patient with your Lord’s decree)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
 
 * __Surah Al-Qalam [Nun] 68/48__: [So be patient with your Lord’s decree, and do not be like ˹Jonah,˺ the Man of the Whale, who cried out ˹to Allah˺, in total distress.](https://quranwbw.com/68/48)
     * He didn't waited for Allah SWT order...(He left the city...)
 
-* __Surah Al-Qalam [Nun] 68/51-52__: [(51) The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” (52) But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+* __Surah Al-Qalam 68/51__: [وَإِن... يَكَادُ ...ٱلَّذِينَ كَفَرُوا۟... لَيُزْلِقُونَكَ بِأَبْصَـٰرِهِمْ... لَمَّا سَمِعُوا۟ ٱلذِّكْرَ ...وَيَقُولُونَ إِنَّهُۥ لَمَجْنُونٌۭ](https://quran.com/68/51)
+* __Surah Al-Qalam 68/52__: [وَمَا... هُوَ ...إِلَّا ذِكْرٌۭ لِّلْعَـٰلَمِينَ](https://quran.com/68/52)
+ 
+* __Surah Al-Maarij 70/19 (Impatient: هَلُوعًا)__: [إِنَّ ٱلْإِنسَـٰنَ خُلِقَ... هَلُوعًا](https://quran.com/70/19)
 
-* __Surah Al-Maarij 70/19 (Impatient)__: [۞ إِنَّ ٱلْإِنسَـٰنَ خُلِقَ هَلُوعًا](https://quran.com/70/19)
-
-* __Surah Al-Asr 103/3 (Urge/Enjoin Sabr)__: [except those who have faith, do good, and urge each other to the truth, and urge each other to perseverance.](https://quranwbw.com/103/3)
+* __Surah Al-Asr 103/3 (Urge/Enjoin Sabr: وَتَوَاصَوْا۟ بِٱلْحَقِّ وَتَوَاصَوْا۟ بِٱلصَّبْرِ)__: [إِلَّا ٱلَّذِينَ... ءَامَنُوا۟ ...وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ... وَتَوَاصَوْا۟ بِٱلْحَقِّ وَتَوَاصَوْا۟ بِٱلصَّبْرِ](https://quran.com/103/3)
 
 ***
 

@@ -92,7 +92,7 @@ And so are Badr and Hunayn in the battle of existence.
 ***
 
 ## Prophet Muhammad PBUH Sabr 
-* Dawat-e-Haq: Sadiq & Ameen
+* __Dawat-e-Haq__: Sadiq & Ameen
 * Aankhon ka taara
 
 #### Majnoon (Pagal)
@@ -107,7 +107,7 @@ And so are Badr and Hunayn in the battle of existence.
 * __Surah At-Takwir 81/22 (Majnoon)__: [وَمَا صَاحِبُكُم بِمَجْنُونٍۢ](https://quran.com/81/22)
 
 #### Poet (Sahir) 
-* __Surah Ya-Sin 36/69 (Poet/Poetry)__: [We have not taught him poetry, nor is it fitting for him. This ˹Book˺ is only a Reminder and a clear Quran](https://quranwbw.com/36/69)
+* __Surah Ya-Sin 36/69 (Poet/Poetry)__: [وَمَا عَلَّمْنَـٰهُ ٱلشِّعْرَ... وَمَا يَنۢبَغِى لَهُۥٓ ۚ... إِنْ هُوَ... إِلَّا ذِكْرٌۭ وَقُرْءَانٌۭ مُّبِينٌۭ](https://quran.com/36/69)
 
 ### Your heart is Distressed...
 * __Surah Al-Hijr [The Rock] 15/97 (Heart is Distressed)__: [We certainly know that your heart is truly distressed by what they say.](https://www.quranwbw.com/15/97)

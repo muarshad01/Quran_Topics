@@ -38,5 +38,12 @@
 ***
 
 #### [Jinon aur insano ki aksariyat jahanmi hy | جنوں اور انسانوں کی اکثریت جہنمی ہے | Allama Talib Johri](https://www.youtube.com/watch?v=8AI69dn9QxA)
+* __Surah Al-Araf 7/179__: [وَلَقَدْ ذَرَأْنَا لِجَهَنَّمَ كَثِيرًۭا مِّنَ ٱلْجِنِّ وَٱلْإِنسِ ۖ لَهُمْ قُلُوبٌۭ لَّا يَفْقَهُونَ بِهَا وَلَهُمْ أَعْيُنٌۭ لَّا يُبْصِرُونَ بِهَا وَلَهُمْ ءَاذَانٌۭ لَّا يَسْمَعُونَ بِهَآ ۚ أُو۟لَـٰٓئِكَ كَٱلْأَنْعَـٰمِ بَلْ هُمْ أَضَلُّ ۚ أُو۟لَـٰٓئِكَ هُمُ ٱلْغَـٰفِلُونَ](https://quran.com/7/179)
+* Indeed, We have destined many jinn and humans for Hell.
+1. They have hearts they do not understand with,
+2. eyes they do not see with,
+3. and ears they do not hear with.
+4. They are like cattle.
+5. In fact, they are even less guided! Such ˹people˺ are ˹entirely˺ heedless.
 
 ***

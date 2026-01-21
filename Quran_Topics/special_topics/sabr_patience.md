@@ -96,14 +96,15 @@ And so are Badr and Hunayn in the battle of existence.
 * Aankhon ka taara
 
 #### Majnoon (Pagal)
-* __Surah Al-Hijr [The Rock] 15/6 (Majnoon)__: [They say, “O you to whom the Reminder is revealed! You must be insane!](https://quranwbw.com/15/6)
-   * Aay wo shakash, jis ka khayal hay kay us par koi zikr nazil ho raha hay, hamaray khyal mayn tumhara damagh kharab ho gaya hai
+* __Surah Al-Hijr15/6 (Majnoon: إِنَّكَ لَمَجْنُونٌۭ)__: [وَقَالُوا۟ يَـٰٓأَيُّهَا ٱلَّذِى نُزِّلَ عَلَيْهِ ٱلذِّكْرُ ...إِنَّكَ لَمَجْنُونٌۭ](https://quran.com/15/6)
+  * Aay wo shakash, jis-ka khayal-hay-kay us par koi-zikr nazil-ho raha-hay, hamaray-khyal-mayn tumhara-damagh kharab ho-gaya-hai
 
-* __Surah Al-Qalam 68/1-7 (Not Majnoon; A man of outstanding character; Never ending reward!)__: [(1) Nũn. By the pen and what everyone writes! (2) By the grace of your Lord, you ˹O Prophet˺ are not insane. (3) You will certainly have a never-ending reward. (4) And you are truly ˹a man˺ of outstanding character. (5) Soon you and the pagans will see. (6) which of you is mad. (7) Surely your Lord ˹alone˺ knows best who has strayed from His Way and who is ˹rightly˺ guided.](https://quranwbw.com/68/1-7)
+* __Surah Al-Qalam 68/1__: [(2) نٓ ۚ وَٱلْقَلَمِ وَمَا يَسْطُرُونَ (1) مَآ أَنتَ بِنِعْمَةِ رَبِّكَ بِمَجْنُونٍۢ  (3) وَإِنَّ لَكَ لَأَجْرًا غَيْرَ مَمْنُونٍۢ (4) وَإِنَّكَ لَعَلَىٰ خُلُقٍ عَظِيمٍۢ (5) فَسَتُبْصِرُ وَيُبْصِرُونَ (6) بِأَييِّكُمُ ٱلْمَفْتُونُ  (7) إِنَّ رَبَّكَ هُوَ أَعْلَمُ بِمَن ضَلَّ عَن سَبِيلِهِۦ وَهُوَ أَعْلَمُ بِٱلْمُهْتَدِينَ](https://quran.com/68/1-7)
 
-* __Surah Al-Qalam 68/51-52 (Majnoon)__: [(51) The disbelievers would almost cut you down with their eyes when they hear ˹you recite˺ the Reminder, and say, “He is certainly a madman.” But it is simply a reminder to the whole world. (52) But it is simply a reminder to the whole world.](https://quranwbw.com/68/51-52)
+* __Surah Al-Qalam 68/51 (Majnoon)__: [وَإِن... يَكَادُ ...ٱلَّذِينَ كَفَرُوا۟... لَيُزْلِقُونَكَ بِأَبْصَـٰرِهِمْ... لَمَّا سَمِعُوا۟ ٱلذِّكْرَ ...وَيَقُولُونَ إِنَّهُۥ لَمَجْنُونٌۭ](https://quran.com/68/51)
+* __Surah Al-Qalam 68/52__: [وَمَا... هُوَ ...إِلَّا ذِكْرٌۭ لِّلْعَـٰلَمِينَ](https://quran.com/68/52)
 
-* __Surah At-Takwir [The overthrowing] 81/22 (Majnoon)__: [And your fellow man1 is not insane.](https://quranwbw.com/81/22)
+* __Surah At-Takwir 81/22 (Majnoon)__: [وَمَا صَاحِبُكُم بِمَجْنُونٍۢ](https://quran.com/81/22)
 
 #### Poet (Sahir) 
 * __Surah Ya-Sin 36/69 (Poet/Poetry)__: [We have not taught him poetry, nor is it fitting for him. This ˹Book˺ is only a Reminder and a clear Quran](https://quranwbw.com/36/69)

@@ -36,3 +36,6 @@
 * __Surah Al-Hashr 59/21-24__: [](https://quran.com/59/21-24)
 
 ***
+
+
+* __Surah Al-Muddaththir 74/30__: [عَلَيْهَا تِسْعَةَ عَشَرَ](https://quran.com/74/30)

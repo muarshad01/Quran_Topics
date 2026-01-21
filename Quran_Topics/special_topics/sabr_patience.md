@@ -77,10 +77,10 @@ And so are Badr and Hunayn in the battle of existence.
 
 * __Surah Fussilat 41/35 (Truly fortunate: يُلَقَّىٰهَآ إِلَّا ذُو حَظٍّ عَظِيمٍۢ)__: [وَمَا يُلَقَّىٰهَآ... إِلَّا ٱلَّذِينَ صَبَرُوا۟... وَمَا يُلَقَّىٰهَآ... إِلَّا ذُو حَظٍّ عَظِيمٍۢ](https://quran.com/41/35)
 
-* __Surah At-Tur 52/48 (Be patient with your Lord’s decree)__: [So be patient with your Lord’s decree, for you are truly under Our ˹watchful˺ Eyes. And glorify the praises of your Lord when you rise.](https://quranwbw.com/52/48)
+* __Surah At-Tur 52/48 (وَٱصْبِرْ لِحُكْمِ رَبِّكَ... فَإِنَّكَ بِأَعْيُنِنَا)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ... فَإِنَّكَ بِأَعْيُنِنَا ۖ... وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ](https://quran.com/52/48)
 
-* __Surah Al-Qalam [Nun] 68/48__: [So be patient with your Lord’s decree, and do not be like ˹Jonah,˺ the Man of the Whale, who cried out ˹to Allah˺, in total distress.](https://quranwbw.com/68/48)
-    * He didn't waited for Allah SWT order...(He left the city...)
+* __Surah Al-Qalam 68/48 (فَٱصْبِرْ لِحُكْمِ رَبِّكَ ...وَلَا تَكُن كَصَاحِبِ ٱلْحُوتِ)__: [فَٱصْبِرْ لِحُكْمِ رَبِّكَ ...وَلَا تَكُن كَصَاحِبِ ٱلْحُوتِ... إِذْ نَادَىٰ ...وَهُوَ مَكْظُومٌۭ](https://quran.com/68/48)
+  * He didn't waited for Allah SWT order...(He left the city...!)
 
 * __Surah Al-Qalam 68/51__: [وَإِن... يَكَادُ ...ٱلَّذِينَ كَفَرُوا۟... لَيُزْلِقُونَكَ بِأَبْصَـٰرِهِمْ... لَمَّا سَمِعُوا۟ ٱلذِّكْرَ ...وَيَقُولُونَ إِنَّهُۥ لَمَجْنُونٌۭ](https://quran.com/68/51)
 * __Surah Al-Qalam 68/52__: [وَمَا... هُوَ ...إِلَّا ذِكْرٌۭ لِّلْعَـٰلَمِينَ](https://quran.com/68/52)

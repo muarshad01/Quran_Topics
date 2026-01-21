@@ -1,4 +1,7 @@
+
 ## Sabr (Patience)
+
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/sabr.png" width="300" height="300" />
 
 ```
 Sidq-e-Khalil (AS) Bhi Hai Ishq, Sabr-e-Hussain(RA) Bhi Hai Ishq

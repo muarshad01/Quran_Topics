@@ -18,16 +18,17 @@ And so are Badr and Hunayn in the battle of existence.
 * All Prophets and Messengers...
 * Fasting (Sabr): The Prophet Muhammad ﷺ said, "Allah says: 'Fasting is for Me and I shall reward for it'"
 * Hanuman Temple: People go to ask for son... (They lost their Imann due to being Impatient!!!) 
-* __Surah Ash-Shuraa 42/49__: [لِّلَّهِ مُلْكُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ يَخْلُقُ مَا يَشَآءُ ۚ يَهَبُ لِمَن يَشَآءُ إِنَـٰثًۭا وَيَهَبُ لِمَن يَشَآءُ ٱلذُّكُورَ](https://quran.com/42/49)
-* __Surah Ash-Shuraa 42/50__: [أَوْ يُزَوِّجُهُمْ ذُكْرَانًۭا وَإِنَـٰثًۭا ۖ وَيَجْعَلُ مَن يَشَآءُ عَقِيمًا ۚ إِنَّهُۥ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/42/50)
+* __Surah Ash-Shuraa 42/49__: [لِّلَّهِ مُلْكُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ... يَخْلُقُ مَا يَشَآءُ ۚ... يَهَبُ لِمَن يَشَآءُ إِنَـٰثًۭا... وَيَهَبُ لِمَن يَشَآءُ ٱلذُّكُورَ](https://quran.com/42/49)
+* __Surah Ash-Shuraa 42/50__: [أَوْ يُزَوِّجُهُمْ ذُكْرَانًۭا وَإِنَـٰثًۭا ۖ... وَيَجْعَلُ مَن يَشَآءُ عَقِيمًا ۚ... إِنَّهُۥ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/42/50)
 
 ***
 
-#### [Sabr Tum Khud Nahi Kar Sakte | Allah Ki Madad Ke Baghair Sabr Namumkin Hai | Irfan ul Haq](https://www.youtube.com/watch?v=ZTyWeL7bRLA)
+#### [Sabr Tum Khud Nahi Kar Sakte | Allah Ki Madad Ke Baghair Sabr Namumkin Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=ZTyWeL7bRLA)
 * Maryam AS Sabr
 * Hajra AS Sabr
-* Hussain AS (ALL trials memtioned in Quran passed on Hussain AS in one day)
-* __Surah 22/34-35__: [...](https://quran.com/22/34-35)
+* Hussain AS (ALL trials memtioned in Quran passed on Hussain AS in one day!!)
+* __Surah Al-Hajj 22/34__: [وَلِكُلِّ أُمَّةٍۢ جَعَلْنَا مَنسَكًۭا... لِّيَذْكُرُوا۟ ٱسْمَ ٱللَّهِ عَلَىٰ مَا رَزَقَهُم مِّنۢ بَهِيمَةِ ٱلْأَنْعَـٰمِ ۗ... فَإِلَـٰهُكُمْ إِلَـٰهٌۭ وَٰحِدٌۭ... فَلَهُۥٓ أَسْلِمُوا۟ ۗ... وَبَشِّرِ ٱلْمُخْبِتِينَ](https://quran.com/22/34)
+* __Surah Al-Hajj 22/35__: [ٱلَّذِينَ إِذَا ذُكِرَ ٱللَّهُ... وَجِلَتْ قُلُوبُهُمْ ...وَٱلصَّـٰبِرِينَ عَلَىٰ مَآ أَصَابَهُمْ ...وَٱلْمُقِيمِى ٱلصَّلَوٰةِ... وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/22/35)
 
 ***
 
@@ -50,17 +51,23 @@ And so are Badr and Hunayn in the battle of existence.
 
 * __Surah Al-Baqarah 2/177 (Righteousness & Charity)__: [Righteousness is not in turning your faces towards the east or the west. Rather, the righteous are those who believe in Allah, the Last Day, the angels, the Books, and the prophets; who give charity out of their cherished wealth to relatives, orphans, the poor, ˹needy˺ travellers, beggars, and for freeing captives; who establish prayer, pay alms-tax, and keep the pledges they make; and who are patient in times of suffering, adversity, and in ˹the heat of˺ battle. It is they who are true ˹in faith˺, and it is they who are mindful ˹of Allah˺.](https://quranwbw.com/2/177)
 
+***
+
 * __Surah Ale-i-Imran 3/200 (Patiently endure, persevere, stand on guard)__: [O believers! Patiently endure, persevere, stand on guard,1 and be mindful of Allah, so you may be successful.](https://quranwbw.com/3/200)
 
 * __Surah Ibrahim 14/7__: [And ˹remember˺ when your Lord proclaimed, ‘If you are grateful, I will certainly give you more. But if you are ungrateful, surely My punishment is severe.’”](https://quranwbw.com/14/7)
 
  * __Surah An-Nalh 16/127 (Don't be in distress)__: [Be patient ˹O Prophet˺, for your patience is only with Allah’s help. Do not grieve over those ˹who disbelieve˺, nor be distressed by their schemes.](https://quranwbw.com/16/127)
 
+***
+
 * __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quranwbw.com/18/28)
  
 * __Surah Al-Kahf 18/68__: [And how can you be patient with what is beyond your ˹realm of˺ knowledge?”](https://quranwbw.com/18/68)
 
 * __Surah Al-Kahf 18/78 (Impatient)__: [قَالَ هَـٰذَا فِرَاقُ بَيْنِى وَبَيْنِكَ ۚ سَأُنَبِّئُكَ بِتَأْوِيلِ مَا لَمْ تَسْتَطِع عَّلَيْهِ صَبْرًا](https://quran.com/18/78)
+
+***
 
 * __Surah An-Naml [Ant] 27/19 (King Solomon...Thankfulness)__: [So Solomon smiled in amusement at her words, and prayed, “My Lord! Inspire me to ˹always˺ be thankful for Your favours which You have blessed me and my parents with, and to do good deeds that please you. Admit me, by Your mercy, into ˹the company of˺ Your righteous servants.”](https://quranwbw.com/27/19)
 

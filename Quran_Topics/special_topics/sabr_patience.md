@@ -109,21 +109,18 @@ And so are Badr and Hunayn in the battle of existence.
 #### Poet (Sahir) 
 * __Surah Ya-Sin 36/69 (Poet/Poetry)__: [وَمَا عَلَّمْنَـٰهُ ٱلشِّعْرَ... وَمَا يَنۢبَغِى لَهُۥٓ ۚ... إِنْ هُوَ... إِلَّا ذِكْرٌۭ وَقُرْءَانٌۭ مُّبِينٌۭ](https://quran.com/36/69)
 
-### Your heart is Distressed...
-* __Surah Al-Hijr [The Rock] 15/97 (Heart is Distressed)__: [We certainly know that your heart is truly distressed by what they say.](https://www.quranwbw.com/15/97)
-   * [It is overseen by nineteen ˹keepers˺.](https://quranwbw.com/74/30)
+* __Surah Al-Hijr 15/97 (Heart is Distressed: أَنَّكَ يَضِيقُ صَدْرُكَ)__: [وَلَقَدْ نَعْلَمُ... أَنَّكَ يَضِيقُ صَدْرُكَ ...بِمَا يَقُولُونَ](https://www.quran.com/15/97)
+* __Surah Al-Muddaththir 74/30__: [عَلَيْهَا تِسْعَةَ عَشَرَ](https://quran.com/74/30)
 
-* __Surah Al-Muzzamil 73/10 (Depart Courteously...)__: [Be patient ˹O Prophet˺ with what they say, and depart from them courteously.](https://quranwbw.com/73/10)
+* __Surah Al-Muzzamil 73/10 (وَٱهْجُرْهُمْ ...هَجْرًۭا جَمِيلًۭ)__: [وَٱصْبِرْ... عَلَىٰ مَا يَقُولُونَ... وَٱهْجُرْهُمْ ...هَجْرًۭا جَمِيلًۭا](https://quran.com/73/10)
 
-* __Surah As-Saf 61/8 (Allah SWT will Perfect His light)__: [They wish to extinguish Allah’s light with their mouths, but Allah will ˹certainly˺ perfect His light, even to the dismay of the disbelievers.](https://quranwbw.com/61/8)
+* __Surah As-Saf 61/8 (Allah SWT will Perfect His light)__: [يُرِيدُونَ... لِيُطْفِـُٔوا۟... نُورَ ٱللَّهِ... بِأَفْوَٰهِهِمْ... وَٱللَّهُ مُتِمُّ نُورِهِۦ... وَلَوْ كَرِهَ ٱلْكَـٰفِرُونَ](https://quran.com/61/8)
 
-* __Surah Al-Balad [The City] 90/17__: [and—above all—to be one of those who have faith and urge each other to perseverance and urge each other to compassion.](https://quranwbw.com/90/17)
+* __Surah Al-Balad 90/17__: [ثُمَّ كَانَ مِنَ ٱلَّذِينَ... ءَامَنُوا۟... وَتَوَاصَوْا۟ بِٱلصَّبْرِ ...وَتَوَاصَوْا۟ بِٱلْمَرْحَمَةِ](https://quran.com/90/17)
 
-### Faqaaloo saahirun kazzaab (Liar)
-* __Surah Al-Ghaffir [The Forgiver] 40/23-24__: [(23) Indeed, We sent Moses with Our signs and compelling proof, (24) to Pharaoh, Hamân, and Korah. But they responded: “Magician! Total liar!”](https://quranwbw.com/40/23-24)
+* __Surah Al-Ghaffir 40/23-24 (Magician and Liar:  فَقَالُوا۟ سَـٰحِرٌۭ كَذَّابٌۭ)__: [(23) وَلَقَدْ أَرْسَلْنَا مُوسَىٰ بِـَٔايَـٰتِنَا وَسُلْطَـٰنٍۢ مُّبِينٍ (24) إِلَىٰ فِرْعَوْنَ وَهَـٰمَـٰنَ وَقَـٰرُونَ... فَقَالُوا۟ سَـٰحِرٌۭ كَذَّابٌۭ ](https://quran.com/40/23-24)
 
-### Qaaloo aahirun wa majnoon
-* __Surah Adh Dhaariyat [The Winnowing Winds] 51/52__: [Similarly, no messenger came to those before them without being told: “A magician or a madman!”](https://quranwbw.com/51/52)
+* __Surah Adh-Dhaariyat 51/52 (Magician or Madman: سَاحِرٌ أَوْ مَجْنُونٌ)__: [كَذَٰلِكَ مَآ أَتَى ٱلَّذِينَ مِن قَبْلِهِم مِّن رَّسُولٍ... إِلَّا قَالُوا۟... سَاحِرٌ أَوْ مَجْنُونٌ](https://quran.com/51/52)
 
 ***
 

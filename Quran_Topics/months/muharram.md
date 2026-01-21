@@ -1,3 +1,7 @@
+* __Surah At-Tur 52/48 (وَٱصْبِرْ لِحُكْمِ رَبِّكَ... فَإِنَّكَ بِأَعْيُنِنَا)__: [وَٱصْبِرْ لِحُكْمِ رَبِّكَ... فَإِنَّكَ بِأَعْيُنِنَا ۖ... وَسَبِّحْ بِحَمْدِ رَبِّكَ حِينَ تَقُومُ](https://quran.com/52/48)
+
+***
+
 #### [Hazrat Hussain (RA) Ks Sabar | SSA Shah](https://www.youtube.com/shorts/0s-gMoG1lvs)
 * Yehi woh loag hayn, jinhayn apnay-Rabb-par puri-tarah __BHAROOSA__-hai.
 

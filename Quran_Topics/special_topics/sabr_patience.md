@@ -51,19 +51,19 @@ And so are Badr and Hunayn in the battle of existence.
 
 ***
 
-* __Surah Ale-i-Imran 3/200 (Patiently endure, persevere, stand on guard)__: [O believers! Patiently endure, persevere, stand on guard,1 and be mindful of Allah, so you may be successful.](https://quranwbw.com/3/200)
+* __Surah Ale-i-Imran 3/200 (ٱصْبِرُوا۟ وَصَابِرُوا۟ وَرَابِطُوا۟)__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟... ٱصْبِرُوا۟ وَصَابِرُوا۟ وَرَابِطُوا۟... وَٱتَّقُوا۟ ٱللَّهَ لَعَلَّكُمْ تُفْلِحُونَ](https://quran.com/3/200)
 
-* __Surah Ibrahim 14/7__: [And ˹remember˺ when your Lord proclaimed, ‘If you are grateful, I will certainly give you more. But if you are ungrateful, surely My punishment is severe.’”](https://quranwbw.com/14/7)
+* __Surah Ibrahim 14/7 (لَئِن شَكَرْتُمْ لَأَزِيدَنَّكُمْ ۖ)__: [وَإِذْ تَأَذَّنَ رَبُّكُمْ... لَئِن شَكَرْتُمْ لَأَزِيدَنَّكُمْ ۖ... وَلَئِن كَفَرْتُمْ ...إِنَّ عَذَابِى لَشَدِيدٌۭ](https://quran.com/14/7)
 
- * __Surah An-Nalh 16/127 (Don't be in distress)__: [Be patient ˹O Prophet˺, for your patience is only with Allah’s help. Do not grieve over those ˹who disbelieve˺, nor be distressed by their schemes.](https://quranwbw.com/16/127)
+ * __Surah An-Nalh 16/127 (وَمَا صَبْرُكَ إِلَّا بِٱللَّهِ ۚ... وَلَا تَكُ فِى ضَيْقٍۢ مِّمَّا يَمْكُرُونَ.)__: [وَٱصْبِرْ... وَمَا صَبْرُكَ إِلَّا بِٱللَّهِ ۚ... وَلَا تَحْزَنْ عَلَيْهِمْ ...وَلَا تَكُ فِى ضَيْقٍۢ مِّمَّا يَمْكُرُونَ](https://quran.com/16/127)
 
 ***
 
-* __Surah Al-Kahf 18/28__: [And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure.1 Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.](https://quranwbw.com/18/28)
+* __Surah Al-Kahf 18/28__: [وَٱصْبِرْ نَفْسَكَ ...مَعَ ٱلَّذِينَ يَدْعُونَ رَبَّهُم بِٱلْغَدَوٰةِ وَٱلْعَشِىِّ ...يُرِيدُونَ وَجْهَهُۥ ۖ... وَلَا تَعْدُ عَيْنَاكَ عَنْهُمْ... تُرِيدُ زِينَةَ ٱلْحَيَوٰةِ ٱلدُّنْيَا ۖ... وَلَا تُطِعْ... مَنْ أَغْفَلْنَا قَلْبَهُۥ عَن ذِكْرِنَا... وَٱتَّبَعَ هَوَىٰهُ... وَكَانَ أَمْرُهُۥ فُرُطًۭا](https://quran.com/18/28)
  
-* __Surah Al-Kahf 18/68__: [And how can you be patient with what is beyond your ˹realm of˺ knowledge?”](https://quranwbw.com/18/68)
+* __Surah Al-Kahf 18/68 (مَا لَمْ تُحِطْ بِهِۦ خُبْرًۭا)__: [وَكَيْفَ تَصْبِرُ عَلَىٰ... مَا لَمْ تُحِطْ بِهِۦ خُبْرًۭا](https://quran.com/18/68)
 
-* __Surah Al-Kahf 18/78 (Impatient)__: [قَالَ هَـٰذَا فِرَاقُ بَيْنِى وَبَيْنِكَ ۚ سَأُنَبِّئُكَ بِتَأْوِيلِ مَا لَمْ تَسْتَطِع عَّلَيْهِ صَبْرًا](https://quran.com/18/78)
+* __Surah Al-Kahf 18/78 (بِتَأْوِيلِ مَا لَمْ تَسْتَطِع عَّلَيْهِ صَبْرًا)__: [قَالَ... هَـٰذَا فِرَاقُ بَيْنِى وَبَيْنِكَ ۚ... سَأُنَبِّئُكَ بِتَأْوِيلِ... مَا لَمْ تَسْتَطِع عَّلَيْهِ صَبْرًا](https://quran.com/18/78)
 
 ***
 

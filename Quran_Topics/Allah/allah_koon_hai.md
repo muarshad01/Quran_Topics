@@ -1,4 +1,5 @@
-#### [REEL: Ways to Please Allah](https://www.youtube.com/shorts/-YBeMdn0dE0)
+#### [REEL: Ways to Please Allah | SSA](https://www.youtube.com/shorts/-YBeMdn0dE0)
+* A person who sacrifices, while dealing with other people, in the name of Allah SWT.
 
 ***
 

@@ -112,180 +112,75 @@
 
 ***
 
-(21:51)
-
-٥١  وَلَقَدْ آتَيْنَا إِبْرَاهِيمَ رُشْدَهُ مِنْ قَبْلُ وَكُنَّا بِهِ عَالِمِينَ
-
 * __Surah Al-Anbiyaa 21/51__: [And indeed, We had granted Abraham sound judgment early on, for We knew him well ˹to be worthy of it˺.](https://quranwbw.com/21/51)
 
-***
-
-(21:60)
-
-٦٠  قَالُوا سَمِعْنَا فَتًى يَذْكُرُهُمْ يُقَالُ لَهُ إِبْرَاهِيمُ
-
 * __Surah Al-Anbiyaa 21/60__: [Some said, “We heard a young man, called Abraham, speaking ˹ill˺ of them.”](https://quranwbw.com/21/60)
-***
-
-(21:62)
-
-٦٢  قَالُوا أَأَنْتَ فَعَلْتَ هَٰذَا بِآلِهَتِنَا يَا إِبْرَاهِيمُ
 
 * __Surah Al-Anbiyaa 21/62__: [They asked, “Was it you who did this to our gods, O  Abraham?”](https://quranwbw.com/21/62)
-
-***
-
-(21:69)
-
-٦٩  قُلْنَا يَا نَارُ كُونِي بَرْدًا وَسَلَامًا عَلَىٰ إِبْرَاهِيمَ
 
 * __Surah Al-Anbiyaa 21/69 (${\color{red}O ~Fire!, ~Be ~Cool!}$)__: [We ordered, “O fire! Be cool and safe for Abraham!”1](https://quranwbw.com/21/69)
 
 ***
 
-(22:26)
-
-٢٦  وَإِذْ بَوَّأْنَا لِإِبْرَاهِيمَ مَكَانَ الْبَيْتِ أَنْ لَا تُشْرِكْ بِي شَيْئًا وَطَهِّرْ بَيْتِيَ لِلطَّائِفِينَ وَالْقَائِمِينَ وَالرُّكَّعِ السُّجُودِ
-
 * __Surah Al-Hajj 22/26__: [And ˹remember˺ when We assigned to Abraham the site of the House, ˹saying,˺ “Do not associate anything with Me ˹in worship˺ and purify My House for those who circle ˹the Ka’bah˺, stand ˹in prayer˺, and bow and prostrate themselves.](https://quranwbw.com/22/26)
   
-***
-
-(22:43)
-
-٤٣  وَقَوْمُ إِبْرَاهِيمَ وَقَوْمُ لُوطٍ
-
 * __Surah Al-Hajj 22/43__: [the people of Abraham, the people of Lot,](https://quranwbw.com/22/43)
-
-***
-
-(22:78)
-
-٧٨  وَجَاهِدُوا فِي اللَّهِ حَقَّ جِهَادِهِ ۚ هُوَ اجْتَبَاكُمْ وَمَا جَعَلَ عَلَيْكُمْ فِي الدِّينِ مِنْ حَرَجٍ ۚ مِلَّةَ أَبِيكُمْ إِبْرَاهِيمَ ۚ هُوَ سَمَّاكُمُ الْمُسْلِمِينَ مِنْ قَبْلُ وَفِي هَٰذَا لِيَكُونَ الرَّسُولُ شَهِيدًا عَلَيْكُمْ وَتَكُونُوا شُهَدَاءَ عَلَى النَّاسِ ۚ فَأَقِيمُوا الصَّلَاةَ وَآتُوا الزَّكَاةَ وَاعْتَصِمُوا بِاللَّهِ هُوَ مَوْلَاكُمْ ۖ فَنِعْمَ الْمَوْلَىٰ وَنِعْمَ النَّصِيرُ
 
 * __Surah Al-Hajj 22/78 (${\color{red}What ~an ~excellent ~Guardian, ~and ~what ~an ~excellent ~Helper!}$)__: [Strive for ˹the cause of˺ Allah in the way He deserves, for ˹it is˺ He ˹Who˺ has chosen you, and laid upon you no hardship in the religion—the way of your forefather Abraham. ˹It is Allah˺ Who named you ‘the ones who submit’1 ˹in the˺ earlier ˹Scriptures˺ and in this ˹Quran˺, so that the Messenger may be a witness over you, and that you may be witnesses over humanity. So establish prayer, pay alms-tax, and hold fast to Allah. He ˹alone˺ is your Guardian. What an excellent Guardian, and what an excellent Helper!](https://quranwbw.com/22/78)
 
-
 ***
-
-(26:69)
-
-٦٩  وَاتْلُ عَلَيْهِمْ نَبَأَ إِبْرَاهِيمَ
 
 * __Surah Shuaraa (The Poets) 26/69__: [Relate to them ˹O Prophet˺ the story of Abraham,](https://quranwbw.com/26/69)
 
 ***
 
-(29:16)
-
-١٦  وَإِبْرَاهِيمَ إِذْ قَالَ لِقَوْمِهِ اعْبُدُوا اللَّهَ وَاتَّقُوهُ ۖ ذَٰلِكُمْ خَيْرٌ لَكُمْ إِنْ كُنْتُمْ تَعْلَمُونَ
-
 * __Surah Shuaraa (The Poets) 26/16__: [Go to Pharaoh and say, ‘We are messengers from the Lord of all worlds,](https://quranwbw.com/26/16)
 
-
 ***
-
-(29:31)
-
-٣١  وَلَمَّا جَاءَتْ رُسُلُنَا إِبْرَاهِيمَ بِالْبُشْرَىٰ قَالُوا إِنَّا مُهْلِكُو أَهْلِ هَٰذِهِ الْقَرْيَةِ ۖ إِنَّ أَهْلَهَا كَانُوا ظَالِمِينَ
 
 * __Surah Al-Ankboot 29/31__: [When Our messenger-angels came to Abraham with the good news ˹of the birth of Isaac˺, they said, “We are going to destroy the people of this city ˹of Sodom˺, for its people have persisted in wrongdoing.”](https://quranwbw.com/29/31)
 
 ***
 
-(33:7)
-
-٧  وَإِذْ أَخَذْنَا مِنَ النَّبِيِّينَ مِيثَاقَهُمْ وَمِنْكَ وَمِنْ نُوحٍ وَإِبْرَاهِيمَ وَمُوسَىٰ وَعِيسَى ابْنِ مَرْيَمَ ۖ وَأَخَذْنَا مِنْهُمْ مِيثَاقًا غَلِيظًا
-
 * __Surah As-Saaffaat (Those Drawn up in Ranks) 33/7__: [And ˹remember˺ when We took a covenant from the prophets, as well as from you ˹O Prophet˺, and from Noah, Abraham, Moses, and Jesus, son of Mary. We did take a solemn covenant from ˹all of˺ them](https://quranwbw.com/33/7)
 
 ***
-
-(37:83)
-
-٨٣  وَإِنَّ مِنْ شِيعَتِهِ لَإِبْرَاهِيمَ
 
 * __Surah As-Saaffaat (Those Drawn up in Ranks) 37/83__: [And indeed, one of those who followed his way was Abraham.](https://quranwbw.com/37/83)
 
 ***
 
-(37:104)
-
-١٠٤  وَنَادَيْنَاهُ أَنْ يَا إِبْرَاهِيمُ
-
 * __Surah As-Saaffaat (Those Drawn up in Ranks) 37/104__: [We called out to him, “O Abraham!](https://quranwbw.com/37/104)
-
-***
-
-(37:109)
-
-١٠٩  سَلَامٌ عَلَىٰ إِبْرَاهِيمَ
 
 * __Surah As-Saaffaat (Those Drawn up in Ranks) 37/109__: [“Peace be upon Abraham.”](https://quranwbw.com/37/109)
 
 ***
 
-(38:45)
-
-٤٥  وَاذْكُرْ عِبَادَنَا إِبْرَاهِيمَ وَإِسْحَاقَ وَيَعْقُوبَ أُولِي الْأَيْدِي وَالْأَبْصَارِ
-
 * __Surah Al-Jaathiya (Crouching) 38/45__: [And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.](https://quranwbw.com/38/45)
 
 ***
-
-(42:13)
-
-١٣  شَرَعَ لَكُمْ مِنَ الدِّينِ مَا وَصَّىٰ بِهِ نُوحًا وَالَّذِي أَوْحَيْنَا إِلَيْكَ وَمَا وَصَّيْنَا بِهِ إِبْرَاهِيمَ وَمُوسَىٰ وَعِيسَىٰ ۖ أَنْ أَقِيمُوا الدِّينَ وَلَا تَتَفَرَّقُوا فِيهِ ۚ كَبُرَ عَلَى الْمُشْرِكِينَ مَا تَدْعُوهُمْ إِلَيْهِ ۚ اللَّهُ يَجْتَبِي إِلَيْهِ مَنْ يَشَاءُ وَيَهْدِي إِلَيْهِ مَنْ يُنِيبُ
 
 * __Surah Ash-Shura (Consultation) 42/13__: [He has ordained for you ˹believers˺ the Way which He decreed for Noah, and what We have revealed to you ˹O Prophet˺ and what We decreed for Abraham, Moses, and Jesus,1 ˹commanding:˺ “Uphold the faith, and make no divisions in it.” What you call the polytheists to is unbearable for them. Allah chooses for Himself whoever He wills, and guides to Himself whoever turns ˹to Him˺.](https://quranwbw.com/42/13)
 
 ***
 
-(43:26)
-
-٢٦  وَإِذْ قَالَ إِبْرَاهِيمُ لِأَبِيهِ وَقَوْمِهِ إِنَّنِي بَرَاءٌ مِمَّا تَعْبُدُونَ
-
 * __Surah Az-Zukhruf (Ornaments of Gold) 43/26__: [˹Remember, O  Prophet˺ when Abraham declared to his father and his people, “I am totally free of whatever ˹gods˺ you worship,](https://quranwbw.com/43/26)
 
 ***
-
-(51:24)
-
-٢٤  هَلْ أَتَاكَ حَدِيثُ ضَيْفِ إِبْرَاهِيمَ الْمُكْرَمِينَ
 
 * __Surah Adh-Dhaariyat (The Winnowing Winds) 51/24__: [Has the story of Abraham’s honoured guests reached you ˹O Prophet˺?](https://quranwbw.com/51/24)
 
 ***
 
-(53:37)
-
-٣٧  وَإِبْرَاهِيمَ الَّذِي وَفَّىٰ
-
 * __Surah An-Najm 53/37__: [and ˹that of˺ Abraham, who ˹perfectly˺ fulfilled ˹his covenant˺?](https://quranwbw.com/53/37)
 
-***
-
-(57:26)
-
-٢٦  وَلَقَدْ أَرْسَلْنَا نُوحًا وَإِبْرَاهِيمَ وَجَعَلْنَا فِي ذُرِّيَّتِهِمَا النُّبُوَّةَ وَالْكِتَابَ ۖ فَمِنْهُمْ مُهْتَدٍ ۖ وَكَثِيرٌ مِنْهُمْ فَاسِقُونَ
-
 * __Surah Al-Hadid 57/26__: [And indeed, We sent Noah and Abraham and reserved prophethood and revelation for their descendants. Some of them are ˹rightly˺ guided, while most are rebellious.](https://quranwbw.com/57/26)
-
-***
-
-(60:4)
-
-٤  قَدْ كَانَتْ لَكُمْ أُسْوَةٌ حَسَنَةٌ فِي إِبْرَاهِيمَ وَالَّذِينَ مَعَهُ إِذْ قَالُوا لِقَوْمِهِمْ إِنَّا بُرَآءُ مِنْكُمْ وَمِمَّا تَعْبُدُونَ مِنْ دُونِ اللَّهِ كَفَرْنَا بِكُمْ وَبَدَا بَيْنَنَا وَبَيْنَكُمُ الْعَدَاوَةُ وَالْبَغْضَاءُ أَبَدًا حَتَّىٰ تُؤْمِنُوا بِاللَّهِ وَحْدَهُ إِلَّا قَوْلَ إِبْرَاهِيمَ لِأَبِيهِ لَأَسْتَغْفِرَنَّ لَكَ وَمَا أَمْلِكُ لَكَ مِنَ اللَّهِ مِنْ شَيْءٍ ۖ رَبَّنَا عَلَيْكَ تَوَكَّلْنَا وَإِلَيْكَ أَنَبْنَا وَإِلَيْكَ الْمَصِيرُ
 
 * __Surah Al-Mumtahana (The One Who is Tested) 60/4__: [You already have an excellent example in Abraham and those with him, when they said to their people, “We totally dissociate ourselves from you and ˹shun˺ whatever ˹idols˺ you worship besides Allah. We reject you. The enmity and hatred that has arisen between us and you will last until you believe in Allah alone.” The only exception is when Abraham said to his father, “I will seek forgiveness for you,˹” adding, “but˺ I cannot protect you from Allah at all.” ˹The believers prayed,˺ “Our Lord! In You we trust. And to You we ˹always˺ turn. And to You is the final return.](https://quranwbw.com/60/4)
 
 ***
 
 * __Surah Al-Alaa 87/19__: [the Scriptures of Abraham and Moses.](https://quranwbw.com/87/19)
-
-***
-
-#### [Nauman Ali Khan](https://www.youtube.com/shorts/7KxfWDupIrI)
 
 ***
 
@@ -406,5 +301,9 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 * __Surah Al-Hujurat 49/14__: [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
 * __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
+
+***
+
+#### [Nauman Ali Khan](https://www.youtube.com/shorts/7KxfWDupIrI)
 
 ***

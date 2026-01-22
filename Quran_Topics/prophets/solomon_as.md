@@ -37,27 +37,30 @@
 
 ***
 
-* __Surah Saba 34/12__: [And to Solomon ˹We subjected˺ the wind: its morning stride was a month’s journey and so was its evening stride. And We caused a stream of molten copper to flow for him, and ˹We subjected˺ some of the jinn to work under him by his Lord’s Will. And whoever of them deviated from Our command, We made them taste the torment of the blaze.](https://quranwbw.com/34/12)
+* __Surah Saba 34/12__: [وَلِسُلَيْمَـٰنَ... ٱلرِّيحَ غُدُوُّهَا شَهْرٌۭ وَرَوَاحُهَا شَهْرٌۭ ۖ... وَأَسَلْنَا لَهُۥ عَيْنَ ٱلْقِطْرِ ۖ... وَمِنَ ٱلْجِنِّ مَن يَعْمَلُ بَيْنَ يَدَيْهِ بِإِذْنِ رَبِّهِۦ... ۖ وَمَن يَزِغْ مِنْهُمْ عَنْ أَمْرِنَا... نُذِقْهُ مِنْ عَذَابِ ٱلسَّعِيرِ](https://quran.com/34/12)
 
 ***
-* __Surah Saad 38/20__: [وَشَدَدْنَا مُلْكَهُۥ... وَءَاتَيْنَـٰهُ ٱلْحِكْمَةَ وَفَصْلَ ٱلْخِطَابِ](https://quran.com/38/20)
-* __Surah Saad 38/30__: [وَوَهَبْنَا لِدَاوُۥدَ سُلَيْمَـٰنَ ۚ... نِعْمَ ٱلْعَبْدُ ۖ إِنَّهُۥٓ أَوَّابٌ](https://quran.com/38/30)
 
-* __Surah Saad 38/34__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34)
+* __Surah Saad 38/20 (وَءَاتَيْنَـٰهُ ٱلْحِكْمَةَ ...وَفَصْلَ ٱلْخِطَابِ)__: [وَشَدَدْنَا مُلْكَهُۥ... وَءَاتَيْنَـٰهُ ٱلْحِكْمَةَ ...وَفَصْلَ ٱلْخِطَابِ](https://quran.com/38/20)
+* __Surah Saad 38/30 ( نِعْمَ ٱلْعَبْدُ ۖ إِنَّهُۥٓ أَوَّابٌ)__: [وَوَهَبْنَا لِدَاوُۥدَ سُلَيْمَـٰنَ ۚ... نِعْمَ ٱلْعَبْدُ ۖ إِنَّهُۥٓ أَوَّابٌ](https://quran.com/38/30)
+
+* __Surah Saad 38/34 (وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا)__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ ...وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا... ثُمَّ أَنَابَ](https://quran.com/38/34)
+* __Surah Saad 38/35 (وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا)__: [قَالَ رَبِّ ٱغْفِرْ لِى ...وَهَبْ لِى مُلْكًۭا.. لَّا يَنۢبَغِى لِأَحَدٍۢ مِّنۢ بَعْدِىٓ ۖ... إِنَّكَ أَنتَ ٱلْوَهَّابُ](https://quran.com/38/35)
 
 ***
 
 ## [Israel Ki Dajjal Ko Lany Ki Tyari | Abdus Salam Arif](https://www.youtube.com/watch?v=1hgzyd8iSrM)
-* __Surah Tawba 09/37 (al-nasiu)__: [Reallocating the sanctity of ˹these˺ months1 is an increase in disbelief, by which the disbelievers are led ˹far˺ astray. They adjust the sanctity one year and uphold it in another, only to maintain the number of months sanctified by Allah, violating the very months Allah has made sacred. Their evil deeds have been made appealing to them. And Allah does not guide the disbelieving people.](https://quranwbw.com/9#37)
+* __Surah At-Tawba 09/37 (Al-Nasiu: إِنَّمَا ٱلنَّسِىٓءُ زِيَادَةٌۭ فِى ٱلْكُفْرِ)__: [إِنَّمَا ٱلنَّسِىٓءُ زِيَادَةٌۭ فِى ٱلْكُفْرِ ۖ... يُضَلُّ بِهِ ٱلَّذِينَ كَفَرُوا۟... يُحِلُّونَهُۥ عَامًۭا وَيُحَرِّمُونَهُۥ عَامًۭا... لِّيُوَاطِـُٔوا۟ عِدَّةَ مَا حَرَّمَ ٱللَّهُ فَيُحِلُّوا۟ مَا حَرَّمَ ٱللَّهُ ۚ... زُيِّنَ لَهُمْ سُوٓءُ أَعْمَـٰلِهِمْ ۗ... وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلْكَـٰفِرِينَ](https://quran.com/9/37)
 
-* __Surah Saba 34/14 (Gadget: Minsa)__: [When We decreed Solomon’s death, nothing indicated to the ˹subjected˺ jinn that he was dead except the termites eating away his staff.1 So when he collapsed, the jinn realized that if they had ˹really˺ known the unseen, they would not have remained in ˹such˺ humiliating servitude.](https://quranwbw.com/34/14)
+* __Surah Saba 34/14 (Gadget: Minsa)__: [فَلَمَّا قَضَيْنَا عَلَيْهِ ٱلْمَوْتَ... مَا دَلَّهُمْ عَلَىٰ مَوْتِهِۦٓ... إِلَّا دَآبَّةُ ٱلْأَرْضِ ...تَأْكُلُ مِنسَأَتَهُۥ... ۖ فَلَمَّا خَرَّ تَبَيَّنَتِ ٱلْجِنُّ... أَن لَّوْ كَانُوا۟ يَعْلَمُونَ ٱلْغَيْبَ... مَا لَبِثُوا۟ فِى ٱلْعَذَابِ ٱلْمُهِينِ](https://quran.com/34/14)
 
 #### Trial of Solomon (What is `JASAD` placed on King Solomon Chair?)
-* __Surah Saad 38/34-35 (Jasad)__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34-35)
-* Dajjal adopted the face-of-Solom and took the Ring from his wife.
-* Sat on his Chair (Throne of David)
-* Jasad threw the Gadget in River
-* The Ring was found from the belly-of-fish. Solomon again became king.
+* __Surah Saad 38/34 (وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا)__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ ...وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا... ثُمَّ أَنَابَ](https://quran.com/38/34)
+* __Surah Saad 38/35 (وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا)__: [قَالَ رَبِّ ٱغْفِرْ لِى ...وَهَبْ لِى مُلْكًۭا.. لَّا يَنۢبَغِى لِأَحَدٍۢ مِّنۢ بَعْدِىٓ ۖ... إِنَّكَ أَنتَ ٱلْوَهَّابُ](https://quran.com/38/35)
+  * Dajjal adopted the face-of-Solom and took the Ring from his wife.
+  * Sat on his Chair (Throne of David)
+  * Jasad threw the Gadget in River
+  * The Ring was found from the belly-of-fish. Solomon again became king.
 
 #### Jasad Ayats
 * __Surah Al-Araaf 7/148 (عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌ)__: [وَٱتَّخَذَ قَوْمُ مُوسَىٰ مِنۢ بَعْدِهِۦ... مِنْ حُلِيِّهِمْ ...عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌ ۚ... أَلَمْ يَرَوْا۟ أَنَّهُۥ لَا يُكَلِّمُهُمْ وَلَا يَهْدِيهِمْ سَبِيلًا ۘ ...ٱتَّخَذُوهُ وَكَانُوا۟ ظَـٰلِمِينَ](https://quran.com/7/148)

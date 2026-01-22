@@ -9,8 +9,8 @@
 ***
 
 #### [How to Rely on Allah (SWT) | SSA Shah](https://www.youtube.com/shorts/RoGI9xMJJaI)
-* Allah SWT doesn't like lazy-people (Du'a Allahumma innee 'aoozhu bika minal hammi walhazani, wal'ajzi wal-kasali. ).
-* Allah SWT likes those who strive like-Mujahids (https://quran.com/61/4)
+* Allah SWT doesn't like lazy-people (اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ الْهَمِّ وَالْحُزْنِ وَالْعَجْزِ وَالْكَسَلِ , وَالْبُخْلِ وَالْجُبْنِ وَضَلَعِ الدَّيْنِ ,وَغَلَبَةِ الرِّجَالِ ).
+* Allah SWT likes those who strive in His path like-Mujahids ([إِنَّ ٱللَّهَ يُحِبُّ ٱلَّذِينَ... يُقَـٰتِلُونَ فِى سَبِيلِهِۦ... صَفًّۭا كَأَنَّهُم بُنْيَـٰنٌۭ مَّرْصُوصٌۭ](https://quran.com/61/4))
 * We should try-our-best and leave-the-result to Allah SWT.
 
 ***

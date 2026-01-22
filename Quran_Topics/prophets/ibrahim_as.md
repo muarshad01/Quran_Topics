@@ -85,23 +85,23 @@
 
 ***
 
-* __Surah Yusuf (Joseph) 12/6__: [And so will your Lord choose you ˹O Joseph˺, and teach you the interpretation of dreams, and perfect His favour upon you and the descendants of Jacob—˹just˺ as He once perfected it upon your forefathers, Abraham and Isaac. Surely your Lord is All-Knowing, All-Wise.”](https://quranwbw.com/12/6)
+* __Surah Yusuf (Joseph) 12/6__: [وَكَذَٰلِكَ... يَجْتَبِيكَ رَبُّكَ... وَيُعَلِّمُكَ مِن تَأْوِيلِ ٱلْأَحَادِيثِ... وَيُتِمُّ نِعْمَتَهُۥ عَلَيْكَ وَعَلَىٰٓ ءَالِ يَعْقُوبَ... كَمَآ أَتَمَّهَا عَلَىٰٓ أَبَوَيْكَ مِن قَبْلُ إِبْرَٰهِيمَ وَإِسْحَـٰقَ ۚ... إِنَّ رَبَّكَ عَلِيمٌ حَكِيمٌۭ](https://quran.com/12/6)
 
-* __Surah Yusuf (Joseph) 12/38__: [I follow the faith of my fathers: Abraham, Isaac, and Jacob. It is not ˹right˺ for us to associate anything with Allah ˹in worship˺. This is part of Allah’s grace upon us and humanity, but most people are not grateful.](https://quranwbw.com/12/38)
-
-***
-
-* __Surah Ibrahim 14/35__: [˹Remember˺ when Abraham prayed, “My Lord! Make this city ˹of Mecca˺ secure, and keep me and my children away from the worship of idols.](https://quranwbw.com/14/35)
+* __Surah Yusuf (Joseph) 12/38__: [وَٱتَّبَعْتُ مِلَّةَ ءَابَآءِىٓ إِبْرَٰهِيمَ وَإِسْحَـٰقَ وَيَعْقُوبَ ۚ... مَا كَانَ لَنَآ أَن نُّشْرِكَ بِٱللَّهِ مِن شَىْءٍۢ ۚ... ذَٰلِكَ مِن فَضْلِ ٱللَّهِ عَلَيْنَا وَعَلَى ٱلنَّاسِ ...وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quran.com/12/38)
 
 ***
 
-* __Surah Al-Hijr 15/51__: [And inform them ˹O Prophet˺ about Abraham’s guests](https://quranwbw.com/15/51)
+* __Surah Ibrahim 14/35__: [وَإِذْ قَالَ إِبْرَٰهِيمُ رَبِّ ٱجْعَلْ هَـٰذَا ٱلْبَلَدَ ءَامِنًۭا وَٱجْنُبْنِى وَبَنِىَّ أَن نَّعْبُدَ ٱلْأَصْنَامَ](https://quran.com/14/35)
 
 ***
 
-* __Surah An-Nahl 16/120__: [Indeed, Abraham was a model of excellence: devoted to Allah, ˹perfectly˺ upright—not a polytheist—](https://quranwbw.com/16/120)
+* __Surah Al-Hijr 15/51__: [وَنَبِّئْهُمْ عَن ضَيْفِ إِبْرَٰهِيمَ](https://quran.com/15/51)
 
-* __Surah An-Nahl 16/123__: [Then We revealed to you ˹O Prophet, saying˺: “Follow the faith of Abraham, the upright, who was not one of the polytheists.”](https://quranwbw.com/16/123)
+***
+
+* __Surah An-Nahl 16/120 (أُمَّةًۭ قَانِتًۭا لِّلَّهِ حَنِيفًۭا)__: [إِنَّ إِبْرَٰهِيمَ كَانَ... أُمَّةًۭ قَانِتًۭا لِّلَّهِ حَنِيفًۭا ...وَلَمْ يَكُ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/16/120)
+
+* __Surah An-Nahl 16/123 (إِلَيْكَ أَنِ ٱتَّبِعْ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۖ)__: [ثُمَّ أَوْحَيْنَآ إِلَيْكَ ...أَنِ ٱتَّبِعْ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۖ ...وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/16/123)
 
 ***
 

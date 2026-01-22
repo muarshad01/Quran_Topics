@@ -1,17 +1,3 @@
-#### [Sunday Special Ibadat | SSA Shah](https://www.youtube.com/watch?v=umcEO0JBGig)
-
-***
-
-#### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
-
-***
-
-#### [Tawakkul ALLAH | توکل اللہ | Irfan-ul-Haq](https://www.youtube.com/watch?v=8qCH4FrvpU0&list=PLbL0UiWW7AylndYVrq-HaofHtwSPTjnPu&index=30)
-* Ghebat means not present - Ali KAW
-* Hazrat Ali KAW didn't offer a single prayer where Allah SWT was not present.
-
-***
-
 #### [How to strengthen your heart in tough times? | SSA Shah](https://www.youtube.com/watch?v=4_mcKCtfklQ)
 * Raziq Rabb hai
 * Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
@@ -26,6 +12,16 @@
 * Allah SWT doesn't like lazy-people (Du'a Allahumma innee 'aoozhu bika minal hammi walhazani, wal'ajzi wal-kasali. ).
 * Allah SWT likes those who strive like-Mujahids (https://quran.com/61/4)
 * We should try-our-best and leave-the-result to Allah SWT.
+
+***
+
+#### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
+
+***
+
+#### [Tawakkul ALLAH | توکل اللہ | Irfan-ul-Haq](https://www.youtube.com/watch?v=8qCH4FrvpU0&list=PLbL0UiWW7AylndYVrq-HaofHtwSPTjnPu&index=30)
+* Ghebat means not present - Ali KAW
+* Hazrat Ali KAW didn't offer a single prayer where Allah SWT was not present.
 
 ***
 

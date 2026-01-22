@@ -60,10 +60,10 @@
 * The Ring was found from the belly-of-fish. Solomon again became king.
 
 #### Jasad Ayats
-* __Surah Al-Araaf 7/148__: [In the absence of Moses, his people made from their ˹golden˺ jewellery an idol of a calf that made a lowing sound. Did they not see that it could neither speak to them nor guide them to the ˹Right˺ Path? Still they took it as a god and were wrongdoers.](https://quranwbw.com/7/148)
-* __Surah Taha 20/88__: [Then he moulded for them an idol of a calf that made a lowing sound. They said, “This is your god and the god of Moses, but Moses forgot ˹where it was˺!”](https://quranwbw.com/20/88)
-* __Surah Al-Anbiyaa 21/8__: [We did not give those messengers ˹supernatural˺ bodies that did not need food, nor were they immortal.](https://quranwbw.com/21/8)
-* __Surah Saad 38/34__: [And indeed, We tested Solomon, placing a ˹deformed˺ body on his throne,1 then he turned ˹to Allah in repentance˺.](https://quranwbw.com/38/34)
+* __Surah Al-Araaf 7/148 (عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌ)__: [وَٱتَّخَذَ قَوْمُ مُوسَىٰ مِنۢ بَعْدِهِۦ... مِنْ حُلِيِّهِمْ ...عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌ ۚ... أَلَمْ يَرَوْا۟ أَنَّهُۥ لَا يُكَلِّمُهُمْ وَلَا يَهْدِيهِمْ سَبِيلًا ۘ ...ٱتَّخَذُوهُ وَكَانُوا۟ ظَـٰلِمِينَ](https://quran.com/7/148)
+* __Surah Taha 20/88 (عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌۭ)__: [فَأَخْرَجَ لَهُمْ ...عِجْلًۭا جَسَدًۭا لَّهُۥ خُوَارٌۭ... فَقَالُوا۟ هَـٰذَآ إِلَـٰهُكُمْ وَإِلَـٰهُ مُوسَىٰ... فَنَسِىَ](https://quran.com/20/88)
+* __Surah Al-Anbiyaa 21/8 (وَمَا جَعَلْنَـٰهُمْ جَسَدًۭا)__: [وَمَا جَعَلْنَـٰهُمْ جَسَدًۭا... لَّا يَأْكُلُونَ ٱلطَّعَامَ... وَمَا كَانُوا۟ خَـٰلِدِينَ](https://quran.com/21/8)
+* __Surah Saad 38/34 (وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا)__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ ...وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا... ثُمَّ أَنَابَ](https://quran.com/38/34)
 
 #### Events...
 * __Time REVERSAL__:

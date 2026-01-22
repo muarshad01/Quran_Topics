@@ -1,10 +1,10 @@
 #### [How to strengthen your heart in tough times? | SSA Shah](https://www.youtube.com/watch?v=4_mcKCtfklQ)
-* Raziq Rabb hai
+* It is We Who provide for you ([لَا نَسْـَٔلُكَ رِزْقًۭا ۖ نَّحْنُ نَرْزُقُكَ ۗ](https://quran.com/20/132))
 * Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
 * Nuqsaan-o-Faida sab Rabb kay hukum-say-hai
 * "Inna Allaha ala-kulli-shayin Qadeer" (إِنَّ اللَّهَ عَلَىٰ كُلِّ شَيْءٍ قَدِيرٌ)
 * XXX
-* Apnay Rabb par andha-YAQEEN Karna-seekh-layn
+* Apnay Rabb par andha-__YAQEEN__ Karna-seekh-layn
 
 ***
 

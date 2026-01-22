@@ -1,12 +1,11 @@
-* https://myislam.org/quran-verses/prophet-suleiman/
+#### Solomon AS
 
-* https://www.youtube.com/watch?v=3iqNDea7whA
-* https://www.youtube.com/shorts/sMbKTNzG9KU (Desire, Arrogance, Ego)
+#### [Qur'an verses on suleiman](https://myislam.org/quran-verses/prophet-suleiman/)
 
 ***
 
 * __Surah Al-Baqarah 2/102__: [وَٱتَّبَعُوا۟... مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ... وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟... يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ ...وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ... وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ... فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ... وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ... وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ... وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ... وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ... لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
-* They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon. Never did Solomon disbelieve, rather the devils disbelieved. They taught magic to the people, along with what had been revealed to the two angels, Hârût and Mârût, in Babylon.1 The two angels never taught anyone without saying, “We are only a test ˹for you˺, so do not abandon ˹your˺ faith.” Yet people learned ˹magic˺ that caused a rift ˹even˺ between husband and wife; although their magic could not harm anyone except by Allah’s Will. They learned what harmed them and did not benefit them—although they already knew that whoever buys into magic would have no share in the Hereafter. Miserable indeed was the price for which they sold their souls, if only they knew!
+  * They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon. Never did Solomon disbelieve, rather the devils disbelieved. They taught magic to the people, along with what had been revealed to the two angels, Hârût and Mârût, in Babylon.1 The two angels never taught anyone without saying, “We are only a test ˹for you˺, so do not abandon ˹your˺ faith.” Yet people learned ˹magic˺ that caused a rift ˹even˺ between husband and wife; although their magic could not harm anyone except by Allah’s Will. They learned what harmed them and did not benefit them—although they already knew that whoever buys into magic would have no share in the Hereafter. Miserable indeed was the price for which they sold their souls, if only they knew!
 
 ***
 
@@ -24,17 +23,16 @@
 
 ***
 
-* __Surah An-Naml 27/15__: [Indeed, We granted knowledge to David and Solomon. And they said ˹in acknowledgment˺, “All praise is for Allah Who has privileged us over many of His faithful servants.”](https://quranwbw.com/27/15)
-* __Surah An-Naml 27/16__: [And David was succeeded by Solomon, who said, “O people! We have been taught the language of birds, and been given everything ˹we need˺. This is indeed a great privilege.”](https://quranwbw.com/27/16)
-* __Surah An-Naml 27/17__: [Solomon’s forces of jinn, humans, and birds were rallied for him, perfectly organized.](https://quranwbw.com/27/17)
-* __Surah An-Naml 27/18__: [And when they came across a valley of ants, an ant warned, “O ants! Go quickly into your homes so Solomon and his armies do not crush you, unknowingly.”](https://quranwbw.com/27/18)
-
+* __Surah An-Naml 27/15 (ٱلْحَمْدُ لِلَّهِ ٱلَّذِى فَضَّلَنَا عَلَىٰ كَثِيرٍۢ مِّنْ عِبَادِهِ ٱلْمُؤْمِنِينَ)__: [وَلَقَدْ ءَاتَيْنَا دَاوُۥدَ وَسُلَيْمَـٰنَ عِلْمًۭا ۖ ...وَقَالَا ٱلْحَمْدُ لِلَّهِ ٱلَّذِى فَضَّلَنَا عَلَىٰ كَثِيرٍۢ مِّنْ عِبَادِهِ ٱلْمُؤْمِنِينَ](https://quran.com/27/15)
+* __Surah An-Naml 27/16__: [وَوَرِثَ سُلَيْمَـٰنُ دَاوُۥدَ ۖ... وَقَالَ يَـٰٓأَيُّهَا ٱلنَّاسُ عُلِّمْنَا مَنطِقَ ٱلطَّيْرِ... وَأُوتِينَا مِن كُلِّ شَىْءٍ ۖ... إِنَّ هَـٰذَا لَهُوَ ٱلْفَضْلُ ٱلْمُبِينُ](https://quran.com/27/16)
+* __Surah An-Naml 27/17__: [وَحُشِرَ لِسُلَيْمَـٰنَ... جُنُودُهُۥ مِنَ ٱلْجِنِّ ...وَٱلْإِنسِ ...وَٱلطَّيْرِ... فَهُمْ يُوزَعُونَ](https://quran.com/27/17)
+* __Surah An-Naml 27/18__: [حَتَّىٰٓ إِذَآ أَتَوْا۟ عَلَىٰ وَادِ ٱلنَّمْلِ قَالَتْ نَمْلَةٌۭ يَـٰٓأَيُّهَا ٱلنَّمْلُ ٱدْخُلُوا۟ مَسَـٰكِنَكُمْ لَا يَحْطِمَنَّكُمْ سُلَيْمَـٰنُ وَجُنُودُهُۥ وَهُمْ لَا يَشْعُرُونَ](https://quran.com/27/18)
 * __Surah An-Naml 27/19 (King Solomon...Thankfulness)__: [فَتَبَسَّمَ ضَاحِكًۭا مِّن قَوْلِهَا... وَقَالَ ...رَبِّ أَوْزِعْنِىٓ ...أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ ...وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ... وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 
 
-* __Surah An-Naml 27/30__: [It is from Solomon, and it reads: ‘In the Name of Allah—the Most Compassionate, Most Merciful.](https://quranwbw.com/27/30)
-* __Surah An-Naml 27/36__: [When the chief-envoy came to him, Solomon said, “Do you offer me wealth? What Allah has granted me is far greater than what He has granted you. No! It is you who rejoice in ˹receiving˺ gifts.](https://quranwbw.com/27/36)
-* __Surah An-Naml 27/44__: [Then she was told, “Enter the palace.” But when she saw the hall, she thought it was a body of water, so she bared her legs. Solomon said. “It is just a palace paved with crystal.” ˹At last˺ she declared, “My Lord! I have certainly wronged my soul. Now I ˹fully˺ submit myself along with Solomon to Allah, the Lord of all worlds.”](https://quranwbw.com/27/44)
+* __Surah An-Naml 27/30__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+* __Surah An-Naml 27/36__: [فَلَمَّا جَآءَ سُلَيْمَـٰنَ قَالَ أَتُمِدُّونَنِ بِمَالٍۢ فَمَآ ءَاتَىٰنِۦَ ٱللَّهُ خَيْرٌۭ مِّمَّآ ءَاتَىٰكُم بَلْ أَنتُم بِهَدِيَّتِكُمْ تَفْرَحُونَ](https://quran.com/27/36)
+* __Surah An-Naml 27/44__: [قِيلَ لَهَا ٱدْخُلِى ٱلصَّرْحَ ۖ فَلَمَّا رَأَتْهُ حَسِبَتْهُ لُجَّةًۭ وَكَشَفَتْ عَن سَاقَيْهَا ۚ قَالَ إِنَّهُۥ صَرْحٌۭ مُّمَرَّدٌۭ مِّن قَوَارِيرَ ۗ قَالَتْ رَبِّ إِنِّى ظَلَمْتُ نَفْسِى وَأَسْلَمْتُ مَعَ سُلَيْمَـٰنَ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/27/44)
 
 ***
 
@@ -74,5 +72,10 @@
 * __Throne of David__:
 * __Third Temple__:
 * __Ark of the Covenant__:
+
+***
+
+* [Hazrat Suleman Aur Malika Bilqees Ka Waqia || Malka Saba and Hazrat Suleman](https://www.youtube.com/watch?v=3iqNDea7whA)
+* [(Desire, Arrogance, Ego) | SSA Shah](https://www.youtube.com/shorts/sMbKTNzG9KU) 
 
 ***

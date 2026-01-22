@@ -17,9 +17,9 @@
 
 ***
 
-* __Surah Al-Anbiya 21/78__: [And ˹remember˺ when David and Solomon passed judgment regarding the crops ruined ˹at night˺ by someone’s sheep, and We were witness to their judgments.](https://quranwbw.com/21/78)
-* __Surah Al-Anbiya 21/79__: [We guided ˹young˺ Solomon to a fairer settlement,1 and granted each of them wisdom and knowledge. We subjected the mountains as well as the birds to hymn ˹Our praises˺ along with David. It is We Who did ˹it all˺.](https://quranwbw.com/21/79)
-* __Surah Al-Anbiya 21/81__: [And to Solomon We subjected the raging winds, blowing by his command to the land We had showered with blessings. It is We Who know everything.](https://quranwbw.com/21/81)
+* __Surah Al-Anbiya 21/78__: [وَدَاوُۥدَ وَسُلَيْمَـٰنَ ...إِذْ يَحْكُمَانِ فِى ٱلْحَرْثِ ...إِذْ نَفَشَتْ فِيهِ غَنَمُ ٱلْقَوْمِ ...وَكُنَّا لِحُكْمِهِمْ شَـٰهِدِينَ](https://quran.com/21/78)
+* __Surah Al-Anbiya 21/79__: [فَفَهَّمْنَـٰهَا سُلَيْمَـٰنَ ۚ... وَكُلًّا ءَاتَيْنَا حُكْمًۭا وَعِلْمًۭا... ۚ وَسَخَّرْنَا مَعَ دَاوُۥدَ ٱلْجِبَالَ يُسَبِّحْنَ وَٱلطَّيْرَ ۚ... وَكُنَّا فَـٰعِلِينَ](https://quran.com/21/79)
+* __Surah Al-Anbiya 21/81__: [وَلِسُلَيْمَـٰنَ ...ٱلرِّيحَ عَاصِفَةًۭ تَجْرِى بِأَمْرِهِۦٓ... إِلَى ٱلْأَرْضِ ٱلَّتِى بَـٰرَكْنَا فِيهَا ۚ... وَكُنَّا بِكُلِّ شَىْءٍ عَـٰلِمِينَ](https://quran.com/21/81)
 
 ***
 

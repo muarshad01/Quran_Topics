@@ -39,7 +39,7 @@
 1. Khidajah Kubra RA - Adult Woman (Siddiqua Kubra)
 2. Hazrat Abubakar RA - Adult Man (Siddique Akbar)
 3. Hazarat Ali RA - Kid
-4. 4 Zyad ibn Haris
+4. Zyad ibn Haris
 
 ***
 

@@ -69,19 +69,19 @@
   
 ***
 
-* __Surah At-Tawba 9/70__: [Have they not received the stories of those ˹destroyed˺ before them: the people of Noah, ’Âd, and Thamûd, the people of Abraham, the residents of Midian, and the overturned cities ˹of Lot˺? Their messengers came to them with clear proofs. Allah would have never wronged them, but it was they who wronged themselves.](https://quranwbw.com/9/70)
+* __Surah At-Tawba 9/70__: [أَلَمْ يَأْتِهِمْ نَبَأُ ٱلَّذِينَ مِن قَبْلِهِمْ قَوْمِ نُوحٍۢ وَعَادٍۢ وَثَمُودَ وَقَوْمِ إِبْرَٰهِيمَ وَأَصْحَـٰبِ مَدْيَنَ وَٱلْمُؤْتَفِكَـٰتِ ۚ أَتَتْهُمْ رُسُلُهُم بِٱلْبَيِّنَـٰتِ ۖ فَمَا كَانَ ٱللَّهُ لِيَظْلِمَهُمْ وَلَـٰكِن كَانُوٓا۟ أَنفُسَهُمْ يَظْلِمُونَ](https://quran.com/9/70)
 
-* __Surah At-Tawba 9/114__: [As for Abraham’s prayer for his father’s forgiveness, it was only in fulfilment of a promise he had made to him. But when it became clear to Abraham that his father was an enemy of Allah, he broke ties with him.1 Abraham was truly tender-hearted, forbearing.](https://quranwbw.com/9/114)
+* __Surah At-Tawba 9/114 (إِنَّ إِبْرَٰهِيمَ لَأَوَّٰهٌ حَلِيمٌۭ)__: [وَمَا كَانَ ٱسْتِغْفَارُ إِبْرَٰهِيمَ لِأَبِيهِ إِلَّا عَن مَّوْعِدَةٍۢ وَعَدَهَآ إِيَّاهُ فَلَمَّا تَبَيَّنَ لَهُۥٓ أَنَّهُۥ عَدُوٌّۭ لِّلَّهِ تَبَرَّأَ مِنْهُ ۚ... إِنَّ إِبْرَٰهِيمَ لَأَوَّٰهٌ حَلِيمٌۭ](https://quran.com/9/114)
 
 ***
 
-* __Surah Hud 11/69__: [And surely Our messenger-angels came to Abraham with good news ˹of a son˺. They greeted ˹him with˺, “Peace!” And he replied, “Peace ˹be upon you˺!” Then it was not long before he brought ˹them˺ a ˹fat,˺ roasted calf.](https://quranwbw.com/11/69)
+* __Surah Hud 11/69 (بِعِجْلٍ حَنِيذٍۢ)__: [وَلَقَدْ جَآءَتْ رُسُلُنَآ إِبْرَٰهِيمَ بِٱلْبُشْرَىٰ قَالُوا۟ سَلَـٰمًۭا ۖ قَالَ سَلَـٰمٌۭ ۖ فَمَا لَبِثَ أَن جَآءَ... بِعِجْلٍ حَنِيذٍۢ](https://quran.com/11/69)
 
-* __Surah Hud 11/74__: [Then after the fear had left Abraham, and the good news had reached him, he began to plead with Us for the people of Lot.](https://quranwbw.com/11/74)
+* __Surah Hud 11/74__: [فَلَمَّا ذَهَبَ عَنْ إِبْرَٰهِيمَ ٱلرَّوْعُ وَجَآءَتْهُ ٱلْبُشْرَىٰ يُجَـٰدِلُنَا فِى قَوْمِ لُوطٍ](https://quran.com/11/74)
 
-* __Surah Hud 11/75__: [Truly, Abraham was forbearing, tender-hearted, and ever turning ˹to his Lord˺.](https://quranwbw.com/11/75)
+* __Surah Hud 11/75 (إِنَّ إِبْرَٰهِيمَ لَحَلِيمٌ أَوَّٰهٌۭ مُّنِيبٌۭ)__: [إِنَّ إِبْرَٰهِيمَ ...لَحَلِيمٌ أَوَّٰهٌۭ مُّنِيبٌۭ](https://quran.com/11/75)
 
-* __Surah Hud 11/76__: [˹The angels said,˺ “O Abraham! Plead no more! Your Lord’s decree has already come, and they will certainly be afflicted with a punishment that cannot be averted!”](https://quranwbw.com/11/76)
+* __Surah Hud 11/76__: [يَـٰٓإِبْرَٰهِيمُ أَعْرِضْ عَنْ هَـٰذَآ ۖ... إِنَّهُۥ قَدْ جَآءَ أَمْرُ رَبِّكَ ۖ... وَإِنَّهُمْ ءَاتِيهِمْ عَذَابٌ غَيْرُ مَرْدُودٍۢ](https://quran.com/11/76)
 
 ***
 

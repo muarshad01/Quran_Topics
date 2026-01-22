@@ -1,19 +1,4 @@
-#### [How to strengthen your heart in tough times? | SSA Shah](https://www.youtube.com/watch?v=4_mcKCtfklQ)
-* It is We Who provide for you ([لَا نَسْـَٔلُكَ رِزْقًۭا ۖ نَّحْنُ نَرْزُقُكَ ۗ](https://quran.com/20/132))
-* Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
-* Nuqsaan-o-Faida sab Rabb kay hukum-say-hai
-* "Inna Allaha ala-kulli-shayin Qadeer" (إِنَّ اللَّهَ عَلَىٰ كُلِّ شَيْءٍ قَدِيرٌ)
-* XXX
-* Apnay Rabb par andha-__YAQEEN__ Karna-seekh-layn
-
-***
-
-#### [How to Rely on Allah (SWT) | SSA Shah](https://www.youtube.com/shorts/RoGI9xMJJaI)
-* Allah SWT doesn't like lazy-people (اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ الْهَمِّ وَالْحُزْنِ وَالْعَجْزِ وَالْكَسَلِ , وَالْبُخْلِ وَالْجُبْنِ وَضَلَعِ الدَّيْنِ ,وَغَلَبَةِ الرِّجَالِ ).
-* Allah SWT likes those who strive in His path like-Mujahids ([إِنَّ ٱللَّهَ يُحِبُّ ٱلَّذِينَ... يُقَـٰتِلُونَ فِى سَبِيلِهِۦ... صَفًّۭا كَأَنَّهُم بُنْيَـٰنٌۭ مَّرْصُوصٌۭ](https://quran.com/61/4))
-* We should try-our-best and leave-the-result to Allah SWT.
-
-***
+## Tawakkal
 
 #### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
 * Three types of Yaqeen: 
@@ -31,6 +16,7 @@
 * What is Yaqeen? Death!
 
 * __Surah Al-Hujurat 49/14__: [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
+* __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
 
 ***
 
@@ -55,6 +41,23 @@
 2. Hazrat Abubakar RA - Adult Man (Siddique Akbar)
 3. Hazarat Ali RA - Kid
 4. Zyad ibn Haris
+
+***
+
+#### [How to strengthen your heart in tough times? | SSA Shah](https://www.youtube.com/watch?v=4_mcKCtfklQ)
+* It is We Who provide for you ([لَا نَسْـَٔلُكَ رِزْقًۭا ۖ نَّحْنُ نَرْزُقُكَ ۗ](https://quran.com/20/132))
+* Zindagi-aur-maut, Izzat-aur-zillat Rabb kay haath-mayn-hai
+* Nuqsaan-o-Faida sab Rabb kay hukum-say-hai
+* "Inna Allaha ala-kulli-shayin Qadeer" (إِنَّ اللَّهَ عَلَىٰ كُلِّ شَيْءٍ قَدِيرٌ)
+* XXX
+* Apnay Rabb par andha-__YAQEEN__ Karna-seekh-layn
+
+***
+
+#### [How to Rely on Allah (SWT) | SSA Shah](https://www.youtube.com/shorts/RoGI9xMJJaI)
+* Allah SWT doesn't like lazy-people (اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ الْهَمِّ وَالْحُزْنِ وَالْعَجْزِ وَالْكَسَلِ , وَالْبُخْلِ وَالْجُبْنِ وَضَلَعِ الدَّيْنِ ,وَغَلَبَةِ الرِّجَالِ ).
+* Allah SWT likes those who strive in His path like-Mujahids ([إِنَّ ٱللَّهَ يُحِبُّ ٱلَّذِينَ... يُقَـٰتِلُونَ فِى سَبِيلِهِۦ... صَفًّۭا كَأَنَّهُم بُنْيَـٰنٌۭ مَّرْصُوصٌۭ](https://quran.com/61/4))
+* We should try-our-best and leave-the-result to Allah SWT.
 
 ***
 

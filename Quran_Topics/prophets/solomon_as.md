@@ -5,15 +5,16 @@
 
 ***
 
-* __Surah Al-Baqarah 2/102__: [They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon. Never did Solomon disbelieve, rather the devils disbelieved. They taught magic to the people, along with what had been revealed to the two angels, Hârût and Mârût, in Babylon.1 The two angels never taught anyone without saying, “We are only a test ˹for you˺, so do not abandon ˹your˺ faith.” Yet people learned ˹magic˺ that caused a rift ˹even˺ between husband and wife; although their magic could not harm anyone except by Allah’s Will. They learned what harmed them and did not benefit them—although they already knew that whoever buys into magic would have no share in the Hereafter. Miserable indeed was the price for which they sold their souls, if only they knew!](https://quranwbw.com/2/102)
+* __Surah Al-Baqarah 2/102__: [وَٱتَّبَعُوا۟... مَا تَتْلُوا۟ ٱلشَّيَـٰطِينُ عَلَىٰ مُلْكِ سُلَيْمَـٰنَ ۖ... وَمَا كَفَرَ سُلَيْمَـٰنُ وَلَـٰكِنَّ ٱلشَّيَـٰطِينَ كَفَرُوا۟... يُعَلِّمُونَ ٱلنَّاسَ ٱلسِّحْرَ ...وَمَآ أُنزِلَ عَلَى ٱلْمَلَكَيْنِ بِبَابِلَ هَـٰرُوتَ وَمَـٰرُوتَ ۚ... وَمَا يُعَلِّمَانِ مِنْ أَحَدٍ حَتَّىٰ يَقُولَآ إِنَّمَا نَحْنُ فِتْنَةٌۭ فَلَا تَكْفُرْ ۖ... فَيَتَعَلَّمُونَ مِنْهُمَا مَا يُفَرِّقُونَ بِهِۦ بَيْنَ ٱلْمَرْءِ وَزَوْجِهِۦ ۚ... وَمَا هُم بِضَآرِّينَ بِهِۦ مِنْ أَحَدٍ إِلَّا بِإِذْنِ ٱللَّهِ ۚ... وَيَتَعَلَّمُونَ مَا يَضُرُّهُمْ وَلَا يَنفَعُهُمْ ۚ... وَلَقَدْ عَلِمُوا۟ لَمَنِ ٱشْتَرَىٰهُ مَا لَهُۥ فِى ٱلْـَٔاخِرَةِ مِنْ خَلَـٰقٍۢ ۚ... وَلَبِئْسَ مَا شَرَوْا۟ بِهِۦٓ أَنفُسَهُمْ ۚ... لَوْ كَانُوا۟ يَعْلَمُونَ](https://quran.com/2/102)
+* They ˹instead˺ followed the magic promoted by the devils during the reign of Solomon. Never did Solomon disbelieve, rather the devils disbelieved. They taught magic to the people, along with what had been revealed to the two angels, Hârût and Mârût, in Babylon.1 The two angels never taught anyone without saying, “We are only a test ˹for you˺, so do not abandon ˹your˺ faith.” Yet people learned ˹magic˺ that caused a rift ˹even˺ between husband and wife; although their magic could not harm anyone except by Allah’s Will. They learned what harmed them and did not benefit them—although they already knew that whoever buys into magic would have no share in the Hereafter. Miserable indeed was the price for which they sold their souls, if only they knew!
 
 ***
 
-* __Surah An-Nisa 4/163__: [Indeed, We have sent revelation to you ˹O Prophet˺ as We sent revelation to Noah and the prophets after him. We also sent revelation to Abraham, Ishmael, Isaac, Jacob, and his descendants, ˹as well as˺ Jesus, Job, Jonah, Aaron, and Solomon. And to David We gave the Psalms.](https://quranwbw.com/4/163)
+* __Surah An-Nisa 4/163__: [۞ إِنَّآ أَوْحَيْنَآ إِلَيْكَ كَمَآ أَوْحَيْنَآ إِلَىٰ نُوحٍۢ وَٱلنَّبِيِّـۧنَ مِنۢ بَعْدِهِۦ... ۚ وَأَوْحَيْنَآ إِلَىٰٓ إِبْرَٰهِيمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطِ ...وَعِيسَىٰ وَأَيُّوبَ وَيُونُسَ وَهَـٰرُونَ وَسُلَيْمَـٰنَ ۚ... وَءَاتَيْنَا دَاوُۥدَ زَبُورًۭا](https://quran.com/4/163)
 
 ***
 
-* __Surah Al-Anam 6/84__: [And We blessed him with Isaac and Jacob. We guided them all as We previously guided Noah and those among his descendants: David, Solomon, Job, Joseph, Moses, and Aaron. This is how We reward the good-doers.](https://quranwbw.com/6/84)
+* __Surah Al-Anam 6/84__: [وَوَهَبْنَا لَهُۥٓ... إِسْحَـٰقَ وَيَعْقُوبَ ۚ... كُلًّا هَدَيْنَا ۚ... وَنُوحًا هَدَيْنَا مِن قَبْلُ ۖ... وَمِن ذُرِّيَّتِهِۦ دَاوُۥدَ وَسُلَيْمَـٰنَ وَأَيُّوبَ وَيُوسُفَ وَمُوسَىٰ وَهَـٰرُونَ ۚ... وَكَذَٰلِكَ نَجْزِى ٱلْمُحْسِنِينَ](https://quran.com/6/84)
 
 ***
 

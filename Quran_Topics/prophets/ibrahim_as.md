@@ -1,117 +1,13 @@
-#### [Abraham AS](https://www.youtube.com/shorts/lh43jJUmknQ)
-* __Surah Al-Baqarah 2/124 (وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ)__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ قَالَ وَمِن ذُرِّيَّتِى ۖ قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
-* __Surah An-Nahl 16/123 (وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ)__: [ثُمَّ أَوْحَيْنَآ إِلَيْكَ أَنِ ٱتَّبِعْ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۖ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/16/123)
-* __Surah As-Saffat 37/100-107__: [](https://quran.com/37/100-107)
-* __Surah An-Najm 53/37 (Wafaa: وَفَّىٰٓ)__: [وَإِبْرَٰهِيمَ ٱلَّذِى وَفَّىٰٓ](https://quran.com/53/37)
+## Abraham AS
 
-**** 
+* __Surah Al-Baqarah 2/124 (۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ... فَأَتَمَّهُنَّ ۖ... قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ... قَالَ وَمِن ذُرِّيَّتِى ۖ... قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ)__: [https://quran.com/2/124](https://quran.com/2/124)
+* In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them".
+1. It is a combination of the conjunction "fa" (ف), meaning "and",
+2. and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed",
+3. with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
 
-#### Abraham Father 
-* __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
-
-#### Abraham Wives
-* Three Wives
-1. Sara (Ishaq)
-2. Hajra (Ismail), and
-3. Keturah (5/6 other sons)
-
-#### Argument with King Namrood
-* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quran.com/2/258)
-
-#### Was ordered to Leave Ismael-and-Hajra in Makkah
-* While the Quran does not explicitly detail every aspect of this event, several verses allude to it and its significance:
-* __Surah Al-Baqarah 2/127-129__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.](https://quranwbw.com/2/127-129)
-* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quranwbw.com/14/37)
-
-#### Was ordered to Slaughter his Son in Dream
-* [(101) So We gave him good news of a forbearing son...](https://quranwbw.com/37/101-113)
-
-#### Birth Place of Ibrahim
-* The `city of Ur, located in present-day southern Iraq`, is traditionally considered the birthplace of the biblical Abraham (Ibrahim in Arabic)
-
-***
-
-#### [Hospitality of Hazrat Ibrahim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/lhXScYPa4TY)
-
-***
-
-#### [Hazrat Ibrahim AS K Kitny Bety Thy? | Mout Kay Waqat Kia Nasehat Ki? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=o3mX6_nP4rw)
-* Prophet Abraham had 7 sons:
-* From Sara (son Ishaq)
-* From Hajra (son Ismail)
-* From Ketura (5 other sons)
-* Ishaq had son Yaqub (Jacob)[Israeil (Abdullah); Isra means - servant; eil - Allah]. Jacob had 12 sons.
-* __Surah Al-Baqarah 2/132 (${\color{red}Die ~only ~as ~a ~Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
-
-***
-
-#### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
-* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
-* Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
-* Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
-
-* __Surah Al-Baqarah 2/134__: [That was a community that had already gone before. For them is what they earned and for you is what you have earned. And you will not be accountable for what they have done.](https://quranwbw.com/2/134)
-
-***
-
-### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
-* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
-* Vulture, Hen, Crow, Peacock 
-
-***
-
-#### [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
-* Jail superintendent of baghdad
-
-***
-
-#### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Kv6J4owCWYM)
-* __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)
-
-***
-
-### [Hazrat Ibrahim Ka Imtehan Ka Waqia | Mufti Muneer Akhoon](https://www.youtube.com/shorts/HS9EZ-NTqns)
-* Allah SWT asked Angel that go and test Ibrahim AS, "He will sacrifice his everything on my name"
-* You're taking my Mehboob's name, read it once more. 
-* I'll even give my everything on His name even Myself
-#### At death time
-* Kaun sa Aisa Mehboob ha jo Mehboob ki Jaan-Lay-Ga
-* Kaun sa Aisa Mehboo Ha Jo Mehboo Say Milna-Nahi Chachay-Gaa
-
-***
-
-### [Hazrat ibrahim ka waqia | khlil Ullah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=WnjnwARuoXA)
-```
-سُبْحانَ ذِي الْمُلْكِ وَالْمَلَكُوتِ سُبْحانَ ذِي الْعِزَّةِ وَالْعَظَمَةِ وَالْهَيْبَةِ وَالْقُدْرَةِ وَالْكِبْرِياءِ وَالْجَبَرُوْتِ سُبْحانَ الْمَلِكِ الْحَيِّ الَّذِيْ لا يَنامُ وَلا يَمُوتُسُبُّوْحٌ قُدُّوْسٌ رَبُّنا وَرَبُّ المْلائِكَةِ وَالرُّوْحِ اللَّهُمَّ أَجِرْنا مِنَ النّارِ يا مُجيرُ يا مُجيرُ يا مُجيرُ
-```
-
-```
-Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.  Exalted is the Master, the Living, the one who neither sleeps nor dies.  All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.  O Allāh, grant us refuge from the Hellfire.  O Granter of refuge, O Granter of refuge, O Granter of refuge.
-```
-
-***
-
-
-### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
-### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
-### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
-
-***
-
-(2:124)
-١٢٤  وَإِذِ ابْتَلَىٰ إِبْرَاهِيمَ رَبُّهُ بِكَلِمَاتٍ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّي جَاعِلُكَ لِلنَّاسِ إِمَامًا ۖ قَالَ وَمِنْ ذُرِّيَّتِي ۖ قَالَ لَا يَنَالُ عَهْدِي الظَّالِمِينَ
-
-* __Surah Al-Baqarah 2/124 (${\color{red}Imam ~of ~Naas}$)__: [˹Remember˺ when Abraham was tested by his Lord with ˹certain˺ commandments, which he fulfilled. Allah said, “I will certainly make you into a role model for the people.” Abraham asked, “What about my offspring?” Allah replied, “My covenant is not extended to the wrongdoers.”](https://quranwbw.com/2/124)
-  * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them". It is a combination of the conjunction "fa" (ف), meaning "and", and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed", with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
-
-***
-
-(2:125)
-
-١٢٥  وَإِذْ جَعَلْنَا الْبَيْتَ مَثَابَةً لِلنَّاسِ وَأَمْنًا وَاتَّخِذُوا مِنْ مَقَامِ إِبْرَاهِيمَ مُصَلًّى ۖ وَعَهِدْنَا إِلَىٰ إِبْرَاهِيمَ وَإِسْمَاعِيلَ أَنْ طَهِّرَا بَيْتِيَ لِلطَّائِفِينَ وَالْعَاكِفِينَ وَالرُّكَّعِ السُّجُودِ
-
-* __Surah Al-Baqarah 2/125__: [And ˹remember˺ when We made the Sacred House a centre and a sanctuary for the people ˹saying˺, “˹You may˺ take the standing-place of Abraham as a site of prayer.” And We entrusted Abraham and Ishmael to purify My House for those who circle it, who meditate in it, and who bow and prostrate themselves ˹in prayer˺.](https://quranwbw.com/2/125)
-  * The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering
+* __Surah Al-Baqarah 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ ](https://quran.com/2/125)
+* The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering
 
 ***
 
@@ -119,14 +15,8 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ١٢٦  وَإِذْ قَالَ إِبْرَاهِيمُ رَبِّ اجْعَلْ هَٰذَا بَلَدًا آمِنًا وَارْزُقْ أَهْلَهُ مِنَ الثَّمَرَاتِ مَنْ آمَنَ مِنْهُمْ بِاللَّهِ وَالْيَوْمِ الْآخِرِ ۖ قَالَ وَمَنْ كَفَرَ فَأُمَتِّعُهُ قَلِيلًا ثُمَّ أَضْطَرُّهُ إِلَىٰ عَذَابِ النَّارِ ۖ وَبِئْسَ الْمَصِيرُ
 
-* __Surah Al-Baqarah 2/126__: [And ˹remember˺ when Abraham said, “My Lord, make this city ˹of Mecca˺ secure and provide fruits to its people—those among them who believe in Allah and the Last Day.” He answered, “As for those who disbelieve, I will let them enjoy themselves for a little while, then I will condemn them to the torment of the Fire. What an evil destination!”](https://quranwbw.com/2/126)
+* __Surah Al-Baqarah 2/126__: [وَإِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّ ٱجْعَلْ هَـٰذَا بَلَدًا ءَامِنًۭا وَٱرْزُقْ أَهْلَهُۥ مِنَ ٱلثَّمَرَٰتِ مَنْ ءَامَنَ مِنْهُم بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۖ قَالَ وَمَن كَفَرَ فَأُمَتِّعُهُۥ قَلِيلًۭا ثُمَّ أَضْطَرُّهُۥٓ إِلَىٰ عَذَابِ ٱلنَّارِ ۖ وَبِئْسَ ٱلْمَصِيرُ](https://quran.com/2/126)
   
-***
-
-(2:127)
-
-١٢٧  وَإِذْ يَرْفَعُ إِبْرَاهِيمُ الْقَوَاعِدَ مِنَ الْبَيْتِ وَإِسْمَاعِيلُ رَبَّنَا تَقَبَّلْ مِنَّا ۖ إِنَّكَ أَنْتَ السَّمِيعُ الْعَلِيمُ
-
 * __Surah Al-Baqarah 2/127__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.] (https://quranwbw.com/2/127)
 
 ***
@@ -609,7 +499,105 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ***
 
-## Tawakkal
+#### [Abraham AS](https://www.youtube.com/shorts/lh43jJUmknQ)
+* __Surah Al-Baqarah 2/124 (وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ)__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ قَالَ وَمِن ذُرِّيَّتِى ۖ قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
+* __Surah An-Nahl 16/123 (وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ)__: [ثُمَّ أَوْحَيْنَآ إِلَيْكَ أَنِ ٱتَّبِعْ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۖ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/16/123)
+* __Surah As-Saffat 37/100-107__: [](https://quran.com/37/100-107)
+* __Surah An-Najm 53/37 (Wafaa: وَفَّىٰٓ)__: [وَإِبْرَٰهِيمَ ٱلَّذِى وَفَّىٰٓ](https://quran.com/53/37)
+
+**** 
+
+#### Abraham Father 
+* __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
+
+#### Abraham Wives
+* Three Wives
+1. Sara (Ishaq)
+2. Hajra (Ismail), and
+3. Keturah (5/6 other sons)
+
+#### Argument with King Namrood
+* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quran.com/2/258)
+
+#### Was ordered to Leave Ismael-and-Hajra in Makkah
+* While the Quran does not explicitly detail every aspect of this event, several verses allude to it and its significance:
+* __Surah Al-Baqarah 2/127-129__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.](https://quranwbw.com/2/127-129)
+* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quranwbw.com/14/37)
+
+#### Was ordered to Slaughter his Son in Dream
+* [(101) So We gave him good news of a forbearing son...](https://quranwbw.com/37/101-113)
+
+#### Birth Place of Ibrahim
+* The `city of Ur, located in present-day southern Iraq`, is traditionally considered the birthplace of the biblical Abraham (Ibrahim in Arabic)
+
+***
+
+#### [Hospitality of Hazrat Ibrahim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/lhXScYPa4TY)
+
+***
+
+#### [Hazrat Ibrahim AS K Kitny Bety Thy? | Mout Kay Waqat Kia Nasehat Ki? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=o3mX6_nP4rw)
+* Prophet Abraham had 7 sons:
+* From Sara (son Ishaq)
+* From Hajra (son Ismail)
+* From Ketura (5 other sons)
+* Ishaq had son Yaqub (Jacob)[Israeil (Abdullah); Isra means - servant; eil - Allah]. Jacob had 12 sons.
+* __Surah Al-Baqarah 2/132 (${\color{red}Die ~only ~as ~a ~Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
+
+***
+
+#### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
+* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
+* Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
+* Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
+
+* __Surah Al-Baqarah 2/134__: [That was a community that had already gone before. For them is what they earned and for you is what you have earned. And you will not be accountable for what they have done.](https://quranwbw.com/2/134)
+
+***
+
+### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
+* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
+* Vulture, Hen, Crow, Peacock 
+
+***
+
+#### [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
+* Jail superintendent of baghdad
+
+***
+
+#### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Kv6J4owCWYM)
+* __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)
+
+***
+
+### [Hazrat Ibrahim Ka Imtehan Ka Waqia | Mufti Muneer Akhoon](https://www.youtube.com/shorts/HS9EZ-NTqns)
+* Allah SWT asked Angel that go and test Ibrahim AS, "He will sacrifice his everything on my name"
+* You're taking my Mehboob's name, read it once more. 
+* I'll even give my everything on His name even Myself
+#### At death time
+* Kaun sa Aisa Mehboob ha jo Mehboob ki Jaan-Lay-Ga
+* Kaun sa Aisa Mehboo Ha Jo Mehboo Say Milna-Nahi Chachay-Gaa
+
+***
+
+### [Hazrat ibrahim ka waqia | khlil Ullah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=WnjnwARuoXA)
+```
+سُبْحانَ ذِي الْمُلْكِ وَالْمَلَكُوتِ سُبْحانَ ذِي الْعِزَّةِ وَالْعَظَمَةِ وَالْهَيْبَةِ وَالْقُدْرَةِ وَالْكِبْرِياءِ وَالْجَبَرُوْتِ سُبْحانَ الْمَلِكِ الْحَيِّ الَّذِيْ لا يَنامُ وَلا يَمُوتُسُبُّوْحٌ قُدُّوْسٌ رَبُّنا وَرَبُّ المْلائِكَةِ وَالرُّوْحِ اللَّهُمَّ أَجِرْنا مِنَ النّارِ يا مُجيرُ يا مُجيرُ يا مُجيرُ
+```
+
+```
+Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.  Exalted is the Master, the Living, the one who neither sleeps nor dies.  All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.  O Allāh, grant us refuge from the Hellfire.  O Granter of refuge, O Granter of refuge, O Granter of refuge.
+```
+
+***
+
+
+### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
+### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
+### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
+
+***
 
 #### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
 * Three types of Yaqeen: 

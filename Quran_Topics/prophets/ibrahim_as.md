@@ -9,81 +9,28 @@
 * __Surah Al-Baqarah 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ ](https://quran.com/2/125)
 * The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering
 
-***
-
-(2:126)
-
-١٢٦  وَإِذْ قَالَ إِبْرَاهِيمُ رَبِّ اجْعَلْ هَٰذَا بَلَدًا آمِنًا وَارْزُقْ أَهْلَهُ مِنَ الثَّمَرَاتِ مَنْ آمَنَ مِنْهُمْ بِاللَّهِ وَالْيَوْمِ الْآخِرِ ۖ قَالَ وَمَنْ كَفَرَ فَأُمَتِّعُهُ قَلِيلًا ثُمَّ أَضْطَرُّهُ إِلَىٰ عَذَابِ النَّارِ ۖ وَبِئْسَ الْمَصِيرُ
-
 * __Surah Al-Baqarah 2/126__: [وَإِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّ ٱجْعَلْ هَـٰذَا بَلَدًا ءَامِنًۭا وَٱرْزُقْ أَهْلَهُۥ مِنَ ٱلثَّمَرَٰتِ مَنْ ءَامَنَ مِنْهُم بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۖ قَالَ وَمَن كَفَرَ فَأُمَتِّعُهُۥ قَلِيلًۭا ثُمَّ أَضْطَرُّهُۥٓ إِلَىٰ عَذَابِ ٱلنَّارِ ۖ وَبِئْسَ ٱلْمَصِيرُ](https://quran.com/2/126)
   
-* __Surah Al-Baqarah 2/127__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.] (https://quranwbw.com/2/127)
+* __Surah Al-Baqarah 2/127__: [وَإِذْ يَرْفَعُ إِبْرَٰهِـۧمُ ٱلْقَوَاعِدَ مِنَ ٱلْبَيْتِ وَإِسْمَـٰعِيلُ رَبَّنَا تَقَبَّلْ مِنَّآ ۖ إِنَّكَ أَنتَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/127)
 
-***
+* __Surah Al-Baqarah 2/130__: [وَمَن يَرْغَبُ عَن مِّلَّةِ إِبْرَٰهِـۧمَ إِلَّا مَن سَفِهَ نَفْسَهُۥ ۚ وَلَقَدِ ٱصْطَفَيْنَـٰهُ فِى ٱلدُّنْيَا ۖ وَإِنَّهُۥ فِى ٱلْـَٔاخِرَةِ لَمِنَ ٱلصَّـٰلِحِينَ](https://quran.com/2/130)
 
-(2:130)
-
-١٣٠  وَمَنْ يَرْغَبُ عَنْ مِلَّةِ إِبْرَاهِيمَ إِلَّا مَنْ سَفِهَ نَفْسَهُ ۚ وَلَقَدِ اصْطَفَيْنَاهُ فِي الدُّنْيَا ۖ وَإِنَّهُ فِي الْآخِرَةِ لَمِنَ الصَّالِحِينَ
-
-* __Surah Al-Baqarah 2/130 (${\color{red}We ~certainly ~chose ~him ~in ~this ~life}$)__: [And who would reject the faith of Abraham except a fool! We certainly chose him in this life, and in the Hereafter he will surely be among the righteous.](https://quranwbw.com/2/130)
-
-***
-
-(2:132)
-
-١٣٢  وَوَصَّىٰ بِهَا إِبْرَاهِيمُ بَنِيهِ وَيَعْقُوبُ يَا بَنِيَّ إِنَّ اللَّهَ اصْطَفَىٰ لَكُمُ الدِّينَ فَلَا تَمُوتُنَّ إِلَّا وَأَنْتُمْ مُسْلِمُونَ
-
-* __Surah Al-Baqarah 2/132 (${\color{red}Die ~only ~as ~a ~Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
+* __Surah Al-Baqarah 2/132__: [وَوَصَّىٰ بِهَآ إِبْرَٰهِـۧمُ بَنِيهِ وَيَعْقُوبُ يَـٰبَنِىَّ إِنَّ ٱللَّهَ ٱصْطَفَىٰ لَكُمُ ٱلدِّينَ فَلَا تَمُوتُنَّ إِلَّا وَأَنتُم مُّسْلِمُونَ](https://quran.com/2/132)
   
-***
+* __Surah Al-Baqarah 2/133__: [أَمْ كُنتُمْ شُهَدَآءَ إِذْ حَضَرَ يَعْقُوبَ ٱلْمَوْتُ إِذْ قَالَ لِبَنِيهِ مَا تَعْبُدُونَ مِنۢ بَعْدِى قَالُوا۟ نَعْبُدُ إِلَـٰهَكَ وَإِلَـٰهَ ءَابَآئِكَ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ إِلَـٰهًۭا وَٰحِدًۭا وَنَحْنُ لَهُۥ مُسْلِمُونَ](https://quran.com/2/133)
 
-(2:133)
+* __Surah Al-Baqarah 2/135__: [وَقَالُوا۟ كُونُوا۟ هُودًا أَوْ نَصَـٰرَىٰ تَهْتَدُوا۟ ۗ قُلْ بَلْ مِلَّةَ إِبْرَٰهِـۧمَ حَنِيفًۭا ۖ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/2/135)
 
-١٣٣  أَمْ كُنْتُمْ شُهَدَاءَ إِذْ حَضَرَ يَعْقُوبَ الْمَوْتُ إِذْ قَالَ لِبَنِيهِ مَا تَعْبُدُونَ مِنْ بَعْدِي قَالُوا نَعْبُدُ إِلَٰهَكَ وَإِلَٰهَ آبَائِكَ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ إِلَٰهًا وَاحِدًا وَنَحْنُ لَهُ مُسْلِمُونَ
+* __Surah Al-Baqarah 2/136__: [قُولُوٓا۟ ءَامَنَّا بِٱللَّهِ وَمَآ أُنزِلَ إِلَيْنَا وَمَآ أُنزِلَ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطِ وَمَآ أُوتِىَ مُوسَىٰ وَعِيسَىٰ وَمَآ أُوتِىَ ٱلنَّبِيُّونَ مِن رَّبِّهِمْ لَا نُفَرِّقُ بَيْنَ أَحَدٍۢ مِّنْهُمْ وَنَحْنُ لَهُۥ مُسْلِمُونَ](https://quran.com/2/136)
 
-* __Surah Al-Baqarah 2/133__: [Or did you witness when death came to Jacob? He asked his children, “Who will you worship after my passing?” They replied, “We will ˹continue to˺ worship your God, the God of your forefathers—Abraham, Ishmael, and Isaac—the One God. And to Him we ˹all˺ submit.”](https://quranwbw.com/2/133)
-
-***
-
-(2:135)
-
-١٣٥  وَقَالُوا كُونُوا هُودًا أَوْ نَصَارَىٰ تَهْتَدُوا ۗ قُلْ بَلْ مِلَّةَ إِبْرَاهِيمَ حَنِيفًا ۖ وَمَا كَانَ مِنَ الْمُشْرِكِينَ
-
-* __Surah Al-Baqarah 2/135__: [The Jews and Christians each say, “Follow our faith to be ˹rightly˺ guided.” Say, ˹O Prophet,˺ “No! We follow the faith of Abraham, the upright—who was not a polytheist.”](https://quranwbw.com/2/135)
-
-***
-
-(2:136)
-
-١٣٦  قُولُوا آمَنَّا بِاللَّهِ وَمَا أُنْزِلَ إِلَيْنَا وَمَا أُنْزِلَ إِلَىٰ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ وَيَعْقُوبَ وَالْأَسْبَاطِ وَمَا أُوتِيَ مُوسَىٰ وَعِيسَىٰ وَمَا أُوتِيَ النَّبِيُّونَ مِنْ رَبِّهِمْ لَا نُفَرِّقُ بَيْنَ أَحَدٍ مِنْهُمْ وَنَحْنُ لَهُ مُسْلِمُونَ
-
-* __Surah Al-Baqarah 2/136__: [Say, ˹O believers,˺ “We believe in Allah and what has been revealed to us; and what was revealed to Abraham, Ishmael, Isaac, Jacob, and his descendants; and what was given to Moses, Jesus, and other prophets from their Lord. We make no distinction between any of them. And to Allah we all submit.”](https://quranwbw.com/2/136)
-***
-
-(2:140)
-
-١٤٠  أَمْ تَقُولُونَ إِنَّ إِبْرَاهِيمَ وَإِسْمَاعِيلَ وَإِسْحَاقَ وَيَعْقُوبَ وَالْأَسْبَاطَ كَانُوا هُودًا أَوْ نَصَارَىٰ ۗ قُلْ أَأَنْتُمْ أَعْلَمُ أَمِ اللَّهُ ۗ وَمَنْ أَظْلَمُ مِمَّنْ كَتَمَ شَهَادَةً عِنْدَهُ مِنَ اللَّهِ ۗ وَمَا اللَّهُ بِغَافِلٍ عَمَّا تَعْمَلُونَ
-
-* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
+* __Surah Al-Baqarah 2/140__: [أَمْ تَقُولُونَ إِنَّ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطَ كَانُوا۟ هُودًا أَوْ نَصَـٰرَىٰ ۗ قُلْ ءَأَنتُمْ أَعْلَمُ أَمِ ٱللَّهُ ۗ وَمَنْ أَظْلَمُ مِمَّن كَتَمَ شَهَـٰدَةً عِندَهُۥ مِنَ ٱللَّهِ ۗ وَمَا ٱللَّهُ بِغَـٰفِلٍ عَمَّا تَعْمَلُونَ](https://quran.com/2/140)
 * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
 * Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
 
-***
-
-(2:258)
-
-٢٥٨  أَلَمْ تَرَ إِلَى الَّذِي حَاجَّ إِبْرَاهِيمَ فِي رَبِّهِ أَنْ آتَاهُ اللَّهُ الْمُلْكَ إِذْ قَالَ إِبْرَاهِيمُ رَبِّيَ الَّذِي يُحْيِي وَيُمِيتُ قَالَ أَنَا أُحْيِي وَأُمِيتُ ۖ قَالَ إِبْرَاهِيمُ فَإِنَّ اللَّهَ يَأْتِي بِالشَّمْسِ مِنَ الْمَشْرِقِ فَأْتِ بِهَا مِنَ الْمَغْرِبِ فَبُهِتَ الَّذِي كَفَرَ ۗ وَاللَّهُ لَا يَهْدِي الْقَوْمَ الظَّالِمِينَ
-
-* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quranwbw.com/2/258)
+* __Surah Al-Baqarah 2/258__: [أَلَمْ تَرَ إِلَى ٱلَّذِى حَآجَّ إِبْرَٰهِـۧمَ فِى رَبِّهِۦٓ أَنْ ءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ إِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّىَ ٱلَّذِى يُحْىِۦ وَيُمِيتُ قَالَ أَنَا۠ أُحْىِۦ وَأُمِيتُ ۖ قَالَ إِبْرَٰهِـۧمُ فَإِنَّ ٱللَّهَ يَأْتِى بِٱلشَّمْسِ مِنَ ٱلْمَشْرِقِ فَأْتِ بِهَا مِنَ ٱلْمَغْرِبِ فَبُهِتَ ٱلَّذِى كَفَرَ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلظَّـٰلِمِينَ](https://quran.com/2/258)
   * More broadly, the word بهت (bahata) is the root of "Fabuhita" and it signifies to be bewildered, stunned, or dumbfounded. 
 
-***
-
-(2:260)
-
-٢٦٠  وَإِذْ قَالَ إِبْرَاهِيمُ رَبِّ أَرِنِي كَيْفَ تُحْيِي الْمَوْتَىٰ ۖ قَالَ أَوَلَمْ تُؤْمِنْ ۖ قَالَ بَلَىٰ وَلَٰكِنْ لِيَطْمَئِنَّ قَلْبِي ۖ قَالَ فَخُذْ أَرْبَعَةً مِنَ الطَّيْرِ فَصُرْهُنَّ إِلَيْكَ ثُمَّ اجْعَلْ عَلَىٰ كُلِّ جَبَلٍ مِنْهُنَّ جُزْءًا ثُمَّ ادْعُهُنَّ يَأْتِينَكَ سَعْيًا ۚ وَاعْلَمْ أَنَّ اللَّهَ عَزِيزٌ حَكِيمٌ
-
-* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
+* __Surah Al-Baqarah 2/260__: [وَإِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّ أَرِنِى كَيْفَ تُحْىِ ٱلْمَوْتَىٰ ۖ قَالَ أَوَلَمْ تُؤْمِن ۖ قَالَ بَلَىٰ وَلَـٰكِن لِّيَطْمَئِنَّ قَلْبِى ۖ قَالَ فَخُذْ أَرْبَعَةًۭ مِّنَ ٱلطَّيْرِ فَصُرْهُنَّ إِلَيْكَ ثُمَّ ٱجْعَلْ عَلَىٰ كُلِّ جَبَلٍۢ مِّنْهُنَّ جُزْءًۭا ثُمَّ ٱدْعُهُنَّ يَأْتِينَكَ سَعْيًۭا ۚ وَٱعْلَمْ أَنَّ ٱللَّهَ عَزِيزٌ حَكِيمٌۭ](https://quran.com/2/260)
 * Vulture, Hen, Crow, Peacock
   
 ***

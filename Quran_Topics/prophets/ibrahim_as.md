@@ -1,6 +1,6 @@
 ## Abraham AS
 
-* __Surah Al-Baqarah 2/124 (۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ... فَأَتَمَّهُنَّ ۖ... قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ... قَالَ وَمِن ذُرِّيَّتِى ۖ... قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ)__: [https://quran.com/2/124](https://quran.com/2/124)
+* __Surah Al-Baqarah 2/124__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ... فَأَتَمَّهُنَّ ۖ... قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ... قَالَ وَمِن ذُرِّيَّتِى ۖ... قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
 * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them".
 1. It is a combination of the conjunction "fa" (ف), meaning "and",
 2. and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed",

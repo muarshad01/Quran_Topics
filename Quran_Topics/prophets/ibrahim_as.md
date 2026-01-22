@@ -104,11 +104,11 @@
 
 ***
 
-* __Surah Maryam 19/41__: [And mention in the Book ˹O Prophet, the story of˺ Abraham. He was surely a man of truth and a prophet.](https://quranwbw.com/19/41)
+* __Surah Maryam 19/41 (إِنَّهُۥ كَانَ صِدِّيقًۭا نَّبِيًّا)__: [وَٱذْكُرْ فِى ٱلْكِتَـٰبِ إِبْرَٰهِيمَ ۚ ...إِنَّهُۥ كَانَ صِدِّيقًۭا نَّبِيًّا](https://quran.com/19/41)
 
-* __Surah Maryam 19/46__: [He threatened, “How dare you reject my idols, O  Abraham! If you do not desist, I will certainly stone you ˹to death˺. So be gone from me for a long time!”](https://quranwbw.com/19/46)
+* __Surah Maryam 19/46__: [قَالَ أَرَاغِبٌ أَنتَ عَنْ ءَالِهَتِى يَـٰٓإِبْرَٰهِيمُ ۖ... لَئِن لَّمْ تَنتَهِ... لَأَرْجُمَنَّكَ ۖ ...وَٱهْجُرْنِى مَلِيًّۭا](https://quran.com/19/46)
 
-* __Surah Maryam 19/58__: [Those were ˹some of˺ the prophets who Allah has blessed from among the descendants of Adam, and of those We carried with Noah ˹in the Ark˺, and of the descendants of Abraham and Israel,1 and of those We ˹rightly˺ guided and chose. Whenever the revelations of the Most Compassionate were recited to them, they fell down, prostrating and weeping.](https://quranwbw.com/19/58)
+* __Surah Maryam 19/58__: [أُو۟لَـٰٓئِكَ ٱلَّذِينَ أَنْعَمَ ٱللَّهُ عَلَيْهِم مِّنَ ٱلنَّبِيِّـۧنَ مِن ذُرِّيَّةِ ءَادَمَ وَمِمَّنْ حَمَلْنَا مَعَ نُوحٍۢ وَمِن ذُرِّيَّةِ إِبْرَٰهِيمَ وَإِسْرَٰٓءِيلَ وَمِمَّنْ هَدَيْنَا وَٱجْتَبَيْنَآ ۚ إِذَا تُتْلَىٰ عَلَيْهِمْ ءَايَـٰتُ ٱلرَّحْمَـٰنِ خَرُّوا۟ سُجَّدًۭا وَبُكِيًّۭا ۩](https://quran.com/19/58)
 
 ***
 

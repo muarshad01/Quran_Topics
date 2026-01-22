@@ -59,13 +59,13 @@
 
 ***
 
-* __Surah Al-Anaam 6/74 (${\color{red}Father: ~Azar}$)__: [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
+* __Surah Al-Anaam 6/74 (وَإِذْ قَالَ إِبْرَٰهِيمُ لِأَبِيهِ ءَازَرَ)__: [۞ وَإِذْ قَالَ إِبْرَٰهِيمُ لِأَبِيهِ ءَازَرَ... أَتَتَّخِذُ أَصْنَامًا ءَالِهَةً ۖ ...إِنِّىٓ أَرَىٰكَ وَقَوْمَكَ فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/6/74)
   
-* __Surah Al-Anaam 6/75 (${\color{red}We ~showed ~him... ~wonders...}$)__: [We also showed Abraham the wonders of the heavens and the earth, so he would be sure in faith.](https://quranwbw.com/6/75)
+* __Surah Al-Anaam 6/75 (وَكَذَٰلِكَ نُرِىٓ إِبْرَٰهِيمَ مَلَكُوتَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَلِيَكُونَ مِنَ ٱلْمُوقِنِينَ)__: [وَكَذَٰلِكَ نُرِىٓ إِبْرَٰهِيمَ مَلَكُوتَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ... وَلِيَكُونَ مِنَ ٱلْمُوقِنِينَ](https://quran.com/6/75)
 
-* __Surah Al-Anaam 6/83 (${\color{red}We ~elevate ~in ~Ranks...}$)__: [This was the argument We gave Abraham against his people. We elevate in rank whoever We please. Surely your Lord is All-Wise, All-Knowing.](https://quranwbw.com/6/83)
+* __Surah Al-Anaam 6/83 (نَرْفَعُ دَرَجَـٰتٍۢ مَّن نَّشَآ)__: [وَتِلْكَ حُجَّتُنَآ ءَاتَيْنَـٰهَآ إِبْرَٰهِيمَ عَلَىٰ قَوْمِهِۦ ۚ... نَرْفَعُ دَرَجَـٰتٍۢ مَّن نَّشَآءُ ۗ... إِنَّ رَبَّكَ حَكِيمٌ عَلِيمٌۭ](https://quran.com/6/83)
 
-* __Surah Al-Anaam 6/161__: [Say, ˹O Prophet,˺ “Surely my Lord has guided me to the Straight Path, a perfect way, the faith of Abraham, the upright, who was not one of the polytheists.”](https://quranwbw.com/6/161)
+* __Surah Al-Anaam 6/161__: [قُلْ إِنَّنِى هَدَىٰنِى رَبِّىٓ إِلَىٰ صِرَٰطٍۢ مُّسْتَقِيمٍۢ دِينًۭا قِيَمًۭا مِّلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۚ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/6/161)
   
 ***
 

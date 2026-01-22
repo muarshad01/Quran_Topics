@@ -16,6 +16,21 @@
 ***
 
 #### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
+* Three types of Yaqeen: 
+* __Surah At-Takathur 102/5 (عِلْمَ ٱلْيَقِينِ)__: [كَلَّا لَوْ تَعْلَمُونَ عِلْمَ ٱلْيَقِينِ](https://quran.com/102/5)
+* __Surah At-Takathur 102/7 (عَيْنَ ٱلْيَقِينِ)__: [ثُمَّ لَتَرَوُنَّهَا عَيْنَ ٱلْيَقِينِ](https://quran.com/102/7)
+* __Surah Al-Waqiah 56/95 (حَقُّ ٱلْيَقِينِ)__: [إِنَّ هَـٰذَا لَهُوَ حَقُّ ٱلْيَقِينِ](https://quran.com/56/95)
+* __Surah Al-Haqqah 69/51 (لَحَقُّ ٱلْيَقِينِ)__: [وَإِنَّهُۥ لَحَقُّ ٱلْيَقِينِ](https://quran.com/69/51)
+1. Thrown in Fire
+2. Ordered to Slaughter Son
+
+* Khalid bin Walid story of eating goat with Poison.
+
+* Angel asked...
+
+* What is Yaqeen? Death!
+
+* __Surah Al-Hujurat 49/14__: [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
 
 ***
 

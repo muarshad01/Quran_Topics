@@ -49,13 +49,13 @@
 
 * __Surah Ale-i-Imran 3/97__: [In it are clear signs and the standing-place of Abraham. Whoever enters it should be safe. Pilgrimage to this House is an obligation by Allah upon whoever is able among the people.1 And whoever disbelieves, then surely Allah is not in need of ˹any of His˺ creation.](https://quranwbw.com/3/97)
 
-* __Surah An-Nisaa 4/54 (${Book, Wisdom, Great Authority}$)__: [Or do they envy the people for Allah’s bounties? Indeed, We have given the descendants of Abraham the Book and wisdom, along with great authority.](https://quranwbw.com/4/54)
-
 ***
 
-* __Surah An-Nisaa 4/125 (${\color{red}Allah ~chose `Abraham ~as ~a ~close ~friend}$)__: [And who is better in faith than those who ˹fully˺ submit themselves to Allah, do good, and follow the Way of Abraham, the upright? Allah chose Abraham as a close friend.](https://quranwbw.com/4/125)
+* __Surah An-Nisaa 4/54 (${Book, Wisdom, Great Authority}$)__: [Or do they envy the people for Allah’s bounties? Indeed, We have given the descendants of Abraham the Book and wisdom, along with great authority.](https://quran.com/4/54)
 
-* __Surah An-Nisaa 4/163 (${\color{red}And ~to ~David ~We ~gave ~the ~Psalms}$)__: [Indeed, We have sent revelation to you ˹O Prophet˺ as We sent revelation to Noah and the prophets after him. We also sent revelation to Abraham, Ishmael, Isaac, Jacob, and his descendants, ˹as well as˺ Jesus, Job, Jonah, Aaron, and Solomon. And to David We gave the Psalms.](https://quranwbw.com/4/163)
+* __Surah An-Nisaa 4/125 (${\color{red}Allah ~chose `Abraham ~as ~a ~close ~friend}$)__: [And who is better in faith than those who ˹fully˺ submit themselves to Allah, do good, and follow the Way of Abraham, the upright? Allah chose Abraham as a close friend.](https://quran.com/4/125)
+
+* __Surah An-Nisaa 4/163 (${\color{red}And ~to ~David ~We ~gave ~the ~Psalms}$)__: [Indeed, We have sent revelation to you ˹O Prophet˺ as We sent revelation to Noah and the prophets after him. We also sent revelation to Abraham, Ishmael, Isaac, Jacob, and his descendants, ˹as well as˺ Jesus, Job, Jonah, Aaron, and Solomon. And to David We gave the Psalms.](https://quran.com/4/163)
 
 ***
 
@@ -97,6 +97,7 @@
 
 * __Surah Al-Hijr 15/51__: [And inform them ˹O Prophet˺ about Abraham’s guests](https://quranwbw.com/15/51)
 
+***
 
 * __Surah An-Nahl 16/120__: [Indeed, Abraham was a model of excellence: devoted to Allah, ˹perfectly˺ upright—not a polytheist—](https://quranwbw.com/16/120)
 
@@ -206,8 +207,8 @@
 
 #### Was ordered to Leave Ismael-and-Hajra in Makkah
 * While the Quran does not explicitly detail every aspect of this event, several verses allude to it and its significance:
-* __Surah Al-Baqarah 2/127-129__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.](https://quranwbw.com/2/127-129)
-* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quranwbw.com/14/37)
+* __Surah Al-Baqarah 2/127-129__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.](https://quran.com/2/127-129)
+* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quran.com/14/37)
 
 #### Was ordered to Slaughter his Son in Dream
 * [(101) So We gave him good news of a forbearing son...](https://quranwbw.com/37/101-113)
@@ -232,7 +233,7 @@
 ***
 
 #### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
-* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
+* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quran.com/2/140)
 * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
 * Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
 
@@ -241,7 +242,7 @@
 ***
 
 ### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
-* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quranwbw.com/2/260)
+* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quran.com/2/260)
 * Vulture, Hen, Crow, Peacock 
 
 ***
@@ -252,7 +253,7 @@
 ***
 
 #### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Kv6J4owCWYM)
-* __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)
+* __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quran.com/10/107)
 
 ***
 

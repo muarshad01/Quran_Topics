@@ -168,15 +168,15 @@
 
 ***
 
-* __Surah An-Najm 53/37__: [and ˹that of˺ Abraham, who ˹perfectly˺ fulfilled ˹his covenant˺?](https://quranwbw.com/53/37)
+* __Surah An-Najm 53/37__: [وَإِبْرَٰهِيمَ ٱلَّذِى وَفَّىٰٓ](https://quran.com/53/37)
 
-* __Surah Al-Hadid 57/26__: [And indeed, We sent Noah and Abraham and reserved prophethood and revelation for their descendants. Some of them are ˹rightly˺ guided, while most are rebellious.](https://quranwbw.com/57/26)
+* __Surah Al-Hadid 57/26 (وَجَعَلْنَا فِى ذُرِّيَّتِهِمَا ٱلنُّبُوَّةَ وَٱلْكِتَـٰبَ)__: [وَلَقَدْ أَرْسَلْنَا نُوحًۭا وَإِبْرَٰهِيمَ... وَجَعَلْنَا فِى ذُرِّيَّتِهِمَا ٱلنُّبُوَّةَ وَٱلْكِتَـٰبَ ۖ... فَمِنْهُم مُّهْتَدٍۢ ۖ... وَكَثِيرٌۭ مِّنْهُمْ فَـٰسِقُونَ](https://quran.com/57/26)
 
-* __Surah Al-Mumtahana (The One Who is Tested) 60/4__: [You already have an excellent example in Abraham and those with him, when they said to their people, “We totally dissociate ourselves from you and ˹shun˺ whatever ˹idols˺ you worship besides Allah. We reject you. The enmity and hatred that has arisen between us and you will last until you believe in Allah alone.” The only exception is when Abraham said to his father, “I will seek forgiveness for you,˹” adding, “but˺ I cannot protect you from Allah at all.” ˹The believers prayed,˺ “Our Lord! In You we trust. And to You we ˹always˺ turn. And to You is the final return.](https://quranwbw.com/60/4)
+* __Surah Al-Mumtahana 60/4 (...رَّبَّنَا عَلَيْكَ تَوَكَّلْنَا ...وَإِلَيْكَ أَنَبْنَا... وَإِلَيْكَ ٱلْمَصِيرُ)__: [قَدْ كَانَتْ لَكُمْ ...أُسْوَةٌ حَسَنَةٌۭ فِىٓ إِبْرَٰهِيمَ وَٱلَّذِينَ مَعَهُۥٓ... إِذْ قَالُوا۟ لِقَوْمِهِمْ إِنَّا بُرَءَٰٓؤُا۟ مِنكُمْ وَمِمَّا تَعْبُدُونَ مِن دُونِ ٱللَّهِ... كَفَرْنَا بِكُمْ وَبَدَا بَيْنَنَا وَبَيْنَكُمُ ٱلْعَدَٰوَةُ وَٱلْبَغْضَآءُ أَبَدًا... حَتَّىٰ تُؤْمِنُوا۟ بِٱللَّهِ وَحْدَهُۥٓ... إِلَّا قَوْلَ إِبْرَٰهِيمَ لِأَبِيهِ لَأَسْتَغْفِرَنَّ لَكَ ...وَمَآ أَمْلِكُ لَكَ مِنَ ٱللَّهِ مِن شَىْءٍۢ ۖ ...رَّبَّنَا عَلَيْكَ تَوَكَّلْنَا ...وَإِلَيْكَ أَنَبْنَا... وَإِلَيْكَ ٱلْمَصِيرُ](https://quran.com/60/4)
 
 ***
 
-* __Surah Al-Alaa 87/19__: [the Scriptures of Abraham and Moses.](https://quranwbw.com/87/19)
+* __Surah Al-Alaa 87/19__: [صُحُفِ إِبْرَٰهِيمَ وَمُوسَىٰ](https://quran.com/87/19)
 
 ***
 

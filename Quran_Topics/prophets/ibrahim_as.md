@@ -112,13 +112,13 @@
 
 ***
 
-* __Surah Al-Anbiyaa 21/51__: [And indeed, We had granted Abraham sound judgment early on, for We knew him well ˹to be worthy of it˺.](https://quranwbw.com/21/51)
+* __Surah Al-Anbiyaa 21/51 (ءَاتَيْنَآ إِبْرَٰهِيمَ رُشْدَهُۥ مِن قَبْلُ)__: [۞ وَلَقَدْ ...ءَاتَيْنَآ إِبْرَٰهِيمَ رُشْدَهُۥ مِن قَبْلُ... وَكُنَّا بِهِۦ عَـٰلِمِينَ](https://quran.com/21/51)
 
-* __Surah Al-Anbiyaa 21/60__: [Some said, “We heard a young man, called Abraham, speaking ˹ill˺ of them.”](https://quranwbw.com/21/60)
+* __Surah Al-Anbiyaa 21/60__: [قَالُوا۟ سَمِعْنَا فَتًۭى يَذْكُرُهُمْ ...يُقَالُ لَهُۥٓ إِبْرَٰهِيمُ](https://quran.com/21/60)
 
-* __Surah Al-Anbiyaa 21/62__: [They asked, “Was it you who did this to our gods, O  Abraham?”](https://quranwbw.com/21/62)
+* __Surah Al-Anbiyaa 21/62__: [قَالُوٓا۟ ءَأَنتَ فَعَلْتَ هَـٰذَا بِـَٔالِهَتِنَا يَـٰٓإِبْرَٰهِيمُ](https://quran.com/21/62)
 
-* __Surah Al-Anbiyaa 21/69 (${\color{red}O ~Fire!, ~Be ~Cool!}$)__: [We ordered, “O fire! Be cool and safe for Abraham!”1](https://quranwbw.com/21/69)
+* __Surah Al-Anbiyaa 21/69__: [قُلْنَا يَـٰنَارُ كُونِى بَرْدًۭا وَسَلَـٰمًا عَلَىٰٓ إِبْرَٰهِيمَ](https://quran.com/21/69)
 
 ***
 

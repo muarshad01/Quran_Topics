@@ -1,4 +1,4 @@
-#### [Ibrahim A. S](https://www.youtube.com/shorts/lh43jJUmknQ)
+#### [Abraham AS](https://www.youtube.com/shorts/lh43jJUmknQ)
 * __Surah Al-Baqarah 2/124 (وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ)__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ قَالَ وَمِن ذُرِّيَّتِى ۖ قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
 * __Surah An-Nahl 16/123 (وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ)__: [ثُمَّ أَوْحَيْنَآ إِلَيْكَ أَنِ ٱتَّبِعْ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۖ وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/16/123)
 * __Surah As-Saffat 37/100-107__: [](https://quran.com/37/100-107)
@@ -6,15 +6,17 @@
 
 **** 
 
-
-#### Abraham AS Father 
+#### Abraham Father 
 * __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
 
-#### Abraham
-* Three Wives: Sara (Ishaq), Hajra (Ismail), and Keturah (5/6 other sons)
+#### Abraham Wives
+* Three Wives
+1. Sara (Ishaq)
+2. Hajra (Ismail), and
+3. Keturah (5/6 other sons)
 
 #### Argument with King Namrood
-* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quranwbw.com/2/258)
+* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quran.com/2/258)
 
 #### Was ordered to Leave Ismael-and-Hajra in Makkah
 * While the Quran does not explicitly detail every aspect of this event, several verses allude to it and its significance:
@@ -29,11 +31,11 @@
 
 ***
 
-### [Hospitality of Hazrat Ibrahim](https://www.youtube.com/shorts/lhXScYPa4TY)
+#### [Hospitality of Hazrat Ibrahim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/lhXScYPa4TY)
 
 ***
 
-### [Hazrat Ibrahim AS K Kitny Bety Thy? | Mout Kay Waqat Kia Nasehat Ki? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=o3mX6_nP4rw)
+#### [Hazrat Ibrahim AS K Kitny Bety Thy? | Mout Kay Waqat Kia Nasehat Ki? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=o3mX6_nP4rw)
 * Prophet Abraham had 7 sons:
 * From Sara (son Ishaq)
 * From Hajra (son Ismail)
@@ -43,7 +45,7 @@
 
 ***
 
-### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
+#### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
 * __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quranwbw.com/2/140)
 * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
 * Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
@@ -58,12 +60,12 @@
 
 ***
 
-[Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
+#### [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
 * Jail superintendent of baghdad
 
 ***
 
-#### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat](https://www.youtube.com/watch?v=Kv6J4owCWYM)
+#### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Kv6J4owCWYM)
 * __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quranwbw.com/10/107)
 
 ***
@@ -603,4 +605,28 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 
 ***
 
-* https://www.youtube.com/shorts/7KxfWDupIrI
+#### [Nauman Ali Khan](https://www.youtube.com/shorts/7KxfWDupIrI)
+
+***
+
+## Tawakkal
+
+#### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
+* Three types of Yaqeen: 
+* __Surah At-Takathur 102/5 (عِلْمَ ٱلْيَقِينِ)__: [كَلَّا لَوْ تَعْلَمُونَ عِلْمَ ٱلْيَقِينِ](https://quran.com/102/5)
+* __Surah At-Takathur 102/7 (عَيْنَ ٱلْيَقِينِ)__: [ثُمَّ لَتَرَوُنَّهَا عَيْنَ ٱلْيَقِينِ](https://quran.com/102/7)
+* __Surah Al-Waqiah 56/95 (حَقُّ ٱلْيَقِينِ)__: [إِنَّ هَـٰذَا لَهُوَ حَقُّ ٱلْيَقِينِ](https://quran.com/56/95)
+* __Surah Al-Haqqah 69/51 (لَحَقُّ ٱلْيَقِينِ)__: [وَإِنَّهُۥ لَحَقُّ ٱلْيَقِينِ](https://quran.com/69/51)
+1. Thrown in Fire
+2. Ordered to Slaughter Son
+
+* Khalid bin Walid story of eating goat with Poison.
+
+* Angel asked...
+
+* What is Yaqeen? Death!
+
+* __Surah Al-Hujurat 49/14__: [۞ قَالَتِ ٱلْأَعْرَابُ ءَامَنَّا ۖ قُل لَّمْ تُؤْمِنُوا۟ وَلَـٰكِن قُولُوٓا۟ أَسْلَمْنَا وَلَمَّا يَدْخُلِ ٱلْإِيمَـٰنُ فِى قُلُوبِكُمْ ۖ وَإِن تُطِيعُوا۟ ٱللَّهَ وَرَسُولَهُۥ لَا يَلِتْكُم مِّنْ أَعْمَـٰلِكُمْ شَيْـًٔا ۚ إِنَّ ٱللَّهَ غَفُورٌۭ رَّحِيمٌ](https://quran.com/49/14)
+* __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
+
+***

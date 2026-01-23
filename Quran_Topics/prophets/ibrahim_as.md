@@ -35,19 +35,19 @@
   
 ***
 
-* __Surah Ale-i-Imran 3/33 (${\color{red}Allah ~SWT ~Chose: ~Adam, ~Noah, ~Abraham..., ~Imran...}$)__: [Indeed, Allah chose Adam, Noah, the family of Abraham, and the family of ’Imrân above all people ˹of their time˺.](https://quranwbw.com/3/33)
+* __Surah Ale-Imran 3/33 (إِنَّ ٱللَّهَ ٱصْطَفَىٰٓ ...)__: [۞ إِنَّ ٱللَّهَ ٱصْطَفَىٰٓ ...ءَادَمَ وَنُوحًۭا وَءَالَ إِبْرَٰهِيمَ وَءَالَ عِمْرَٰنَ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/3/33)
 
-* __Surah Ale-i-Imran 3/65__: [O People of the Book! Why do you argue about Abraham, while the Torah and the Gospel were not revealed until long after him? Do you not understand?](https://quranwbw.com/3/65)
+* __Surah Ale-Imran 3/65__: [يَـٰٓأَهْلَ ٱلْكِتَـٰبِ ...لِمَ تُحَآجُّونَ فِىٓ إِبْرَٰهِيمَ... وَمَآ أُنزِلَتِ ٱلتَّوْرَىٰةُ وَٱلْإِنجِيلُ إِلَّا مِنۢ بَعْدِهِۦٓ ۚ أَفَلَا تَعْقِلُونَ](https://quran.com/3/65)
 
-* __Surah Ale-i-Imran 3/67__: [Abraham was neither a Jew nor a Christian; he submitted in all uprightness1 and was not a polytheist.](https://quranwbw.com/3/67)
+* __Surah Ale-Imran 3/67__: [مَا كَانَ إِبْرَٰهِيمُ يَهُودِيًّۭا وَلَا نَصْرَانِيًّۭا... وَلَـٰكِن كَانَ حَنِيفًۭا مُّسْلِمًۭا ...وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/3/67)
 
-* __Surah Ale-i-Imran 3/68__: [Indeed, those who have the best claim to Abraham are his followers, this Prophet, and the believers. And Allah is the Guardian of those who believe.](https://quranwbw.com/3/68)
+* __Surah Ale-Imran 3/68__: [إِنَّ أَوْلَى ٱلنَّاسِ بِإِبْرَٰهِيمَ... لَلَّذِينَ ٱتَّبَعُوهُ وَهَـٰذَا ٱلنَّبِىُّ وَٱلَّذِينَ ءَامَنُوا۟ ۗ... وَٱللَّهُ وَلِىُّ ٱلْمُؤْمِنِينَ](https://quran.com/3/68)
 
-* __Surah Ale-i-Imran 3/84__: [Say, ˹O Prophet,˺ “We believe in Allah and what has been revealed to us and what was revealed to Abraham, Ishmael, Isaac, Jacob, and his descendants; and what was given to Moses, Jesus, and other prophets from their Lord—we make no distinction between any of them, and to Him we ˹fully˺ submit.”](https://quranwbw.com/3/84)
+* __Surah Ale-Imran 3/84__: [قُلْ ءَامَنَّا بِٱللَّهِ وَمَآ أُنزِلَ عَلَيْنَا وَمَآ أُنزِلَ عَلَىٰٓ إِبْرَٰهِيمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطِ وَمَآ أُوتِىَ مُوسَىٰ وَعِيسَىٰ وَٱلنَّبِيُّونَ مِن رَّبِّهِمْ لَا نُفَرِّقُ بَيْنَ أَحَدٍۢ مِّنْهُمْ وَنَحْنُ لَهُۥ مُسْلِمُونَ](https://quran.com/3/84)
  
-* __Surah Ale-i-Imran 3/95__: [Say, ˹O Prophet,˺ “Allah has declared the truth. So follow the Way of Abraham, the upright—who was not a polytheist.”](https://quranwbw.com/3/95)
+* __Surah Ale-Imran 3/95__: [قُلْ صَدَقَ ٱللَّهُ ۗ... فَٱتَّبِعُوا۟ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا... وَمَا كَانَ مِنَ ٱلْمُشْرِكِينَ](https://quran.com/3/95)
 
-* __Surah Ale-i-Imran 3/97__: [In it are clear signs and the standing-place of Abraham. Whoever enters it should be safe. Pilgrimage to this House is an obligation by Allah upon whoever is able among the people.1 And whoever disbelieves, then surely Allah is not in need of ˹any of His˺ creation.](https://quranwbw.com/3/97)
+* __Surah Ale-Imran 3/97__: [فِيهِ ءَايَـٰتٌۢ بَيِّنَـٰتٌۭ... مَّقَامُ إِبْرَٰهِيمَ ۖ وَمَن دَخَلَهُۥ كَانَ ءَامِنًۭا ۗ... وَلِلَّهِ عَلَى ٱلنَّاسِ حِجُّ ٱلْبَيْتِ مَنِ ٱسْتَطَاعَ إِلَيْهِ سَبِيلًۭا ۚ... وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ عَنِ ٱلْعَـٰلَمِينَ](https://quran.com/3/97)
 
 ***
 

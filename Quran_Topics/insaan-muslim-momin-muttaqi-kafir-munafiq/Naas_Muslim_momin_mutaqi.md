@@ -1,3 +1,7 @@
+#### [3-Signs of a Pious Person | SSA Shah](https://www.youtube.com/shorts/vKSbNQkMTs8)
+
+***
+
 #### Naas, Muslim, Momin, Muttaqi
 * Ameer al-Mominun
 * Ameer al-Mutaqeen

@@ -1,5 +1,9 @@
 ## Abraham AS
 
+### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
+
+***
+
 * __Surah Al-Baqarah 2/124__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ... فَأَتَمَّهُنَّ ۖ... قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ... قَالَ وَمِن ذُرِّيَّتِى ۖ... قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
 * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them".
 1. It is a combination of the conjunction "fa" (ف), meaning "and",
@@ -206,14 +210,10 @@
 * __Surah Ibrahim 14/37 (Ismail & Hajrah in Makkah)__: [رَّبَّنَآ إِنِّىٓ أَسْكَنتُ مِن ذُرِّيَّتِى... بِوَادٍ غَيْرِ ذِى زَرْعٍ ...عِندَ بَيْتِكَ ٱلْمُحَرَّمِ ...رَبَّنَا لِيُقِيمُوا۟ ٱلصَّلَوٰةَ... فَٱجْعَلْ أَفْـِٔدَةًۭ مِّنَ ٱلنَّاسِ تَهْوِىٓ إِلَيْهِمْ... وَٱرْزُقْهُم مِّنَ ٱلثَّمَرَٰتِ لَعَلَّهُمْ يَشْكُرُونَ](https://quran.com/14/37)
 
 #### Was ordered to Slaughter his Son in Dream
-* [(101) So We gave him good news of a forbearing son...](https://quran.com/37/101-113)
+* __Surah As-Saffat 37/101-113 (Goodnes of SON...)__: [](https://quran.com/37/101-113)
 
 #### Birth Place of Ibrahim
 * The `city of Urr, located in present-day southern Iraq`, is traditionally considered the birth-place of the biblical Abraham (Ibrahim in Arabic)
-
-***
-
-#### [Hospitality of Hazrat Ibrahim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/lhXScYPa4TY)
 
 ***
 
@@ -223,32 +223,27 @@
 * From Hajra (son Ismail)
 * From Ketura (5 other sons)
 * Ishaq had son Yaqub (Jacob)[Israeil (Abdullah); Isra means - servant; eil - Allah]. Jacob had 12 sons.
-* __Surah Al-Baqarah 2/132 (${\color{red}Die ~only ~as ~a ~Muslim}$)__: [This was the advice of Abraham—as well as Jacob—to his children, ˹saying˺, “Indeed, Allah has chosen for you this faith; so do not die except in ˹a state of full˺ submission.”](https://quranwbw.com/2/132)
+* __Surah Al-Baqarah 2/132 (فَلَا تَمُوتُنَّ إِلَّا وَأَنتُم مُّسْلِمُونَ)__: [وَوَصَّىٰ بِهَآ إِبْرَٰهِـۧمُ بَنِيهِ وَيَعْقُوبُ يَـٰبَنِىَّ إِنَّ ٱللَّهَ ٱصْطَفَىٰ لَكُمُ ٱلدِّينَ... فَلَا تَمُوتُنَّ إِلَّا وَأَنتُم مُّسْلِمُونَ](https://quran.com/2/132)
 
 ***
 
 #### [Hazrat Ibrahim AS Esai Thy Ya Yahoodi ? | Mufti Muneer Akhoon](https://quranwbw.com/2/140) 
-* __Surah Al-Baqarah 2/140 (${\color{red}Are ~you ~better ~knowing ~or ~Allah ~SWT ~is}$)__: [Do you claim that Abraham, Ishmael, Isaac, Jacob, and his descendants were all Jews or Christians?” Say, “Who is more knowledgeable: you or Allah?” Who does more wrong than those who hide the testimony they received from Allah? And Allah is never unaware of what you do.](https://quran.com/2/140)
-* Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
-* Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
+* __Surah Al-Baqarah 2/140 (... قُلْ ءَأَنتُمْ أَعْلَمُ أَمِ ٱللَّهُ ۗ ...)__: [أَمْ تَقُولُونَ... إِنَّ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطَ كَانُوا۟ هُودًا أَوْ نَصَـٰرَىٰ ۗ... قُلْ ءَأَنتُمْ أَعْلَمُ أَمِ ٱللَّهُ ۗ ...وَمَنْ أَظْلَمُ مِمَّن كَتَمَ شَهَـٰدَةً عِندَهُۥ مِنَ ٱللَّهِ ۗ وَمَا ٱللَّهُ بِغَـٰفِلٍ عَمَّا تَعْمَلُونَ](https://quran.com/2/140)
+  * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
+  * Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
 
-* __Surah Al-Baqarah 2/134__: [That was a community that had already gone before. For them is what they earned and for you is what you have earned. And you will not be accountable for what they have done.](https://quranwbw.com/2/134)
+* __Surah Al-Baqarah 2/134__: [تِلْكَ أُمَّةٌۭ قَدْ خَلَتْ ۖ... لَهَا مَا كَسَبَتْ وَلَكُم مَّا كَسَبْتُمْ ۖ... وَلَا تُسْـَٔلُونَ عَمَّا كَانُوا۟ يَعْمَلُونَ](https://quran.com/2/134)
 
 ***
 
 ### [Allah Ne Hazrat Ibrahim A S Ke Samne Murde Kue Zinda Kia? | Raham TV | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=95VIAEZL474)
-* __Surah Al-Baqarah 2/260__: [And ˹remember˺ when Abraham said, “My Lord! Show me how you give life to the dead.” Allah responded, “Do you not believe?” Abraham replied, “Yes I do, but just so my heart can be reassured.” Allah said, “Then bring four birds, train them to come to you, ˹then cut them into pieces,˺ and scatter them on different hilltops. Then call them back, they will fly to you in haste. And ˹so you will˺ know that Allah is Almighty, All-Wise.”](https://quran.com/2/260)
+* __Surah Al-Baqarah 2/260__: [وَإِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّ أَرِنِى كَيْفَ تُحْىِ ٱلْمَوْتَىٰ ۖ... قَالَ أَوَلَمْ تُؤْمِن... ۖ قَالَ بَلَىٰ وَلَـٰكِن لِّيَطْمَئِنَّ قَلْبِى ۖ... قَالَ فَخُذْ أَرْبَعَةًۭ مِّنَ ٱلطَّيْرِ... فَصُرْهُنَّ إِلَيْكَ... ثُمَّ ٱجْعَلْ عَلَىٰ كُلِّ جَبَلٍۢ مِّنْهُنَّ جُزْءًۭا... ثُمَّ ٱدْعُهُنَّ... يَأْتِينَكَ سَعْيًۭا ۚ... وَٱعْلَمْ أَنَّ ٱللَّهَ عَزِيزٌ حَكِيمٌۭ](https://quran.com/2/260)
 * Vulture, Hen, Crow, Peacock 
 
 ***
 
-#### [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
-* Jail superintendent of baghdad
-
-***
-
 #### [Hazrat Ibrahim Khawas facing the lion How the wild lion will lick the feet of Hazrat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Kv6J4owCWYM)
-* __Surah Yunus 10/107__: [and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”](https://quran.com/10/107)
+* __Surah Yunus 10/107__: [وَإِن يَمْسَسْكَ ٱللَّهُ بِضُرٍّۢ... فَلَا كَاشِفَ لَهُۥٓ... إِلَّا هُوَ ۖ... وَإِن يُرِدْكَ بِخَيْرٍۢ ...فَلَا رَآدَّ لِفَضْلِهِۦ... ۚ يُصِيبُ بِهِۦ... مَن يَشَآءُ مِنْ عِبَادِهِۦ... ۚ وَهُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/10/107)
 
 ***
 
@@ -257,26 +252,24 @@
 * You're taking my Mehboob's name, read it once more. 
 * I'll even give my everything on His name even Myself
 #### At death time
-* Kaun sa Aisa Mehboob ha jo Mehboob ki Jaan-Lay-Ga
-* Kaun sa Aisa Mehboo Ha Jo Mehboo Say Milna-Nahi Chachay-Gaa
+* Kaun sa Aisa Mehboob hay jo Mehboob ki Jaan-Lay-Ga
+* Kaun sa Aisa Mehboob hay Jo Mehboob Say Milna-Nahi Chachay-Gaa
 
 ***
 
 ### [Hazrat ibrahim ka waqia | khlil Ullah | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=WnjnwARuoXA)
 ```
-سُبْحانَ ذِي الْمُلْكِ وَالْمَلَكُوتِ سُبْحانَ ذِي الْعِزَّةِ وَالْعَظَمَةِ وَالْهَيْبَةِ وَالْقُدْرَةِ وَالْكِبْرِياءِ وَالْجَبَرُوْتِ سُبْحانَ الْمَلِكِ الْحَيِّ الَّذِيْ لا يَنامُ وَلا يَمُوتُسُبُّوْحٌ قُدُّوْسٌ رَبُّنا وَرَبُّ المْلائِكَةِ وَالرُّوْحِ اللَّهُمَّ أَجِرْنا مِنَ النّارِ يا مُجيرُ يا مُجيرُ يا مُجيرُ
+سُبْحانَ ذِي الْمُلْكِ وَالْمَلَكُوتِ... سُبْحانَ ذِي الْعِزَّةِ وَالْعَظَمَةِ وَالْهَيْبَةِ وَالْقُدْرَةِ وَالْكِبْرِياءِ وَالْجَبَرُوْتِ... سُبْحانَ الْمَلِكِ الْحَيِّ الَّذِيْ لا يَنامُ وَلا يَمُوتُ...سُبُّوْحٌ قُدُّوْسٌ رَبُّنا وَرَبُّ المْلائِكَةِ وَالرُّوْحِ ...اللَّهُمَّ أَجِرْنا مِنَ النّارِ... يا مُجيرُ يا مُجيرُ يا مُجيرُ
 ```
 
 ```
-Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.  Exalted is the Master, the Living, the one who neither sleeps nor dies.  All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.  O Allāh, grant us refuge from the Hellfire.  O Granter of refuge, O Granter of refuge, O Granter of refuge.
+Exalted is the Possessor of the hidden and the manifest dominion.
+Exalted is the Possessor of Might, Greatness, Reverence, Power, Pride, and Majesty.
+Exalted is the Master, the Living, the one who neither sleeps nor dies.
+All-perfect, All-holy, Our Lord, and the Lord of the angels and the souls.
+O Allāh, grant us refuge from the Hellfire.
+O Granter of refuge, O Granter of refuge, O Granter of refuge.
 ```
-
-***
-
-
-### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
-### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
-### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
 
 ***
 
@@ -301,5 +294,22 @@ Exalted is the Possessor of the hidden and the manifest dominion.  Exalted is th
 ***
 
 #### [Nauman Ali Khan](https://www.youtube.com/shorts/7KxfWDupIrI)
+
+***
+
+#### [Hospitality of Hazrat Ibrahim | Mufti Muneer Akhoon](https://www.youtube.com/shorts/lhXScYPa4TY)
+
+***
+
+#### [Incident of Ibrahim Bin Ishaq | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=pE6AU2lBrJY)
+* Jail superintendent of baghdad
+
+***
+
+### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
+
+***
+
+### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
 
 ***

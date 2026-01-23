@@ -51,11 +51,11 @@
 
 ***
 
-* __Surah An-Nisaa 4/54 (${Book, Wisdom, Great Authority}$)__: [Or do they envy the people for Allah’s bounties? Indeed, We have given the descendants of Abraham the Book and wisdom, along with great authority.](https://quran.com/4/54)
+* __Surah An-Nisaa 4/54 (ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ ...وَءَاتَيْنَـٰهُم مُّلْكًا عَظِيمًۭا)__: [أَمْ يَحْسُدُونَ ٱلنَّاسَ عَلَىٰ مَآ ءَاتَىٰهُمُ ٱللَّهُ مِن فَضْلِهِۦ... ۖ فَقَدْ ءَاتَيْنَآ ءَالَ إِبْرَٰهِيمَ ...ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَءَاتَيْنَـٰهُم مُّلْكًا عَظِيمًۭا](https://quran.com/4/54)
 
-* __Surah An-Nisaa 4/125 (${\color{red}Allah ~chose `Abraham ~as ~a ~close ~friend}$)__: [And who is better in faith than those who ˹fully˺ submit themselves to Allah, do good, and follow the Way of Abraham, the upright? Allah chose Abraham as a close friend.](https://quran.com/4/125)
+* __Surah An-Nisaa 4/125 (وَٱتَّخَذَ ٱللَّهُ إِبْرَٰهِيمَ خَلِيلًۭا)__: [[وَمَنْ أَحْسَنُ دِينًۭا مِّمَّنْ أَسْلَمَ وَجْهَهُۥ لِلَّهِ وَهُوَ مُحْسِنٌۭ وَٱتَّبَعَ مِلَّةَ إِبْرَٰهِيمَ حَنِيفًۭا ۗ... وَٱتَّخَذَ ٱللَّهُ إِبْرَٰهِيمَ خَلِيلًۭا](https://quran.com/4/125)
 
-* __Surah An-Nisaa 4/163 (${\color{red}And ~to ~David ~We ~gave ~the ~Psalms}$)__: [Indeed, We have sent revelation to you ˹O Prophet˺ as We sent revelation to Noah and the prophets after him. We also sent revelation to Abraham, Ishmael, Isaac, Jacob, and his descendants, ˹as well as˺ Jesus, Job, Jonah, Aaron, and Solomon. And to David We gave the Psalms.](https://quran.com/4/163)
+* __Surah An-Nisaa 4/163__: [۞ إِنَّآ أَوْحَيْنَآ إِلَيْكَ كَمَآ أَوْحَيْنَآ إِلَىٰ نُوحٍۢ وَٱلنَّبِيِّـۧنَ مِنۢ بَعْدِهِۦ ۚ... وَأَوْحَيْنَآ إِلَىٰٓ إِبْرَٰهِيمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطِ وَعِيسَىٰ وَأَيُّوبَ وَيُونُسَ وَهَـٰرُونَ وَسُلَيْمَـٰنَ ۚ... وَءَاتَيْنَا دَاوُۥدَ زَبُورًۭا](https://quran.com/4/163)
 
 ***
 

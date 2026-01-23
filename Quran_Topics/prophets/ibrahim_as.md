@@ -188,8 +188,7 @@
 
 **** 
 
-#### Abraham Father 
-* __Surah Al-Anaam 6/74 (Azar)__ [And ˹remember˺ when Abraham said to his father, Ȃzar, “Do you take idols as gods? It is clear to me that you and your people are entirely misguided.”](https://quranwbw.com/6/74)
+* __Surah Al-Anaam 6/74 (Father: لِأَبِيهِ ءَازَرَ)__: [۞ وَإِذْ قَالَ إِبْرَٰهِيمُ ...لِأَبِيهِ ءَازَرَ ...أَتَتَّخِذُ أَصْنَامًا ءَالِهَةً ۖ إِنِّىٓ أَرَىٰكَ وَقَوْمَكَ فِى ضَلَـٰلٍۢ مُّبِينٍۢ](https://quran.com/6/74)
 
 #### Abraham Wives
 * Three Wives
@@ -197,19 +196,20 @@
 2. Hajra (Ismail), and
 3. Keturah (5/6 other sons)
 
-#### Argument with King Namrood
-* __Surah Al-Baqarah 2/258__: [Are you ˹O Prophet˺ not aware of the one who argued with Abraham about his Lord because Allah had granted him kingship? ˹Remember˺ when Abraham said, “My Lord is the One Who has power to give life and cause death.” He argued, “I too have the power to give life and cause death.” Abraham challenged ˹him˺, “Allah causes the sun to rise from the east. So make it rise from the west.” And so the disbeliever was dumbstruck. And Allah does not guide the wrongdoing people.](https://quran.com/2/258)
+* __Surah Al-Baqarah 2/258 (King Namrood)__: [أَلَمْ تَرَ إِلَى ٱلَّذِى حَآجَّ إِبْرَٰهِـۧمَ فِى رَبِّهِۦٓ... أَنْ ءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ ...إِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّىَ ٱلَّذِى يُحْىِۦ وَيُمِيتُ ...قَالَ أَنَا۠ أُحْىِۦ وَأُمِيتُ ۖ... قَالَ إِبْرَٰهِـۧمُ فَإِنَّ ٱللَّهَ يَأْتِى بِٱلشَّمْسِ مِنَ ٱلْمَشْرِقِ فَأْتِ بِهَا مِنَ ٱلْمَغْرِبِ... فَبُهِتَ ٱلَّذِى كَفَرَ ۗ ...وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلظَّـٰلِمِينَ](https://quran.com/2/258)
 
 #### Was ordered to Leave Ismael-and-Hajra in Makkah
 * While the Quran does not explicitly detail every aspect of this event, several verses allude to it and its significance:
-* __Surah Al-Baqarah 2/127-129__: [And ˹remember˺ when Abraham raised the foundation of the House with Ishmael, ˹both praying,˺ “Our Lord! Accept ˹this˺ from us. You are indeed the All-Hearing, All-Knowing.](https://quran.com/2/127-129)
-* __Surah Ibrahim 14/37__: [Our Lord! I have settled some of my offspring in a barren valley, near Your Sacred House, our Lord, so that they may establish prayer. So make the hearts of ˹believing˺ people incline towards them and provide them with fruits, so perhaps they will be thankful.](https://quran.com/14/37)
+* __Surah Al-Baqarah 2/127__: [وَإِذْ يَرْفَعُ إِبْرَٰهِـۧمُ ٱلْقَوَاعِدَ مِنَ ٱلْبَيْتِ وَإِسْمَـٰعِيلُ رَبَّنَا تَقَبَّلْ مِنَّآ ۖ إِنَّكَ أَنتَ ٱلسَّمِيعُ ٱلْعَلِيمُ](https://quran.com/2/127)
+* __Surah Al-Baqarah 2/128__: [رَبَّنَا وَٱجْعَلْنَا مُسْلِمَيْنِ لَكَ وَمِن ذُرِّيَّتِنَآ أُمَّةًۭ مُّسْلِمَةًۭ لَّكَ وَأَرِنَا مَنَاسِكَنَا وَتُبْ عَلَيْنَآ ۖ إِنَّكَ أَنتَ ٱلتَّوَّابُ ٱلرَّحِيمُ](https://quran.com/2/128)
+* __Surah Al-Baqarah 2/129__: [رَبَّنَا وَٱبْعَثْ فِيهِمْ رَسُولًۭا مِّنْهُمْ يَتْلُوا۟ عَلَيْهِمْ ءَايَـٰتِكَ وَيُعَلِّمُهُمُ ٱلْكِتَـٰبَ وَٱلْحِكْمَةَ وَيُزَكِّيهِمْ ۚ إِنَّكَ أَنتَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quran.com/2/129)
+* __Surah Ibrahim 14/37 (Ismail & Hajrah in Makkah)__: [رَّبَّنَآ إِنِّىٓ أَسْكَنتُ مِن ذُرِّيَّتِى... بِوَادٍ غَيْرِ ذِى زَرْعٍ ...عِندَ بَيْتِكَ ٱلْمُحَرَّمِ ...رَبَّنَا لِيُقِيمُوا۟ ٱلصَّلَوٰةَ... فَٱجْعَلْ أَفْـِٔدَةًۭ مِّنَ ٱلنَّاسِ تَهْوِىٓ إِلَيْهِمْ... وَٱرْزُقْهُم مِّنَ ٱلثَّمَرَٰتِ لَعَلَّهُمْ يَشْكُرُونَ](https://quran.com/14/37)
 
 #### Was ordered to Slaughter his Son in Dream
-* [(101) So We gave him good news of a forbearing son...](https://quranwbw.com/37/101-113)
+* [(101) So We gave him good news of a forbearing son...](https://quran.com/37/101-113)
 
 #### Birth Place of Ibrahim
-* The `city of Ur, located in present-day southern Iraq`, is traditionally considered the birthplace of the biblical Abraham (Ibrahim in Arabic)
+* The `city of Urr, located in present-day southern Iraq`, is traditionally considered the birth-place of the biblical Abraham (Ibrahim in Arabic)
 
 ***
 

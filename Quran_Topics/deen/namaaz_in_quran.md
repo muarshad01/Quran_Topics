@@ -6,6 +6,10 @@
 
 ***
 
+#### [Story by Maulan Rumi](https://www.youtube.com/shorts/UsoMVI7LIMg)
+
+***
+
 #### [Wazu Main Her Kaam Teen Baar Kyun Kerty Hain | SSA Shah](https://www.youtube.com/watch?v=BukxMVHrPqU)
 1. Safai
 2. Pakazgi

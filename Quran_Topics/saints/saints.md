@@ -307,3 +307,10 @@ Silsila & Khilafat
 ***
 
 * Bahauddin Zakariya (Baha-ul-Haq) -- 1170 – 1262 was a student of Shihab al-Din 'Umar al-Suhrawardi
+
+***
+
+#### 4-Imams
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/4-imams.png" width="300" height="300" />
+
+***

@@ -1,3 +1,11 @@
+#### [Hoo Ka Kya Matlab Hai? #shorts](https://www.youtube.com/shorts/L-j39_kQOQY)
+* __Surah An-Nur 24/35 (۞ ٱللَّهُ... نُورُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ)__: [](https://quran.com/24/35)
+* __Surah Al-Baqarah 2/284 (لِّلَّهِ ...مَا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ ۗ...)__: [](https://quran.com/2/284)
+* __Surah Al-Baqarah 2/116 (... لَّهُۥ... مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ...)__: [](https://quran.com/2/116)
+* __Surah Al-Baqarah 2/29 (هُوَ... ٱلَّذِى خَلَقَ لَكُم مَّا فِى ٱلْأَرْضِ جَمِيعًۭا...)__: [](https://quran.com/2/29)
+
+***
+
 #### [Quran Mein Asma-e-Husna Kiun Istemal Huay? | Allama Talib Jauhari](https://www.youtube.com/watch?v=prKgcUS8wcs)
 
 ***

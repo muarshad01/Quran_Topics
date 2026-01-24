@@ -311,6 +311,6 @@ Silsila & Khilafat
 ***
 
 #### 4-Imams
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/4-imams.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/4-imams.png" width="400" height="400" />
 
 ***

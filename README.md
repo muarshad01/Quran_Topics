@@ -147,7 +147,8 @@
 |---|---|---|
 |1. | [Prophets](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/prophets.md); [Muqam-e-mehmood](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muqam-e-mehmood.md) | 12/06/2025 |
 |2. | [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md) | 12/06/2025 |
-|3. | [Sulayman (Solomon) AS ](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  | 12/06/2025 |
+|3. | [Dawood (David) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophetsdawood_david.md)  | 24/01/2026 |
+|3. | [Sulayman (Solomon) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/solomon_as.md)  | 24/01/2026 |
 |4. | [Musa (Moses) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md) | 12/06/2025 |
 |5. | [Isa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md) | 12/06/2025 |
 |6. | [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md) | 07/01/2026 |

@@ -1,6 +1,6 @@
 ## Miraj
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/mirag.png" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/mirag.png" width="400" height="400" />
 
 ***
 

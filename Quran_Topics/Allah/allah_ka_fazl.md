@@ -47,7 +47,7 @@
 #### [How to Become Worthy of Allah’s Mercy | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
 * My attitude with khalq-e-khuda will get better and improve
 * I'll become desirable in people
-* My old jobs will get done automatically
+* My all jobs will get done automatically
 
 ***
 
@@ -62,13 +62,13 @@
 #### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
 * Sakoon-e-Qalb
 * Bay-sakooni Types/Names (Kaash; Agar; Magar; had it been so; otherwise; this wise; But...)
-* Khawaish-na-kar, bin-mangay-hi milta-jaya-gaa
-* Uss ka QURAB hai
-* Uss ki YAAD hai / ZIKAR hai ([ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ ...تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/13/28))
-* Uss kay FAZAL hai
+* __Khawaish-na-kar, bin-mangay-hi milta-jaya-gaa__
+* Uss ka __QURAB__ hai
+* Uss ki __YAAD__ hai / __ZIKAR__ hai ([ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ ...تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/13/28))
+* Uss kay __FAZAL__ hai
 * Uss kay bandon par Reham-karna-hai
 * Uss kay bandon ki khidmat-karna
-* Uss say usi-ko-mangoo
+* __Uss say usi-ko-mangoo__
 * Sakoon apnay-app-par Reham-karna-hai
 * Khawaish ghair-Allah-hi (if Allah is not the Khawaish)
 

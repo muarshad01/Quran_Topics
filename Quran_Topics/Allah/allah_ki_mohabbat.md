@@ -204,3 +204,11 @@
 #### [Wo Khaas Bande Jin Se Allah Khud Mohabbat Karta Hai | 3 Bari Nishaniyan | Wasif Ali Wasif ](https://www.youtube.com/watch?v=cFDGwUCWzTA)
 
 ***
+
+#### [Mohabbat ](https://www.youtube.com/shorts/hLDHEj2MzeY)
+```
+Dil-e-sada ko samjaha-bohat-hai 
+kya-karayn tum-par aaya-bohat-hai
+```
+
+***

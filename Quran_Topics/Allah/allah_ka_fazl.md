@@ -1,4 +1,7 @@
 #### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
+* My attitude with khalq-e-khuda will get better and improve
+* I'll become desirable in people
+* My old jobs will get done automatically
 
 ***
 

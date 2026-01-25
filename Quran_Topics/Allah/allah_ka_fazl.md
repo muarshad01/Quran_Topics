@@ -13,13 +13,13 @@
 3. The martyrs,
 4. and the righteous—what honourable company!
 * __Surah An-Nisa 4/70__: [ذَٰلِكَ ٱلْفَضْلُ مِنَ ٱللَّهِ ۚ... وَكَفَىٰ بِٱللَّهِ عَلِيمًۭا](https://quran.com/4/70)
-* __Surah An-Nisa 4/83 (وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ... لَٱتَّبَعْتُمُ ٱلشَّيْطَـٰنَ إِلَّا قَلِيلًۭا)__: [وَإِذَا جَآءَهُمْ أَمْرٌۭ مِّنَ ٱلْأَمْنِ أَوِ ٱلْخَوْفِ ...أَذَاعُوا۟ بِهِۦ ۖ... وَلَوْ رَدُّوهُ إِلَى ٱلرَّسُولِ وَإِلَىٰٓ أُو۟لِى ٱلْأَمْرِ مِنْهُمْ لَعَلِمَهُ ٱلَّذِينَ يَسْتَنۢبِطُونَهُۥ مِنْهُمْ ۗ.... وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ... لَٱتَّبَعْتُمُ ٱلشَّيْطَـٰنَ إِلَّا قَلِيلًۭا](https://quran.com/4/83)
+* __Surah An-Nisa 4/83 (وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ... لَٱتَّبَعْتُمُ ٱلشَّيْطَـٰنَ إِلَّا قَلِيلًۭا)__: [وَإِذَا جَآءَهُمْ أَمْرٌۭ مِّنَ ٱلْأَمْنِ أَوِ ٱلْخَوْفِ ...أَذَاعُوا۟ بِهِۦ ۖ... وَلَوْ رَدُّوهُ إِلَى ٱلرَّسُولِ وَإِلَىٰٓ أُو۟لِى ٱلْأَمْرِ مِنْهُمْ لَعَلِمَهُ... ٱلَّذِينَ يَسْتَنۢبِطُونَهُ...ۥ مِنْهُمْ ۗ.... وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ... لَٱتَّبَعْتُمُ ٱلشَّيْطَـٰنَ إِلَّا قَلِيلًۭا](https://quran.com/4/83)
+   * yastanbitunahu (ٱلَّذِينَ يَسْتَنۢبِطُونَهُ: referring to those possessing the capacity to draw inferences directly from the evidence, which is called in Arabic istinbat)
    * Draw correct conclusion from it (يَسْتَنۢبِطُونَهُ)
-   * yastanbitunahu (referring to those possessing the capacity to draw inferences directly from the evidence, which is called in Arabic istinbat)
 
 ***
 
-* __Surah Al-Maidah 5/20__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦ يَـٰقَوْمِ ٱذْكُرُوا۟ نِعْمَةَ ٱللَّهِ عَلَيْكُمْ إِذْ جَعَلَ فِيكُمْ أَنۢبِيَآءَ وَجَعَلَكُم مُّلُوكًۭا وَءَاتَىٰكُم مَّا لَمْ يُؤْتِ أَحَدًۭا مِّنَ ٱلْعَـٰلَمِينَ](https://quran.com/5/20)
+* __Surah Al-Maidah 5/20__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦ يَـٰقَوْمِ ٱذْكُرُوا۟ نِعْمَةَ ٱللَّهِ عَلَيْكُمْ ...إِذْ جَعَلَ فِيكُمْ أَنۢبِيَآءَ... وَجَعَلَكُم مُّلُوكًۭا ...وَءَاتَىٰكُم مَّا لَمْ يُؤْتِ أَحَدًۭا مِّنَ ٱلْعَـٰلَمِينَ](https://quran.com/5/20)
    * `This refers to the EXODUS of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for 40 years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.`
 
 ***

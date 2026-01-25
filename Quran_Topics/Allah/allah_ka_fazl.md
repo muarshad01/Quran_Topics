@@ -1,25 +1,23 @@
-#### Fazl (Bounty)
-* __Surah Al-Baqarah 2/243__: [۞ أَلَمْ تَرَ إِلَى ٱلَّذِينَ خَرَجُوا۟ مِن دِيَـٰرِهِمْ وَهُمْ أُلُوفٌ حَذَرَ ٱلْمَوْتِ فَقَالَ لَهُمُ ٱللَّهُ مُوتُوا۟ ثُمَّ أَحْيَـٰهُمْ ۚ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quranwbw.com/2/243)
+## Fazl (Bounty)
+
 * __Surah Al-Baqarah 2/216__: [كُتِبَ عَلَيْكُمُ ٱلْقِتَالُ وَهُوَ كُرْهٌۭ لَّكُمْ ۖ وَعَسَىٰٓ أَن تَكْرَهُوا۟ شَيْـًۭٔا وَهُوَ خَيْرٌۭ لَّكُمْ ۖ وَعَسَىٰٓ أَن تُحِبُّوا۟ شَيْـًۭٔا وَهُوَ شَرٌّۭ لَّكُمْ ۗ وَٱللَّهُ يَعْلَمُ وَأَنتُمْ لَا تَعْلَمُونَ](https://quran.com/2/216)
 
-***
-
-* __Surah Al-Maidah 5/20__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦ يَـٰقَوْمِ ٱذْكُرُوا۟ نِعْمَةَ ٱللَّهِ عَلَيْكُمْ إِذْ جَعَلَ فِيكُمْ أَنۢبِيَآءَ وَجَعَلَكُم مُّلُوكًۭا وَءَاتَىٰكُم مَّا لَمْ يُؤْتِ أَحَدًۭا مِّنَ ٱلْعَـٰلَمِينَ](https://quran.com/5/20)
-
-* __Surah Al-Qadr 97/3__: [لَيْلَةُ ٱلْقَدْرِ خَيْرٌۭ مِّنْ أَلْفِ شَهْرٍۢ](https://quran.com/97/3) (alif / alufun)
-    * `This refers to the EXODUS of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for 40 years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.`
+* __Surah Al-Baqarah 2/243__: [۞ أَلَمْ تَرَ إِلَى ٱلَّذِينَ خَرَجُوا۟ مِن دِيَـٰرِهِمْ وَهُمْ أُلُوفٌ حَذَرَ ٱلْمَوْتِ فَقَالَ لَهُمُ ٱللَّهُ مُوتُوا۟ ثُمَّ أَحْيَـٰهُمْ ۚ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quranwbw.com/2/243)
 
 ***
 
 ####  The Company of those blessed by Allah
+
 * __Surah An-Nisa 4/68__: [وَلَهَدَيْنَـٰهُمْ صِرَٰطًۭا مُّسْتَقِيمًۭا](https://quran.com/4/68)
 * __Surah An-Nisa 4/69__: [وَمَن يُطِعِ ٱللَّهَ وَٱلرَّسُولَ فَأُو۟لَـٰٓئِكَ مَعَ ٱلَّذِينَ أَنْعَمَ ٱللَّهُ عَلَيْهِم مِّنَ ٱلنَّبِيِّـۧنَ وَٱلصِّدِّيقِينَ وَٱلشُّهَدَآءِ وَٱلصَّـٰلِحِينَ ۚ وَحَسُنَ أُو۟لَـٰٓئِكَ رَفِيقًۭا](https://quran.com/4/69)
 * __Surah An-Nisa 4/70__: [ذَٰلِكَ ٱلْفَضْلُ مِنَ ٱللَّهِ ۚ وَكَفَىٰ بِٱللَّهِ عَلِيمًۭا](https://quran.com/4/70)
 
-***
-
 #### You'd have followed Satan—except for a few
 * __Surah An Nisaa 4/83__: [وَإِذَا جَآءَهُمْ أَمْرٌۭ مِّنَ ٱلْأَمْنِ أَوِ ٱلْخَوْفِ أَذَاعُوا۟ بِهِۦ ۖ وَلَوْ رَدُّوهُ إِلَى ٱلرَّسُولِ وَإِلَىٰٓ أُو۟لِى ٱلْأَمْرِ مِنْهُمْ لَعَلِمَهُ ٱلَّذِينَ يَسْتَنۢبِطُونَهُۥ مِنْهُمْ ۗ وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَٱتَّبَعْتُمُ ٱلشَّيْطَـٰنَ إِلَّا قَلِيلًۭا](https://quran.com/4/83)
+
+***
+
+* __Surah Al-Maidah 5/20__: [وَإِذْ قَالَ مُوسَىٰ لِقَوْمِهِۦ يَـٰقَوْمِ ٱذْكُرُوا۟ نِعْمَةَ ٱللَّهِ عَلَيْكُمْ إِذْ جَعَلَ فِيكُمْ أَنۢبِيَآءَ وَجَعَلَكُم مُّلُوكًۭا وَءَاتَىٰكُم مَّا لَمْ يُؤْتِ أَحَدًۭا مِّنَ ٱلْعَـٰلَمِينَ](https://quran.com/5/20)
 
 ***
 
@@ -39,7 +37,10 @@
 
 *** 
 
+* __Surah Al-Qadr 97/3__: [لَيْلَةُ ٱلْقَدْرِ خَيْرٌۭ مِّنْ أَلْفِ شَهْرٍۢ](https://quran.com/97/3) (alif / alufun)
+    * `This refers to the EXODUS of the Israelites. See (Surah Al-Maidah, ayat 20) gives some details of this incident. The Israelites had left Egypt in large numbers and were wandering in the desert, eager to find a home. But when at God’s command Moses ordered them to drive the Canaanites out of Palestine and conquer that land, they showed cowardice and refused to proceed. Eventually God let them wander about for 40 years till one full generation of Israelites had died and been replaced by a new one reared in the tough conditions of desert life. It was only, then that God enabled the Israelites to overcome the Canaanites. Their former condition is described as death, whereas the later development is seen as their restoration to life.`
 
+***
 
 #### [Allah Ke Fazal Ya Raazi Hone Ki Nishaniyan | SSA Shah](https://www.youtube.com/watch?v=ghe-XUb2Vkg)
 * Behaviour Attitudes with others.
@@ -48,7 +49,7 @@
   
 ***
 
-#### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
+#### [How to Become Worthy of Allah’s Mercy | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
 * My attitude with khalq-e-khuda will get better and improve
 * I'll become desirable in people
 * My old jobs will get done automatically
@@ -63,6 +64,7 @@
 
 ***
 
-#### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Hazrat Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
+#### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
+* Sakoon-e-Qalb
 
 ***

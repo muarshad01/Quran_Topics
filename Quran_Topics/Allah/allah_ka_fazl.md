@@ -1,18 +1,3 @@
-#### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
-* My attitude with khalq-e-khuda will get better and improve
-* I'll become desirable in people
-* My old jobs will get done automatically
-
-***
-
-#### [Signs that Allah SWT has Choses you](https://www.youtube.com/shorts/GkzowvaPtsA)
-* Grant-of-Ilm is afzal tareen (The Best Inaam)
-* Roozi wasee-kar-deh
-* Izzat (Respect) baksh-di
-* Every Naymat (Blessing) granted to us is His Fazal
-
-***
-
 #### Fazl (Bounty)
 * __Surah Al-Baqarah 2/243__: [۞ أَلَمْ تَرَ إِلَى ٱلَّذِينَ خَرَجُوا۟ مِن دِيَـٰرِهِمْ وَهُمْ أُلُوفٌ حَذَرَ ٱلْمَوْتِ فَقَالَ لَهُمُ ٱللَّهُ مُوتُوا۟ ثُمَّ أَحْيَـٰهُمْ ۚ إِنَّ ٱللَّهَ لَذُو فَضْلٍ عَلَى ٱلنَّاسِ وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَشْكُرُونَ](https://quranwbw.com/2/243)
     * __Surah 2/216__:[__Surah 5/20__:](https://quran.com/2/216)
@@ -53,6 +38,21 @@ https://quran.com/27/15-16
 ***
 
 #### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Hazrat Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
+
+***
+
+#### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
+* My attitude with khalq-e-khuda will get better and improve
+* I'll become desirable in people
+* My old jobs will get done automatically
+
+***
+
+#### [Signs that Allah SWT has Choses you | SSA Shah](https://www.youtube.com/shorts/GkzowvaPtsA)
+* Grant-of-Ilm is afzal tareen (The Best Inaam)
+* Roozi wasee-kar-deh
+* Izzat (Respect) baksh-di
+* Every Naymat (Blessing) granted to us is His Fazal
 
 ***
 

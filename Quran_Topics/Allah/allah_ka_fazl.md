@@ -70,5 +70,11 @@
 * Uss kay bandon ki khidmat-karna
 * Uss say usi-ko-mangoo
 * Sakoon apnay-app-par Reham-karna-hai
+* Khawaish ghair-Allah-hi (if Allah is not the Khawaish)
+
+* TANHAI mayn
+* ALLAH ki YAAD mayn
+* __Especially in DAROOD SHARID__
+* Apnay Haqooq-aur-Faraiz ada karna
 
 ***

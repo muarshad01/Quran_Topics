@@ -60,9 +60,9 @@
 ***
 
 #### [Signs that Allah SWT has Choses you | SSA Shah](https://www.youtube.com/shorts/GkzowvaPtsA)
-* Grant-of-Ilm is afzal tareen (The Best Inaam)
-* Roozi wasee-kar-deh
-* Izzat (Respect) baksh-di
+* __Grant-of-ILM__ is the Best. Best of the Best!
+* __ROOZI__ wasee-kar-deh
+* __IZZAT__ (Respect) baksh-di
 * Every Naymat (Blessing) granted to us is His Fazal
 
 ***

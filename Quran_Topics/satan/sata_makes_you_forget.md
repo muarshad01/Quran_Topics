@@ -1,4 +1,11 @@
-#### Satan Makes You Forget
+## Satan Makes You Forget
+
+
+#### [ Allah ka Ziker aur Roohani Ilaj  | Irfan-ul-Haq](https://www.youtube.com/shorts/uM9jjZ5059I)
+1. Women
+2. Praise
+
+***
 
 * __Surah Al-Anam 6/68 (وَإِمَّا يُنسِيَنَّكَ ٱلشَّيْطَـٰنُ)__: [وَإِذَا رَأَيْتَ ٱلَّذِينَ يَخُوضُونَ فِىٓ ءَايَـٰتِنَا فَأَعْرِضْ عَنْهُمْ حَتَّىٰ يَخُوضُوا۟ فِى حَدِيثٍ غَيْرِهِۦ ۚ وَإِمَّا يُنسِيَنَّكَ ٱلشَّيْطَـٰنُ فَلَا تَقْعُدْ بَعْدَ ٱلذِّكْرَىٰ مَعَ ٱلْقَوْمِ ٱلظَّـٰلِمِينَ](https://quran.com/6/68)
 

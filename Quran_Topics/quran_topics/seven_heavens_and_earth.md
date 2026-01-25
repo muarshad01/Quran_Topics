@@ -27,3 +27,7 @@
 #### [Every Sky have a Separate Earth? | دنیا ،زمین اور ارض | Sahil Adeem](https://www.youtube.com/watch?v=EMgWDRMGwWU)
 
 ***
+
+#### [Look at the Sky! The Verse That Shocked Scientists | Sahil Adeem](https://www.youtube.com/watch?v=Nab0x-cySxY)
+
+***

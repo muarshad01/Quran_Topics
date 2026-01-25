@@ -1,4 +1,4 @@
-#### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://github.com/muarshad01/Quran_Topics/edit/main/Quran_Topics/Allah/allah_ka_fazl.md)
+#### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
 
 ***
 

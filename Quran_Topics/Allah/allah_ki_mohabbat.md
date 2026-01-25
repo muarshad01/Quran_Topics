@@ -4,6 +4,12 @@
 
 ***
 
+#### Hadith
+* https://www.youtube.com/shorts/FwvzT-DvM1A
+* [Narrated Abu Huraira: The Prophet (ﷺ) said, "If Allah loves a person, He calls Gabriel saying: 'Allah loves so and so; O Gabriel, love him.' Gabriel would love him, and then Gabriel would make an announcement among the residents of the Heaven, 'Allah loves so-and-so, therefore, you should love him also.' So, all the residents of the Heavens would love him and then he is granted the pleasure of the people of the earth."](https://sunnah.com/bukhari:6040) -- Sahih al-Bukhari 6040
+
+***
+
 #### [ALLAH LOVES : 16 AYATS](https://quranawareness.wordpress.com/allah-loves-16-ayats/)
 
 ***

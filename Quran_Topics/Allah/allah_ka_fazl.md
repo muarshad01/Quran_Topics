@@ -61,5 +61,14 @@
 
 #### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
 * Sakoon-e-Qalb
+* Bay-sakooni Types/Names (Kaash; Agar; Magar; had it been so; otherwise; this wise; But...)
+* Khawaish-na-kar, bin-mangay-hi milta-jaya-gaa
+* Uss ka QURAB hai
+* Uss ki YAAD hai / ZIKAR hai ([ٱللَّهِ ۗ أَلَا بِذِكْرِ ٱللَّهِ ...تَطْمَئِنُّ ٱلْقُلُوبُ](https://quran.com/13/28))
+* Uss kay FAZAL hai
+* Uss kay bandon par Reham-karna-hai
+* Uss kay bandon ki khidmat-karna
+* Uss say usi-ko-mangoo
+* Sakoon apnay-app-par Reham-karna-hai
 
 ***

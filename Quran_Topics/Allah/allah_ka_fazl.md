@@ -45,6 +45,11 @@
 
 * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ... يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ... وَمَن يُرِدْ أَن يُضِلَّهُۥ... يَجْعَلْ صَدْرَهُۥ ضَيِّقًا حَرَجًۭا كَأَنَّمَا يَصَّعَّدُ فِى ٱلسَّمَآءِ ۚ... كَذَٰلِكَ يَجْعَلُ ٱللَّهُ ٱلرِّجْسَ عَلَى ٱلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/6/125)
 
+1. Understanding of Deen
+2. Knowledge
+3. Wisdon
+4. Essence of Wisdom (Rabb)
+
 ***
 
 #### [How to Become Worthy of Allah’s Mercy | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)

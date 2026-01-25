@@ -11,34 +11,33 @@
 * __Surah An Nisaa 4/68-70 (Inaam of Allah SWT)__: [(68) and guided them to the Straight Path. (69) And whoever obeys Allah and the Messenger will be in the company of those blessed by Allah: the prophets, the people of truth, the martyrs, and the righteous—what honourable company! (70) This is Allah’s favour, and Allah fully knows ˹who deserves it˺.](https://quranwbw.com/4/68-70)
 
 #### You'd have followed Satan—except for a few
-* __Surah An Nisaa 4/83__: [And when they hear news of security or fear,1 they publicize it. Had they referred it to the Messenger or their authorities, those with sound judgment among them would have validated it. Had it not been for Allah’s grace and mercy, you would have followed Satan—except for a few.](https://quranwbw.com/4/83)
+* __Surah An Nisaa 4/83__: [And when they hear news of security or fear,1 they publicize it. Had they referred it to the Messenger or their authorities, those with sound judgment among them would have validated it. Had it not been for Allah’s grace and mercy, you would have followed Satan—except for a few.](https://quran.com/4/83)
 
 ***
 
 #### But Allah purifies whoever He wills
-* __Surah An-Nur 24/21__: [O believers! Do not follow the footsteps of Satan. Whoever follows Satan’s footsteps, then ˹let them know that˺ he surely bids ˹all to˺ immorality and wickedness. Had it not been for Allah’s grace and mercy upon you, none of you would have ever been purified. But Allah purifies whoever He wills. And Allah is All-Hearing, All-Knowing.](https://quranwbw.com/24/21)
-   * yastanbitunahu (referring to those possessing the capacity to draw inferences directly from the evidence, which is called in Arabic istinbat)
+* __Surah An-Nur 24/21__: [۞ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟... لَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ... وَمَن يَتَّبِعْ خُطُوَٰتِ ٱلشَّيْطَـٰنِ فَإِنَّهُۥ يَأْمُرُ بِٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۚ... وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ... مَا زَكَىٰ مِنكُم مِّنْ أَحَدٍ أَبَدًۭا... وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ... وَٱللَّهُ سَمِيعٌ عَلِيمٌۭ](https://quranwbw.com/24/21)
+* yastanbitunahu (referring to those possessing the capacity to draw inferences directly from the evidence, which is called in Arabic istinbat)
+
+***
+
+* __Surah An-Naml 25/15__: [وَلَقَدْ ءَاتَيْنَا دَاوُۥدَ وَسُلَيْمَـٰنَ عِلْمًۭا ۖ وَقَالَا ٱلْحَمْدُ لِلَّهِ ٱلَّذِى فَضَّلَنَا عَلَىٰ كَثِيرٍۢ مِّنْ عِبَادِهِ ٱلْمُؤْمِنِينَ](https://quran.com/27/15)
+* __Surah An-Naml 25/16__: [وَوَرِثَ سُلَيْمَـٰنُ دَاوُۥدَ ۖ وَقَالَ يَـٰٓأَيُّهَا ٱلنَّاسُ عُلِّمْنَا مَنطِقَ ٱلطَّيْرِ وَأُوتِينَا مِن كُلِّ شَىْءٍ ۖ إِنَّ هَـٰذَا لَهُوَ ٱلْفَضْلُ ٱلْمُبِينُ](https://quran.com/27/16)
 
 ***
 
 #### Lord of Infinite Bounty
-* __Surah Al-Jumua 62/4__: [This is the favour of Allah. He grants it to whoever He wills. And Allah is the Lord of infinite bounty.](https://quranwbw.com/62/4)
+* __Surah Al-Jumua 62/4__: [ذَٰلِكَ فَضْلُ ٱللَّهِ ...يُؤْتِيهِ مَن يَشَآءُ ۚ ...وَٱللَّهُ ذُو ٱلْفَضْلِ ٱلْعَظِيمِ](https://quran.com/62/4)
 
 *** 
 
-https://quran.com/27/15-16
 
-***
 
 #### [Allah Ke Fazal Ya Raazi Hone Ki Nishaniyan | SSA Shah](https://www.youtube.com/watch?v=ghe-XUb2Vkg)
 * Behaviour Attitudes with others.
 * What you can do for other.
 * What sacrifice you can do for others.
   
-***
-
-#### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Hazrat Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
-
 ***
 
 #### [How to Become Worthy of Allah’s Mercy | اللہ کا فضل کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=vuME46hso-M)
@@ -56,4 +55,6 @@ https://quran.com/27/15-16
 
 ***
 
-* __Surah An-Nur 24/21__: [۞ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَتَّبِعُوا۟ خُطُوَٰتِ ٱلشَّيْطَـٰنِ ۚ وَمَن يَتَّبِعْ خُطُوَٰتِ ٱلشَّيْطَـٰنِ فَإِنَّهُۥ يَأْمُرُ بِٱلْفَحْشَآءِ وَٱلْمُنكَرِ ۚ وَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ مَا زَكَىٰ مِنكُم مِّنْ أَحَدٍ أَبَدًۭا وَلَـٰكِنَّ ٱللَّهَ يُزَكِّى مَن يَشَآءُ ۗ وَٱللَّهُ سَمِيعٌ عَلِيمٌۭ](https://quranwbw.com/24/21)
+#### [Sakoon-e-Qalb | Allah ka Fazal Kia hai? | Hazrat Wasif Ali Wasif](https://www.youtube.com/watch?v=DxgiocLUweE)
+
+***

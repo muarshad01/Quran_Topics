@@ -277,3 +277,8 @@ Abu Ya’la  may  Allaah  have  mercy  upon  him reported in his “Musnad” fr
 * __After Maghrib prayer, 786-times awal/akhir 11-times darood-shareef, for one week for-some-difficult-task__
 
 ***
+
+#### [ye CHOTI si surat parahay zaban ASI band ho gi kiamat tak nahi kulay gi](https://www.youtube.com/shorts/s7X3_hEveAc)
+* __Surah 6/45__: [فَقُطِعَ دَابِرُ ٱلْقَوْمِ ٱلَّذِينَ ظَلَمُوا۟ ۚ وَٱلْحَمْدُ لِلَّهِ رَبِّ ٱلْعَـٰلَمِينَ](https://quran.com/6/45)
+
+*** 

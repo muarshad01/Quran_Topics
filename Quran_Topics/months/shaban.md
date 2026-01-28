@@ -1,7 +1,5 @@
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/shab-e-barat.png
-" width="300" height="300" />
-
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/shab-e-barat.png" width="300" height="300" />
 
 ***
 

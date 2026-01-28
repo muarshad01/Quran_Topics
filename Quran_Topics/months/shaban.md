@@ -24,3 +24,7 @@
 * https://www.youtube.com/shorts/A9n0YvWVG3o
 
 ***
+
+#### [Shab-e-Barat mein maghfirat ki Banu Kalb ki bakriyon se tamseel ka sabab | Dr Tahir-ul-Qadri](https://www.youtube.com/watch?v=k77yI7J3g50)
+
+***

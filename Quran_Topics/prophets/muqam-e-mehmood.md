@@ -1,3 +1,7 @@
+#### [Where is Maqam-e-Mahmood? | مقامِ محمود — سب سے بلند اور خاص مقام | SSA Shah](https://www.youtube.com/watch?v=zKLioL39Xqk)
+
+***
+
 #### [Ishq-e-Rasool aur Maqam-e-Waseela ki Dua | Prof ARA](https://www.youtube.com/watch?v=vyyWyl7M9m8)
 * Auf bin Malik al-Ashtar RA
 * Abu Dharr al-Ghifari RA

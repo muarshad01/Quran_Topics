@@ -1,7 +1,7 @@
 #### FAQEER
 * __FAQEER__ par __LAZIM__ hai, woh khalq-e-khuda say __DOAR__-rahey aur __KAM-say-KAM__ loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
 * __FAQEER__ wo hai, jis-nay __DUNYA-ko-TUKHRAYA__
-* __FAQEER__ saari-umer __DOOSRON__-mayn __KHUSIYAN__-bantaa-hai
+* __FAQEER__ saari-umer __DOOSRON__-mayn __KHUSIYAN__-bantaa-hai -- SSA Shah
 * __FAQEER's objective__ is mujhay __Rabb-ka-QURAB__ hasil ho jai.
 * __FAQEER__ umer-bhar apnay-__NAQAIS__ doar-karnay-mayn laga-rehay-gaa.
 * __FAQEER__ par lazim-hai, kay-woh __DOOSRON-ki-KHIDMAT__ iss-tarah-karey, keh uss-say khidmat-laney-walay yeah-samjhayan, keh-woh yeah khidmat-laykar, __FAQEER-par-IHSAAN__ kar-rahay-hayn. -- Hazrar Ali bin Usman al-Hajvari

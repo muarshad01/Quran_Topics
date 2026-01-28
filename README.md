@@ -4,6 +4,10 @@
 
 ***
 
+#### [Quran Smjhne Aur Parhny ka Behtreen Tarika | @irfanulhikma | Baba Irfan ul haq latest videos lecture | Irfan-ul-Haq](https://www.youtube.com/watch?v=0NLgW8w_VYQ)
+
+***
+
 <!--
 |No.| Main Topics | Last Updated |
 |---|---|---|

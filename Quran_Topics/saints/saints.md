@@ -314,3 +314,10 @@ Silsila & Khilafat
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/4-imams.png" width="400" height="400" />
 
 ***
+
+#### [Haji Waris Pak (R.A) Life & Taqwa | حاجی وارث پاکؒ کی تقویٰ بھری زندگی | SSA Shah](https://www.youtube.com/watch?v=u387-O3WDgk)
+* Hazrat Syed Waris Ali Shah ‎(رحمتہ اللہ علیہ)
+* Buland Paya, Shahid-e-Kamal wali Ullah
+* After Hajj, till his death didn't open his Ahraam!
+
+***

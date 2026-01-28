@@ -50,3 +50,5 @@ O believers! Let those ˹bondspeople˺ in your possession and those of you who a
 4. __Aasiyah__ - Wife of Pharaoh
 
 ***
+
+#### [Hazrat Musa Aur Ek Qabti Ka Waqia.](https://www.youtube.com/shorts/1T6F9-biIeU)

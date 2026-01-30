@@ -15,7 +15,7 @@
 ***
 
 #### [3 Signs Your Good Time Is Near | Wasif Ali Wasif](https://www.youtube.com/watch?v=RZGZ6D8QX_A)
-1. Heart awakens (https://quran.com/13/11)
+1. Heart awakens ([لَهُۥ مُعَقِّبَـٰتٌۭ مِّنۢ بَيْنِ يَدَيْهِ وَمِنْ خَلْفِهِۦ يَحْفَظُونَهُۥ مِنْ أَمْرِ ٱللَّهِ ۗ إِنَّ ٱللَّهَ لَا يُغَيِّرُ مَا بِقَوْمٍ حَتَّىٰ يُغَيِّرُوا۟ مَا بِأَنفُسِهِمْ ۗ وَإِذَآ أَرَادَ ٱللَّهُ بِقَوْمٍۢ سُوٓءًۭا فَلَا مَرَدَّ لَهُۥ ۚ وَمَا لَهُم مِّن دُونِهِۦ مِن وَالٍ](https://quran.com/13/11))
 2. Path becomes challening and tough
 3. Tawakkal on Allah SWT and Peace of Mind
 

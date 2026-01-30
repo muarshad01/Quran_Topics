@@ -1,14 +1,14 @@
-#### [Confidence, Courage, Ability to Stay Calm when fear is at its Strongest](https://www.youtube.com/shorts/sohsUj8E6nY)
+## Trouble
 
-***
-
-* __Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it.__ -- Prof. ARA
-* __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
-
-***
-
+* Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it -- Prof. ARA
 * __Surah Al-Baqarah 2/155-156__: [وَلَنَبْلُوَنَّكُم ...بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ... وَٱلْجُوعِ ...وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ... وَٱلْأَنفُسِ ...وَٱلثَّمَرَٰتِ ۗ... وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ... قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
-* For every big trouble...read this tasbeeh...
+  * For every big trouble...read this tasbeeh...
+* __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
+* __Surah Ta-Ha 20/46__: [قَالَ لَا تَخَافَآ ۖ إِنَّنِى مَعَكُمَآ أَسْمَعُ وَأَرَىٰ](https://quran.com/20/46)
+
+***
+
+#### [Confidence, Courage, Ability to Stay Calm when fear is at its Strongest](https://www.youtube.com/shorts/sohsUj8E6nY)
 
 ***
 
@@ -18,10 +18,29 @@
 
 ***
 
+#### [Remember Allah In Hard Time... | Prof ARA](https://www.youtube.com/watch?v=qpV8dowbTjE)
+* __Surah Ale-Imran 3/140__: [وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ](https://quran.com/3/140)
+* __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
+* __Surah Hud 11/56__: [مَّا مِن دَآبَّةٍ إِلَّا هُوَ ءَاخِذٌۢ بِنَاصِيَتِهَآ ۚ](https://quran.com/11/56)
+
+***
+
+#### [How to Deal with bad times in Life | Prof ARA](https://www.youtube.com/watch?v=ulL2Kxbij90)
+* Allah uss-sakhs-ki zindagi barha-daita-hai, loag jis-kay-liye dua-kartay-hayn
+* Dua balaa-ko tall-ti-hai: 
+  * 1 - Jo anay-wali-hai, ruk jaiti-hai
+  * 2 - Jo aa-jati-hai, thum-thum-kay guzar-jati-hai
+  * 3 - Jo aa-chuki-hai, sawab-aur-faida
+* __Surah Al-Baqarah 2/156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
+ * For every big trouble...read this tasbeeh
+* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quran.com/2/157)
+
+***
+
 #### [Your Destiny is not fixed |Allah change faith when you strive | Prof ARA](https://www.youtube.com/watch?v=Ypnli4WqgQ4)
 * Joo bhi tum, Allah SWT say guman-karoo-gay, woh-tumhayn lutay-deh-gaa
 * Firaq versus Wisal
-* __Surah Ya-Sin 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
+* __Surah Ya-Seen 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
 * Allah SWT looks at Loh-e-Mehfuz 70,000 time daily. 
 
 ***
@@ -48,15 +67,26 @@
 
 ***
 
-#### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
-
-***
-
 #### [Nature Awakes us by Different Incidents | SSA Shah](https://www.youtube.com/watch?v=TgjoxwA3Pmg)
 * Causes -- Root Causes
 * Responsibility
 * Remedies
 * Preventive Measure
+
+***
+
+#### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
+* After tough time...you get a lot-of-Arooj.
+* All our duas-are-accumulated.
+* You get rewards together.
+
+***
+
+#### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
+* Lean patch: Remember good times...
+* After lean patch...you get a lot-of-Arooj.
+* You do a lot-of-duas...ALL our duas-are-accumulated.
+* You get rewards together.
 
 ***
 
@@ -68,28 +98,7 @@
 
 ***
 
-
-
-* __Surah 20/46__: [قَالَ لَا تَخَافَآ ۖ إِنَّنِى مَعَكُمَآ أَسْمَعُ وَأَرَىٰ](https://quran.com/20/46)
-
-***
-
-#### [Remember Allah In Hard Time... | Prof ARA](https://www.youtube.com/watch?v=qpV8dowbTjE)
-* __Surah 3/140__: [وَتِلْكَ ٱلْأَيَّامُ نُدَاوِلُهَا بَيْنَ ٱلنَّاسِ](https://quran.com/3/140)
-* __Surah 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)
-* __Surah 11/56__: [مَّا مِن دَآبَّةٍ إِلَّا هُوَ ءَاخِذٌۢ بِنَاصِيَتِهَآ ۚ](https://quran.com/11/56)
-
-***
-
-#### [How to Deal with bad times in Life | Prof ARA](https://www.youtube.com/watch?v=ulL2Kxbij90)
-* Allah uss-sakhs-ki zindagi barha-daita-hai, loag jis-kay-liye dua-kartay-hayn
-* Dua balaa-ko tall-ti-hai: 
-  * 1 - Jo anay-wali-hai, ruk jaiti-hai
-  * 2 - Jo aa-jati-hai, thum-thum-kay guzar-jati-hai
-  * 3 - Jo aa-chuki-hai, sawab-aur-faida
-* __Surah Al-Baqarah 2/156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
- * For every big trouble...read this tasbeeh
-* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quran.com/2/157)
+#### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
 
 ***
 
@@ -110,21 +119,6 @@
 #### No Jadugar can harm you
 * Duaian shatini-quwatoon kay rastay-ka sab-say-barah-phathar hooti-hayn.
   
-***
-
-#### [What Comes After Trials? | SSA Shah](https://www.youtube.com/watch?v=SacJf777CyY)
-* After tough time...you get a lot-of-Arooj.
-* All our duas-are-accumulated.
-* You get rewards together.
-
-***
-
-#### [Har Mushkil Ke Baad Urooj Hai | SSA Shah](https://www.youtube.com/watch?v=_JrpHdf_O4M) 
-* Lean patch: Remember good times...
-* After lean patch...you get a lot-of-Arooj.
-* You do a lot-of-duas...ALL our duas-are-accumulated.
-* You get rewards together.
-
 ***
 
 #### [Hazrat Musa ko Allah nay kon C Tasbeeh btai |  Prof ARA](https://www.youtube.com/shorts/H_bEsU6u-e0)

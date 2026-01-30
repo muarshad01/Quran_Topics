@@ -19,3 +19,8 @@
 * __Surah Al-Anbiyaa 21/69 (يَـٰنَارُ كُونِى بَرْدًۭا وَسَلَـٰمًا)__: [قُلْنَا... يَـٰنَارُ كُونِى بَرْدًۭا وَسَلَـٰمًا ...عَلَىٰٓ إِبْرَٰهِيمَ](https://quran.com/21/69)
 
 ***
+
+#### [✨Kun Fa-Yakun Par Aisi Guftagu Jo Aap Ne Kabhi Nahi Suni Hogi | Islamic Knowledge | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=fOjtHvuIsv0)
+* Zahan ka irada hai Kun (كُن).
+
+***

@@ -73,13 +73,13 @@
 |   | Allah SWT | Last Updated |
 |---|---|---|
 | 1. | [Allah Kaun Hai](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_koon_hai.md) | 12/06/2025 |
-| 2. | [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 01/05/2026 |
+| 2. -A--| [Allah SWT - Noor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_noor.md) | 01/05/2026 |
 | 3. | [Allah SWT - 99 Names](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_swt_99_names.md) | 12/06/2025 |
 | 4. | [Allah SWT - Rehmat](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_rehmat.md) |12/6/2025 |
 | 5. (-AA-)| [Allah SWT - Love](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_mohabbat.md) | 01/01/2026 |
 | 6. | [Allah SWT - Amar](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_amar.md)| 27/01/2026 |
 | 7. | [Allah SWT - Blessing](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_blessings.md) | 12/6/2025 |
-| 8. | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 05/01/2026 |
+| 8. -A-- | [Allah SWT ki Gawahi](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ki_gawahi.md) | 05/01/2026 |
 | 9. | [Allah SWT Fazl (Bounty)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/Allah/allah_ka_fazl.md)| 25/01/2026 |
 
 ***

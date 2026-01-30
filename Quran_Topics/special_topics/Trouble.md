@@ -12,11 +12,9 @@
 
 ***
 
-#### [Allah Ki Raah Main Chalne Se Konsi 4 Azmaishein Ati Hain? | SSA Shah](https://www.youtube.com/watch?v=PlAJ-Jis9Ig)
-1. Financial Crunch
-2. Wife Issues
-3. Respect goes away
-4. Targheebah aur Lalich
+#### [Fear, frustration، depression ka elaaj | Prof ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
+* __Surah Ale-Imran 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
+* __Surah Al-Ankabut 29/45__: [وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ](https://quran.com/29/45)
 
 ***
 
@@ -26,16 +24,6 @@
 * __Surah Ya-Sin 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
 * Allah SWT looks at Loh-e-Mehfuz 70,000 time daily. 
 
-***
-
-#### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/allah-humma-ahsin-aiqibatna.png" width="300" height="300" />
-
-***
-
-#### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
-* Make Rabb your FRIEND
-* Offer two-Rakat-nafals, additional, after Isha, and afterwards tell-all-your-worries to Allah SWT.
 ***
 
 #### [Your Destiny Is Not Fixed | Allah Changes Fate When You Strive | Prof ARA](https://www.youtube.com/watch?v=F17jD9l1OMo)
@@ -49,20 +37,38 @@
 
 ***
 
-#### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
-* __Surah 65/2__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا](https://quran.com/65/2)
-* __Surah 65/3__: [وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
-* __Surah 9/40__: [ لَا تَحْزَنْ إِنَّ ٱللَّهَ مَعَنَا ۖ](https://quran.com/9/40)
-* Returned empty-handed from Taif
-* Allah SWT opened doors-of-Madina
+#### [Hadsay sy bchny ki dua | Prof ARA](https://www.youtube.com/shorts/Deoj3cwDSzA)
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/allah-humma-ahsin-aiqibatna.png" width="300" height="300" />
 
 ***
 
-#### [Fear, frustration، depression ka elaaj | Prof ARA](https://www.youtube.com/watch?v=mcSX0gQbabw)
-* __Surah Ale-Imran 3/139__: [وَلَا تَهِنُوا۟ وَلَا تَحْزَنُوا۟ وَأَنتُمُ ٱلْأَعْلَوْنَ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/139)
-* __Surah Al-Ankabut 29/45__: [وَلَذِكْرُ ٱللَّهِ أَكْبَرُ ۗ](https://quran.com/29/45)
+#### [Feeling Heavy? Try This Wazifa After Isha! | غم دور کرنے کا روحانی نسخہ | SSA Shah](https://www.youtube.com/watch?v=GxMOBFZIKFo)
+* Make Rabb your FRIEND
+* Offer two-Rakat-nafals, additional, after Isha, and afterwards tell-all-your-worries to Allah SWT.
 
 ***
+
+#### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
+
+***
+
+#### [Nature Awakes us by Different Incidents | SSA Shah](https://www.youtube.com/watch?v=TgjoxwA3Pmg)
+* Causes -- Root Causes
+* Responsibility
+* Remedies
+* Preventive Measure
+
+***
+
+#### [Allah Ki Raah Main Chalne Se Konsi 4 Azmaishein Ati Hain? | SSA Shah](https://www.youtube.com/watch?v=PlAJ-Jis9Ig)
+1. Financial Crunch
+2. Wife Issues
+3. Respect goes away
+4. Targheebah aur Lalich
+
+***
+
+
 
 * __Surah 20/46__: [قَالَ لَا تَخَافَآ ۖ إِنَّنِى مَعَكُمَآ أَسْمَعُ وَأَرَىٰ](https://quran.com/20/46)
 
@@ -87,15 +93,12 @@
 
 ***
 
-#### [Sickness | SSA Shah](https://www.youtube.com/shorts/J0Mly44KFHE)
-
-***
-
-#### [Nature Awakes us by Different Incidents | SSA Shah](https://www.youtube.com/watch?v=TgjoxwA3Pmg)
-* Causes -- Root Causes
-* Responsibility
-* Remedies
-* Preventive Measure
+#### [Trust in Allah’s plan - Allah Rasta Nikaal Deta Hai! | Dr. Israr Ahmad](https://www.youtube.com/watch?v=eorXGuYvuKI)
+* __Surah At-Talaq 65/2__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا](https://quran.com/65/2)
+* __Surah At-Talaq 65/3__: [وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
+* __Surah At-Tawbah 9/40__: [ لَا تَحْزَنْ إِنَّ ٱللَّهَ مَعَنَا ۖ](https://quran.com/9/40)
+* Returned empty-handed from Taif
+* Allah SWT opened doors-of-Madina
 
 ***
 

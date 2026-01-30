@@ -45,6 +45,17 @@
 
 ***
 
+#### [Azmaeish and Musibat mein kiya parhna chaye | Prof ARA](https://www.youtube.com/watch?v=5cSVLuPoiEY)
+* __Surah Al-Baqarah 2/156__: [ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/156)
+* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quran.com/2/157)
+
+***
+
+#### [Hazrat Musa ko Allah nay kon C Tasbeeh btai |  Prof ARA](https://www.youtube.com/shorts/H_bEsU6u-e0)
+* __Surah Ta-Ha 20/12__: [إِنِّىٓ أَنَا۠ رَبُّكَ فَٱخْلَعْ نَعْلَيْكَ ۖ إِنَّكَ بِٱلْوَادِ ٱلْمُقَدَّسِ طُوًۭى......إِنَّنِىٓ أَنَا ٱللَّهُ لَآ إِلَـٰهَ إِلَّآ أَنَا۠ فَٱعْبُدْنِى وَأَقِمِ ٱلصَّلَوٰةَ لِذِكْرِىٓ](https://quran.com/20/12)
+
+***
+
 #### [Your Destiny Is Not Fixed | Allah Changes Fate When You Strive | Prof ARA](https://www.youtube.com/watch?v=F17jD9l1OMo)
 * Muhammad SAW dar-e-aqdas
 * Joo-bhi-tum Allah-SWT-say gumman-karoy-gay to-woh tumhayn luta-deah-gaa
@@ -111,7 +122,7 @@
 
 ***
 
-### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
+#### [Aallah Ke Qareeb Logo Se Kaise Dua Krawatein Hain? | Irfan-ul-Haq](https://www.youtube.com/watch?v=KuzlT8UYLeU)
 1. Prophet PBUH gave his Jubba-and-dastaar mubarak and said,  "give this to Uwais al-Qarani."
 2. Ask him to pray for `Bakhshis-of-my-Ummat`.
 3. Hazrat Umer and Hazrat Ali RA went to meet him...
@@ -119,11 +130,6 @@
 #### No Jadugar can harm you
 * Duaian shatini-quwatoon kay rastay-ka sab-say-barah-phathar hooti-hayn.
   
-***
-
-#### [Hazrat Musa ko Allah nay kon C Tasbeeh btai |  Prof ARA](https://www.youtube.com/shorts/H_bEsU6u-e0)
-* __Surah Ta-Ha 20/12__: [إِنِّىٓ أَنَا۠ رَبُّكَ فَٱخْلَعْ نَعْلَيْكَ ۖ إِنَّكَ بِٱلْوَادِ ٱلْمُقَدَّسِ طُوًۭى......إِنَّنِىٓ أَنَا ٱللَّهُ لَآ إِلَـٰهَ إِلَّآ أَنَا۠ فَٱعْبُدْنِى وَأَقِمِ ٱلصَّلَوٰةَ لِذِكْرِىٓ](https://quran.com/20/12)
-
 ***
 
 * __Surah Al-Baqarag 2/156__: [وَلَنَبْلُوَنَّكُم بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ وَٱلْجُوعِ وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ وَٱلْأَنفُسِ وَٱلثَّمَرَٰتِ ۗ وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
@@ -162,12 +168,6 @@
 
 * __Surah Al-Fajr 89/15-20__: [فَأَمَّا ٱلْإِنسَـٰنُ إِذَا مَا ٱبْتَلَىٰهُ رَبُّهُۥ فَأَكْرَمَهُۥ وَنَعَّمَهُۥ فَيَقُولُ رَبِّىٓ أَكْرَمَنِ...وَأَمَّآ إِذَا مَا ٱبْتَلَىٰهُ فَقَدَرَ عَلَيْهِ رِزْقَهُۥ فَيَقُولُ رَبِّىٓ أَهَـٰنَنِ ١٦](https://quran.com/89/15-20)
 * [Surah Fajr 15-20](https://www.youtube.com/shorts/dza5PYeSwYI)
-
-***
-
-#### [Azmaeish and Musibat mein kiya parhna chaye | Prof ARA](https://www.youtube.com/watch?v=5cSVLuPoiEY)
-* __Surah Al-Baqarah 2/156__: [ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/156)
-* __Surah Al-Baqarah 2/157__: [أُو۟لَـٰٓئِكَ عَلَيْهِمْ صَلَوَٰتٌۭ مِّن رَّبِّهِمْ وَرَحْمَةٌۭ ۖ وَأُو۟لَـٰٓئِكَ هُمُ ٱلْمُهْتَدُونَ](https://quran.com/2/157)
 
 ***
 

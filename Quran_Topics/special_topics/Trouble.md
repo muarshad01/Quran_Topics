@@ -1,6 +1,8 @@
 ## Trouble
 
+```
 * Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it -- Prof. ARA
+```
 * __Surah Al-Baqarah 2/155-156__: [وَلَنَبْلُوَنَّكُم ...بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ... وَٱلْجُوعِ ...وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ... وَٱلْأَنفُسِ ...وَٱلثَّمَرَٰتِ ۗ... وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ... قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
   * For every big trouble...read this tasbeeh...
 * __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)
@@ -9,6 +11,13 @@
 ***
 
 #### [Confidence, Courage, Ability to Stay Calm when fear is at its Strongest](https://www.youtube.com/shorts/sohsUj8E6nY)
+
+***
+
+#### [3 Signs Your Good Time Is Near | Wasif Ali Wasif](https://www.youtube.com/watch?v=RZGZ6D8QX_A)
+1. Heart awakens (https://quran.com/13/11)
+2. Path becomes challening and tough
+3. Tawakkal on Allah SWT and Peace of Mind
 
 ***
 
@@ -61,7 +70,7 @@
 * Joo-bhi-tum Allah-SWT-say gumman-karoy-gay to-woh tumhayn luta-deah-gaa
 * Wisaal-say (Meetup) Sauq-ki-moat hoo-jaati-hai
 * Faraq...qurbat-say-nikala
-* __Surah 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
+* __Surah Ya-Seen 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
 * __Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it.__
 * The greatest-injustice you do to yourself...
 
@@ -149,8 +158,8 @@
 * __Surah Fatir 35/2__: [مَّا يَفْتَحِ ٱللَّهُ لِلنَّاسِ مِن رَّحْمَةٍۢ فَلَا مُمْسِكَ لَهَا ۖ وَمَا يُمْسِكْ فَلَا مُرْسِلَ لَهُۥ مِنۢ بَعْدِهِۦ ۚ وَهُوَ ٱلْعَزِيزُ ٱلْحَكِيمُ](https://quranwbw.com/35/2)
 * __Surah Fatir 35/45__: [وَلَوْ يُؤَاخِذُ ٱللَّهُ ٱلنَّاسَ بِمَا كَسَبُوا۟ مَا تَرَكَ عَلَىٰ ظَهْرِهَا مِن دَآبَّةٍۢ وَلَـٰكِن يُؤَخِّرُهُمْ إِلَىٰٓ أَجَلٍۢ مُّسَمًّۭى ۖ فَإِذَا جَآءَ أَجَلُهُمْ فَإِنَّ ٱللَّهَ كَانَ بِعِبَادِهِۦ بَصِيرًۢا](https://quran.com/35/45)
 
-* __Surah Yaseen 36/23__: [ءَأَتَّخِذُ مِن دُونِهِۦٓ ءَالِهَةً إِن يُرِدْنِ ٱلرَّحْمَـٰنُ بِضُرٍّۢ لَّا تُغْنِ عَنِّى شَفَـٰعَتُهُمْ شَيْـًۭٔا وَلَا يُنقِذُونِ](https://quranwbw.com/36/23)
-* __Surah Yaseen 36/74__: [وَٱتَّخَذُوا۟ مِن دُونِ ٱللَّهِ ءَالِهَةًۭ لَّعَلَّهُمْ يُنصَرُونَ](https://quranwbw.com/36/74)
+* __Surah Ya-Seen 36/23__: [ءَأَتَّخِذُ مِن دُونِهِۦٓ ءَالِهَةً إِن يُرِدْنِ ٱلرَّحْمَـٰنُ بِضُرٍّۢ لَّا تُغْنِ عَنِّى شَفَـٰعَتُهُمْ شَيْـًۭٔا وَلَا يُنقِذُونِ](https://quranwbw.com/36/23)
+* __Surah Ya-Seen 36/74__: [وَٱتَّخَذُوا۟ مِن دُونِ ٱللَّهِ ءَالِهَةًۭ لَّعَلَّهُمْ يُنصَرُونَ](https://quranwbw.com/36/74)
 
 * __Surah Az-Zumar 39/38__: [وَلَئِن سَأَلْتَهُم مَّنْ خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ لَيَقُولُنَّ ٱللَّهُ ۚ قُلْ أَفَرَءَيْتُم مَّا تَدْعُونَ مِن دُونِ ٱللَّهِ إِنْ أَرَادَنِىَ ٱللَّهُ بِضُرٍّ هَلْ هُنَّ كَـٰشِفَـٰتُ ضُرِّهِۦٓ أَوْ أَرَادَنِى بِرَحْمَةٍ هَلْ هُنَّ مُمْسِكَـٰتُ رَحْمَتِهِۦ ۚ قُلْ حَسْبِىَ ٱللَّهُ ۖ عَلَيْهِ يَتَوَكَّلُ ٱلْمُتَوَكِّلُونَ ٣٨](https://quranwbw.com/39/38)
 
@@ -168,12 +177,5 @@
 
 * __Surah Al-Fajr 89/15-20__: [فَأَمَّا ٱلْإِنسَـٰنُ إِذَا مَا ٱبْتَلَىٰهُ رَبُّهُۥ فَأَكْرَمَهُۥ وَنَعَّمَهُۥ فَيَقُولُ رَبِّىٓ أَكْرَمَنِ...وَأَمَّآ إِذَا مَا ٱبْتَلَىٰهُ فَقَدَرَ عَلَيْهِ رِزْقَهُۥ فَيَقُولُ رَبِّىٓ أَهَـٰنَنِ ١٦](https://quran.com/89/15-20)
 * [Surah Fajr 15-20](https://www.youtube.com/shorts/dza5PYeSwYI)
-
-***
-
-#### [3 Signs Your Good Time Is Near | Wasif Ali Wasif](https://www.youtube.com/watch?v=RZGZ6D8QX_A)
-1. Heart awakens (https://quran.com/13/11)
-2. Path becomes challening and tough
-3. Tawakkal on Allah SWT and Peace of Mind
 
 ***

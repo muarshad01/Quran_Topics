@@ -1,3 +1,7 @@
+#### [How Sufi deals with Psychological problems | Prof ARA](https://www.youtube.com/watch?v=fVYeVISIDcQ)
+
+***
+
 #### [Will 2025 be Lucky For You？Find Out Sarfraz Shah's Stimulating Predictions ｜ Imran Khan's Future](https://www.youtube.com/watch?v=FeZQCNMPP_4)
 
 ***

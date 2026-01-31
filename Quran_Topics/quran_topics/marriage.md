@@ -84,4 +84,6 @@
 #### [If your relationship with Allah is strong, life is not a burden hope connects you to Allah](https://www.youtube.com/watch?v=ozTWRh9wFpU)
 * 10:00 
 
-* 
+***
+
+#### [Proven ways to increase love and compassion | 89 News HD](https://www.youtube.com/watch?v=l5IPb4wxU98)

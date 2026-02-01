@@ -28,3 +28,15 @@ nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 #### [Aap (S.A.W) Ke Ummat-Ke Kon-Log Hon-Ge Jo Seedha-Jannat-Main Jayein-Ge? | SSA Shah](https://www.youtube.com/watch?v=vebojKZLCl4)
 
 ***
+
+#### 8 Doors of Paradise
+1. Baab As-Salah (The Gate of Prayer) 
+2. Baab Al-Jihad (The Gate of Striving) 
+3. Baab Ar-Rayyan (The Gate of Fasting) 
+4. Baab As-Sadaqah (The Gate of Charity) 
+5. Baab Al-Hajj (The Gate of Pilgrimage) 
+6. Baab Al-Kaazimeen Al-Ghaiz Wal Aafina Anin Naas (The Gate of Patience) 
+7. Baab At-Tawbah (The Gate of Repentance)
+8. Baab Al-Dhikr (The Gate of Remembrance of Allah)
+
+***

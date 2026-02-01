@@ -271,3 +271,9 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Is Trump Preparing the Army of Dajjal? | Signs from Ahadith | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
+
+***
+
+#### [Situation in Middle East | Sahil Adeem & Orya Maqbool Jan Podcast](https://www.youtube.com/watch?v=F8Ste5HwVCk)
+
+***

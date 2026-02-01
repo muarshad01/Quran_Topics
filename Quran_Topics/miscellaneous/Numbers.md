@@ -2,7 +2,7 @@
 
 **** 
 
-## Distinct whole numbers
+#### Distinct whole numbers
 * There are thirty distinct whole numbers that are mentioned in the Qur’an:
   * 1,
   * 2,
@@ -36,7 +36,7 @@
  
 ***
 
-### Distinct fractions
+#### Distinct fractions
 * The eight distinct fractions used in the Qur’an are:
   *  1/10,
   *  1/8,
@@ -49,6 +49,6 @@
 
 ***
 
-### [How to identify lucky numbers, Pakistan ky Ly Ya Sal Kysa Rhy ga ? | 89 News HD](https://www.youtube.com/watch?v=EY0ywAk0Qaw)
+#### [How to identify lucky numbers, Pakistan ky Ly Ya Sal Kysa Rhy ga ? | 89 News HD](https://www.youtube.com/watch?v=EY0ywAk0Qaw)
 
 ***

@@ -53,3 +53,7 @@
 * 8,500 martyrs
 
 *** 
+
+#### [Mahe Shaban Mein Taqdeer Likhi Jati Hai – Allah Ki Ladli Surat 10 Bar Parh Lo | Khadim Hussain Rizvi](https://www.youtube.com/watch?v=5vYB1lhxp3g)
+
+***

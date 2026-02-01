@@ -46,3 +46,9 @@
   *  1/3,
   *  1/2,
   *  2/3.
+
+***
+
+### [How to identify lucky numbers, Pakistan ky Ly Ya Sal Kysa Rhy ga ? | 89 News HD](https://www.youtube.com/watch?v=EY0ywAk0Qaw)
+
+***

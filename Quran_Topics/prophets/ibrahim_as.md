@@ -313,3 +313,7 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 ### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
 
 ***
+
+#### [Hazrat Ibrahim AS Ka Allah Par Yaqeen | Islamic Reminder | Shaykh Atif Ahmed](https://www.youtube.com/shorts/cqirjLCWKsM)
+
+***

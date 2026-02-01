@@ -1,5 +1,9 @@
 ## Tawakkal
 
+#### [Yaqeen Kay Kmalaat | یقین کے کمالات | Dua Kaisy Qabool Hoti ha? | Mufti Muhammad Qasim Attari](https://www.youtube.com/watch?v=zegBAbH6-QQ)
+
+***
+
 #### [Yaqeen Ki Power | The Power of Belief | Irfan-ul-Haq](https://www.youtube.com/watch?v=UEowk2OzuIE)
 * Three types of Yaqeen: 
 * __Surah At-Takathur 102/5 (عِلْمَ ٱلْيَقِينِ)__: [كَلَّا لَوْ تَعْلَمُونَ عِلْمَ ٱلْيَقِينِ](https://quran.com/102/5)

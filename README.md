@@ -61,7 +61,7 @@
 | 2. | [As-Salat (Namaz)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/namaaz_in_quran.md); [Sajdah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/sajdah.md); [Azan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/deen/azan.md)| 12/06/2025|
 | 3. | [ Sabr (Patience): The top-most](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/sabr_patience.md)| 21/01/2026 |
 | 4. | [Tawbah](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawah.md)|12/06/2025|
-| 5. | [Tawaqqal (Trust on Allah SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawaqqal.md) | 12/06/2025 |
+| 5. | [Tawaqqal (Trust on Allah SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/tawaqqal.md) | 31/01/2026 |
 | 6. | [Musibet (Trouble)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Trouble.md) | 12/06/2025 |
 | 7. | [Muqadma (Court Case)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/muqadma.md)| 12/06/2025|
 | 8. | [Fawz (Success)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/success.md)  | 12/06/2025 |

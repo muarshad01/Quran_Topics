@@ -31,4 +31,12 @@
 
 #### [Shab-e-Barat Me Yeh 1 Wazifa Sb Musalman Karen😍 | Sara Saal Barkaten😱 | Mufti Muneer Akhoon | 2026 |](https://www.youtube.com/watch?v=Q0TqGckmZJQ)
 
+After Maghrib
+1. Surah Yaseen (3 times)
+Daraazi Umer ki Dua
+Baloan kay dafah honay ki nayat
+apnay alawa kisi ka mohtaaj na karna
+2. Surah Dhukkan Tilawat
+3. 
+
 ***

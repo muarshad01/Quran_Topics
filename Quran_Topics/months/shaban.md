@@ -42,12 +42,14 @@ apnay alawa kisi ka mohtaaj na karna
 ***
 
 #### [Shab-e-Baraat - Sab Se Qeemti Raat Aur Uske Raaz | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=BAt5kKtmnz0)
-* 117-time Surah Muzammil 
-* 14,000-time Surah Akhlas
-* 13-time Surah Rahman
-* 2100-time Nad-e-Ali
-* 41-time Yaseen
-* 1,000 Surah Fatiha
-* 1,9000 Bismillah
+* Surah Muzammil: 117-time  
+* Surah Akhlas: 14,000-time 
+* Surah Rahman: 13-time 
+* Nad-e-Ali: 2100-time 
+* Yaseen: 41-time 
+* Surah Fatiha: 1,000 
+* Bismillah: 1,9000 
 
 ***
+
+#### [Shab-e-Barat | Makhsus Ibadat aur Azkaar | Worship and Supplications | Dr Tahir-ul-Qadri](https://www.youtube.com/watch?v=e2z6qjTNcf0)

@@ -91,3 +91,13 @@
 ***
 
 #### [How to Find the Best Rishta? | Marriage Expert Mrs Khawaja Shares Useful Tips | Samaa Podcast](https://www.youtube.com/watch?v=fTvxP2ABrNk)
+
+***
+
+#### [Funny](https://www.youtube.com/shorts/y6M7QnRKIVo)
+1. Lot of attitude
+2. Shallow
+3. Not Submissive
+4. Way too aggressive
+
+***

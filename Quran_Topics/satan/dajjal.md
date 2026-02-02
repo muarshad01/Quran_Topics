@@ -281,4 +281,9 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Jerusalem (or City of David)](https://www.generationword.com/jerusalem101/19-city-of-david.html)
 1. Gihon Spring
 2. __The Book of Isaiah__ is a prophetic book in the Hebrew Bible and Christian Old Testament, containing the oracles of the prophet Isaiah and his disciples, which include warnings of judgment against the sin of Israel and Judah, and a message of hope through a coming Messiah and future restoration
+* Three seperate thinge:
+  * Bani-Israel
+  * Al-e-Yaqoob
+  * Jews
 
+*** 

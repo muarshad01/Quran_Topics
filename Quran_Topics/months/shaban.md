@@ -28,3 +28,7 @@
 #### [Shab-e-Barat mein maghfirat ki Banu Kalb ki bakriyon se tamseel ka sabab | Dr Tahir-ul-Qadri](https://www.youtube.com/watch?v=k77yI7J3g50)
 
 ***
+
+#### [Shab-e-Barat Me Yeh 1 Wazifa Sb Musalman Karen😍 | Sara Saal Barkaten😱 | Mufti Muneer Akhoon | 2026 |](https://www.youtube.com/watch?v=Q0TqGckmZJQ)
+
+***

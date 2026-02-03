@@ -29,15 +29,18 @@
 
 ***
 
-#### [Shab-e-Barat Me Yeh 1 Wazifa Sb Musalman Karen😍 | Sara Saal Barkaten😱 | Mufti Muneer Akhoon | 2026 |](https://www.youtube.com/watch?v=Q0TqGckmZJQ)
+#### [Shab-e-Barat Me Yeh 1 Wazifa Sb Musalman Karen😍 | Sara Saal Barkaten😱 | Mufti Muneer Akhoon | 2026](https://www.youtube.com/watch?v=Q0TqGckmZJQ)
 
 After Maghrib:
-* __Surah Yaseen__ (3 times)
-1. Daraazi Umer ki Dua
-2. Baloan kay dafah honay ki nayat
-3. Apnay alawa kisi ka mohtaaj na karna
 * __Surah Dhukkan__: Recitation (Done!)
-3. 
+* __Surah Ale-Imran 3/173 (حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ)__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173) - 1,000 time
+* "Ya Hayyu Ya Qayyum bi rahmatika astaghees" (يَا حَيُّ يَا قَيُّوْمُ بِرَحْمَتِكَ أَسْتَغِيْثُ)__
+* Sale-e-Tasbeeh
+
+*** 
+
+* __Surah Yaseen__: Recitation (3 times)
+* 1. Long Life; 2. Baloan-kay dafah-honay ki-nayat; Apnay-alawa kisi-ka mohtaaj-na-karna
 
 ***
 

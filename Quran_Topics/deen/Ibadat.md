@@ -147,3 +147,11 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 * Apni-__ZINDAGI__-ko uss-Allah-kay hawalay-kar-do jo __NAIMATOON__-ka __KHALIQ__-hai
 
 ***
+
+#### [Special Guest Famous Spiritual Scholar Syed Sarfraz Ahmad Shah](https://www.youtube.com/watch?v=9JphNm881Bc)
+* 26:00
+1. My Rabb is Liaq-e-Ibadah (Highest level)
+2. This is an Order of my Rabb
+3. Paradise and Hell
+4. I'm saved from trials
+

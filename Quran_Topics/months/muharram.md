@@ -238,3 +238,12 @@
 ***
 
 #### [Shan-e-Imam Hassan a.s Part 3 | Allama Talib Johri](https://www.youtube.com/watch?v=I2hN8g37LI8)
+
+
+***
+
+#### [Wazifa Mein Waqt Aur Tadaad Ki Qaid Kyun | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/shorts/_DwGFnUfFFU)
+* Nad-e-Ali
+
+***
+

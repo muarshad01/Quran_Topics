@@ -372,6 +372,14 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 #### [Jism Mein Jinnat Ki Hazeri? | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=-a1X3BPw-Mg)
 
+***
+
+#### [Wazifa for Shadi, Rizq, Karobar & Family Problems |Ft. Rukhsar Latif | Think Digital Podcast](https://www.youtube.com/watch?v=wZOa1bNH9tE)
+* 30:00
+* Surah Yaseen - 3 time; Awal/Akhir Darood Sharif; and give gift to Hazrat Bibi Syeda Fatima Zehra RA
+
+***
+
 * Ya Raqeebu, Ya Hafeezu - 1,300 time - 41 days
 
 ***

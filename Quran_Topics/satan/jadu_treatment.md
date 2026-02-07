@@ -369,3 +369,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 * Ya Jabbaru, Ya Qaharru - 12,500 time - 41 day
 
 ***
+
+#### [Jism Mein Jinnat Ki Hazeri? | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=-a1X3BPw-Mg)
+
+***

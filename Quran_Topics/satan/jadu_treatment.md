@@ -365,7 +365,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 ***
 
 #### [Jinnat Ko Jalane Wala Taqatwer Wazifa | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=Yv2xYbjoJE0)
-* Ya Raqeebu 5,000 - 41 day
-* Ya Jabbaru, Ya Qaharru 12,500 - 41 day
+* Ya Raqeebu - 5,000 time - 41 day; 11 time darood sharif awal akhir; On Thursday
+* Ya Jabbaru, Ya Qaharru - 12,500 time - 41 day
 
 ***

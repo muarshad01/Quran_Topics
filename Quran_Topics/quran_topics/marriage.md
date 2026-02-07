@@ -103,3 +103,7 @@
 ***
 
 #### [Rizq Ki Barkat Aur Daulat Ki Barish Ka Wazifa | Ft. M. Rukhsar Latif & Osama Tayyab](https://www.youtube.com/watch?v=eT6xaljcRt4)
+
+***
+
+#### [Wazifa for Shadi, Rizq, Karobar & Family Problems |Ft. Rukhsar Latif | Think Digital Podcast](https://www.youtube.com/watch?v=wZOa1bNH9tE)

@@ -1,3 +1,8 @@
+#### [Kam Bolna Kyun Ibadat Hai? 🤔 Nabi ﷺ Aur Islam Ki Gahri Hikmat | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=ijfzHTOjDSw)
+* All else is OK, however, he talks irrelevent.
+
+***
+
 #### Solitude
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * Adopt __SILENCE__, your relationship with God will be established.

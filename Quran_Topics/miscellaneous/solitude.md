@@ -73,4 +73,9 @@
 
 ***
 
+#### [Jab Allah Kisi Ko Aagay Le Jana Chahta Hai To Yeh Kaifiyat Deta Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=op5e9ZqKno4)
+
+***
+***
+
 #### [Hazrat Ali (R.A) Wisdom | Why Wise People Love Solitude | Nida-e-Haq](https://www.youtube.com/watch?v=HB3DWJvmUP0)

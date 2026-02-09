@@ -1,8 +1,7 @@
 ## Trouble
 
-```
-* Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it -- Prof. ARA
-```
+* __Allah SWT looks at Loh-e-Mehfooz 70,000 times daily...for whom I should change it -- Prof. ARA__
+
 * __Surah Al-Baqarah 2/155-156__: [وَلَنَبْلُوَنَّكُم ...بِشَىْءٍۢ مِّنَ ٱلْخَوْفِ... وَٱلْجُوعِ ...وَنَقْصٍۢ مِّنَ ٱلْأَمْوَٰلِ... وَٱلْأَنفُسِ ...وَٱلثَّمَرَٰتِ ۗ... وَبَشِّرِ ٱلصَّـٰبِرِينَ......ٱلَّذِينَ إِذَآ أَصَـٰبَتْهُم مُّصِيبَةٌۭ... قَالُوٓا۟ إِنَّا لِلَّهِ وَإِنَّآ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/155-156)
   * For every big trouble...read this tasbeeh...
 * __Surah An-Nisa 4/147__: [مَّا يَفْعَلُ ٱللَّهُ بِعَذَابِكُمْ إِن شَكَرْتُمْ وَءَامَنتُمْ ۚ وَكَانَ ٱللَّهُ شَاكِرًا عَلِيمًۭا](https://quran.com/4/147)

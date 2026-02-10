@@ -579,3 +579,7 @@ __Surah Ar-Rahman 55/6__: [وَٱلنَّجْمُ وَٱلشَّجَرُ يَس�
 * __Surah Al-Anfal 8/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quran.com/8/33)
 
 ***
+
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/muhammad-saw-kids.png" width="500" height="500" />
+
+***

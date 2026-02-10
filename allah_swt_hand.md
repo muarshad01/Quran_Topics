@@ -2,6 +2,14 @@
 
 * __Surah Al-Mulk 67/1__: [تَبَـٰرَكَ ٱلَّذِى... بِيَدِهِ ٱلْمُلْكُ... وَهُوَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌ](https://quran.com/67/1)
 
+***
+
+#### Hadith
+* “I was a Treasure unknown then I desired to be known so I created a creation to which I made Myself known; then they knew Me.”
+* __Surah Adh-Dhariyat 51/56__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/51/56)
+
+***
+
 #### Huwa (هُوَ)
 * __Surah Al-Ikhlas 112 (هُوَ ٱللَّهُ)__: [قُلْ هُوَ ٱللَّهُ أَحَدٌ](https://quran.com/112)
 * __Surah Al-Hadid 57/3 (هُوَ ٱلْأَوَّلُ وَٱلْـَٔاخِرُ)__: [هُوَ ٱلْأَوَّلُ وَٱلْـَٔاخِرُ... وَٱلظَّـٰهِرُ وَٱلْبَاطِنُ ۖ... وَهُوَ بِكُلِّ شَىْءٍ عَلِيمٌ](https://quran.com/57/3)

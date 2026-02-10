@@ -7,16 +7,23 @@
 * __Surah An-Najm 53/32__: [ٱلَّذِينَ يَجْتَنِبُونَ كَبَـٰٓئِرَ ٱلْإِثْمِ وَٱلْفَوَٰحِشَ إِلَّا ٱللَّمَمَ ۚ إِنَّ رَبَّكَ وَٰسِعُ ٱلْمَغْفِرَةِ ۚ هُوَ أَعْلَمُ بِكُمْ إِذْ أَنشَأَكُم مِّنَ ٱلْأَرْضِ وَإِذْ أَنتُمْ أَجِنَّةٌۭ فِى بُطُونِ أُمَّهَـٰتِكُمْ ۖ فَلَا تُزَكُّوٓا۟ أَنفُسَكُمْ ۖ هُوَ أَعْلَمُ بِمَنِ ٱتَّقَىٰٓ](https://quran.com/53/32)
 * __Surah Al-Hashr 59/22-24__: []()
 
+***
 
-* Ana
-* Nahnu auliakum 
 
-* Here are key Quranic ayat that use the term "Nahnu" or "Inna" (Verily We):
 
+
+***
+
+#### We (نَحْنُ) & We (إِنَّا)
 * __Surah Al-Baqarah 2/30__: [When Allah mentions the angels, they say, "...and we (نَحْنُ) glorify You and declare Your holiness." (Here, "We" refers to the angels).](https://quran.com/2/30)
 * __Surah Yusuf 12/3__: ["We relate to you, [O Muhammad], the best of stories in what We have revealed to you of this Quran..."](https://quran.com/12/3)
-* __Surah Al-Hijr 15/9__: ["Indeed, It is We (نَحْنُ) who sent down the Quran and indeed, We (إِنَّا) will be its guardian."](https://quran.com/15/9)
+* __Surah Al-Hijr 15/9__: [إِنَّا نَحْنُ نَزَّلْنَا ٱلذِّكْرَ ...وَإِنَّا لَهُۥ لَحَـٰفِظُونَ](https://quran.com/15/9)
+* __Surah Fussilat 41/31__: [نَحْنُ أَوْلِيَآؤُكُمْ فِى ٱلْحَيَوٰةِ ٱلدُّنْيَا وَفِى ٱلْـَٔاخِرَةِ ۖ وَلَكُمْ فِيهَا مَا تَشْتَهِىٓ أَنفُسُكُمْ وَلَكُمْ فِيهَا مَا تَدَّعُونَ](https://quran.com/41/31)
+
 * __Surah Qaf 50/16__: ["And We have already created man and know what his soul whispers to him, and We are closer to him than [his] jugular vein."](https://quran.com/50/16)
 
 ***
+
+* __Surah Al-Baqarah 2/115__: [وَلِلَّهِ ٱلْمَشْرِقُ وَٱلْمَغْرِبُ ۚ... فَأَيْنَمَا تُوَلُّوا۟... فَثَمَّ وَجْهُ ٱللَّهِ ۚ... إِنَّ ٱللَّهَ وَٰسِعٌ عَلِيمٌۭ](https://quran.com/2/115)
+
 

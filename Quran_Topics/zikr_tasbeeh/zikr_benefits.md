@@ -13,6 +13,10 @@
 
 ***
 
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr-hadith.png" width="500" height="500" />
+
+***
+
 ### Hadith
 * [Abu Ad-Darda [may Allah be pleased with him] narrated that : the Prophet said: “Should I not inform you of the best-of-your-deed, and the purest-of-them with your Master, and the highest-of-them in your ranks, and what is better for you than spending gold-and-silver, and better for you than meeting your enemy and striking their necks, and they strike your necks?” They said: “Of course.” He said, “The REMEMBERANCE of Allah [Most High].” [Then] Mu’adh bin Jabal [may Allah be pleased with him] said: “There is nothing that brings more salvation from the punishment-of-Allah than the remembrance-of-Allah.”](https://sunnah.com/tirmidhi:3377) -- Jami` at-Tirmidhi 3377
 

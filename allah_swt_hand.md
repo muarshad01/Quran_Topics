@@ -7,3 +7,5 @@
 * __Surah Qaf 50/16__: ["And We have already created man and know what his soul whispers to him, and We are closer to him than [his] jugular vein."](https://quran.com/50/16)
 
 ***
+
+* __Surah Al-Hadid 57/3__: [هُوَ ٱلْأَوَّلُ وَٱلْـَٔاخِرُ... وَٱلظَّـٰهِرُ وَٱلْبَاطِنُ ۖ... وَهُوَ بِكُلِّ شَىْءٍ عَلِيمٌ](https://quran.com/57/3)

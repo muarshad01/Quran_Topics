@@ -39,5 +39,8 @@
 * Baytullah
 * (Awal, Akhir)
 * (Zahir, Batin)
+* __Surah Al-Ikhlas 112/3__: [لَمْ يَلِدْ وَلَمْ يُولَدْ](https://quran.com/112/3)
+
+* __Surah Al-Fath 48/7__: [وَلِلَّهِ جُنُودُ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۚ وَكَانَ ٱللَّهُ عَزِيزًا حَكِيمًا](https://quran.com/48/7)
 
 ***

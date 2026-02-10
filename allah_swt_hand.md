@@ -9,11 +9,6 @@
 
 ***
 
-
-
-
-***
-
 #### We (نَحْنُ) & We (إِنَّا)
 * __Surah Al-Baqarah 2/30__: [When Allah mentions the angels, they say, "...and we (نَحْنُ) glorify You and declare Your holiness." (Here, "We" refers to the angels).](https://quran.com/2/30)
 * __Surah Yusuf 12/3__: ["We relate to you, [O Muhammad], the best of stories in what We have revealed to you of this Quran..."](https://quran.com/12/3)
@@ -26,4 +21,8 @@
 
 * __Surah Al-Baqarah 2/115__: [وَلِلَّهِ ٱلْمَشْرِقُ وَٱلْمَغْرِبُ ۚ... فَأَيْنَمَا تُوَلُّوا۟... فَثَمَّ وَجْهُ ٱللَّهِ ۚ... إِنَّ ٱللَّهَ وَٰسِعٌ عَلِيمٌۭ](https://quran.com/2/115)
 
+* __Surah Al-Baqarah 2/138__: [صِبْغَةَ ٱللَّهِ ۖ... وَمَنْ أَحْسَنُ مِنَ ٱللَّهِ صِبْغَةًۭ ۖ... وَنَحْنُ لَهُۥ عَـٰبِدُونَ](https://quran.com/2/138)
 
+* Bayt Ullah
+
+***

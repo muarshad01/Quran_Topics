@@ -3,6 +3,10 @@
 
 ***
 
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/noise-of-world.png" width="500" height="500" />
+
+***
+
 #### Solitude
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * Adopt __SILENCE__, your relationship with God will be established.

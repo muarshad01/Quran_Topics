@@ -3,6 +3,21 @@
 
 ***
 
+* The term "Mubeen" appears over 100 times in the Quran, often describing the book, revelation, or truth as "clear".
+
+***
+
+Some interpretations also highlight "Al-Kitab al-Mubeen" in other surahs, such as 
+
+* __Surah Yusuf 12/1__: [الٓر ۚ تِلْكَ ءَايَـٰتُ ٱلْكِتَـٰبِ ٱلْمُبِينِ](https://quran.com/12/1)
+* __Surah Al-Hijr 15/1__: [الٓر ۚ تِلْكَ ءَايَـٰتُ ٱلْكِتَـٰبِ وَقُرْءَانٍۢ مُّبِينٍۢ](https://quran.com/15/1)
+* __Surah An-Naml 27/1__: [طسٓ ۚ تِلْكَ ءَايَـٰتُ ٱلْقُرْءَانِ وَكِتَابٍۢ مُّبِينٍ](https://quran.com/27/1)
+* __Surah Al-Qasas 28/2__: [تِلْكَ ءَايَـٰتُ ٱلْكِتَـٰبِ ٱلْمُبِينِ](https://quran.com/28/2)
+* __Surah Az-Zukhraf 43/2__: [وَٱلْكِتَـٰبِ ٱلْمُبِينِ](https://quran.com/43/2)
+
+
+***
+
 * __Surah Yaseen 36/12 (إِمَامٍۢ مُّبِينٍۢ)__: [إِنَّا نَحْنُ نُحْىِ ٱلْمَوْتَىٰ وَنَكْتُبُ مَا قَدَّمُوا۟ وَءَاثَـٰرَهُمْ ۚ وَكُلَّ شَىْءٍ أَحْصَيْنَـٰهُ فِىٓ إِمَامٍۢ مُّبِينٍۢ](https://quran.com/36/12)
 * __Surah Yaseen 36/17 (ٱلْبَلَـٰغُ ٱلْمُبِينُ)__: [وَمَا عَلَيْنَآ إِلَّا ٱلْبَلَـٰغُ ٱلْمُبِينُ](https://quran.com/36/17)
 * __Surah Yaseen 36/24 (ضَلَـٰلٍۢ مُّبِينٍ)__: [إِنِّىٓ إِذًۭا لَّفِى ضَلَـٰلٍۢ مُّبِينٍ](https://quran.com/36/24)

@@ -387,3 +387,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Makhlooq Khuda Ko Tang Karne Wale Ka Dardnaak Anjaam | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=Rh5l0Th9ML8&t=42s)
 
 ***
+
+#### [Aisa Jadu Jis Ka Pata Bhi Nahi Chalta – Is Ka Mukammal Ilaj](https://www.youtube.com/watch?v=D6ymJYCIPrY)
+
+***

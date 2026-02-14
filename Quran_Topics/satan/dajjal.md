@@ -287,3 +287,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
   * Jews
 
 *** 
+
+#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
+
+***

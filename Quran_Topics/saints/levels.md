@@ -8,3 +8,7 @@
 4. The righteous—what honourable company!
 
 ***
+
+#### [Kya Ghaus Qutub Abdaal Dunya Chalate Hain? | Wasif Ali Wasif](https://www.youtube.com/watch?v=-Hxlb8o28PU)
+
+***

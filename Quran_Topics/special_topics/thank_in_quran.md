@@ -9,6 +9,8 @@ Mataa-e-Bebaha Hai Dard-o-Souz-e-Arzoo-Mandi
 Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 ```
 
+***
+
 #### [Imam Ali’s (R.A) Dua | Brings Peace in Times of Loss | غم میں صبر—حضرت علیؓ کی دعا | SSA Shah](https://www.youtube.com/watch?v=gHBm1jdt1mw)
 * This Duaa has two parts:
 1. Thankfulness

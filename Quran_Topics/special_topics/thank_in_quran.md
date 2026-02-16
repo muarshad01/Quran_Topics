@@ -148,10 +148,10 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 ***
 
 #### [Shukar Kia Hai? | Dr Israr Ahmed](https://www.youtube.com/watch?v=j2QiNrhzJA4)
-* __Shukar aik jazba hai (Jazba-e-Tashakar)__
+* __Shukar aik jazba hai (Jazba-e-Tashakkar)__
 * Fitrat-ki-sehat-ki alamat-hai
 * __Surah Al-Anam 6/74-90__: [](https://quran.com/6/74-90)
-* __Surah Luqman 31/12 (وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِ)__: [وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ أَنِ ٱشْكُرْ لِلَّهِ ۚ وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ ۖ وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌۭ](https://quran.com/31/12)
+* __Surah Luqman 31/12 (وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِ)__: [وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ... أَنِ ٱشْكُرْ لِلَّهِ ۚ... وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ... ۖ وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌۭ](https://quran.com/31/12)
 
 ***
 
@@ -162,7 +162,7 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 * __Forehead__: Jis-mathay-ko zameen-pay tekhta-hoon, woh matha-bhi Tu-nay-hi ata-kiya-hai
 * Jis-Zameen par tekta-hoon, who-zameen bhi Tu-nay paida ki-hai
 * __Eyes__: Jin-ankhoon say ansoo-bahata-hoon, woh-ansoo-bhi Tu-nay ata-keyay-hayn
-  * Aankhayn bhi Teri-hayn
+  * Aankhayn bhi Tuh-nay dee-hayn
 * Dawood-ka apna kuch-bhi-nahi kay jis-baat-par mayn-shukar-ada-karon
 * O Dawd, yeah Tera-itaraaf hai-joo, yehi-shukar-hai, jis-par tu-nay haqq-ada kar-diya.
 * __Shukar-kay-alfaz bhi Tu-nay hi-shikai.__

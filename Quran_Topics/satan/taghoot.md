@@ -50,3 +50,12 @@
 #### [What is Taghoot? | Sahil Adeem Against Taghoot System | Abdus Salam Explanation on Taghoot System](https://www.youtube.com/watch?v=ymjK804-7Rc)
 
 ***
+
+
+#### [Part-1 : Taghoot can only be found through Quran  | طاغوت کی شناخت صرف قران سے ممکن | Abdus Salam Arif](https://www.youtube.com/watch?v=7p3nZgWfprc)
+
+***
+
+#### [Part-2 : Taghoot can only be found through Quran  | طاغوت کی شناخت صرف قران سے ممکن | Abdus Salam Arif](https://www.youtube.com/watch?v=UKlEoMZZsq4)
+
+***

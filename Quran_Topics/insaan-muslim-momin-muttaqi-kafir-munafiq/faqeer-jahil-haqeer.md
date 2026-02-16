@@ -9,6 +9,12 @@
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * __THINK__ in SOLITUDE.
 * __FOCUS__ on `Ghor-o-Fikr`
+
+* Jo-kuch merey-pass-hai...uss-par-mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai
+Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai. Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai. -- SSA Shah
+
+
+
 ***
 
 #### [Signs of a Genuine Faqeer | حقیقی فقیر کی پہچان—دو زبردست ٹیسٹ | SSA Shah](https://www.youtube.com/watch?v=_iT2O7iMTq0)

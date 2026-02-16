@@ -156,7 +156,7 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 ***
 
 #### [Hazrat Daud A.S Jesa Shukar Kia Ap Ada Kar Sakta Hay? | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=CtKH5VUFXwM)
-* __Surah Saba 34/13 (ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ)__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
+* __Surah Saba 34/13 ( ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ.... وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ)__: [يَعْمَلُونَ لَهُۥ مَا يَشَآءُ مِن مَّحَـٰرِيبَ وَتَمَـٰثِيلَ وَجِفَانٍۢ كَٱلْجَوَابِ وَقُدُورٍۢ رَّاسِيَـٰتٍ ۚ... ٱعْمَلُوٓا۟ ءَالَ دَاوُۥدَ شُكْرًۭا ۚ.... وَقَلِيلٌۭ مِّنْ عِبَادِىَ ٱلشَّكُورُ](https://quran.com/34/13)
 * Ah Allah mayn-terey __Shukkar-ka-Haqq__ ada-hi-nahi kar-sakta__
 * __Tongue__: Jis-zaban-say, Al-hamad-u-lillah (ٱلْحَمْدُ لِلَّٰهِ) kehta-hoon, wo-zaban-bhi Tu-nay ata-ki-hai
 * __Forehead__: Jis-mathay-ko zameen-pay tekhta-hoon, woh matha-bhi Tu-nay-hi ata-kiya-hai

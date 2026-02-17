@@ -51,7 +51,11 @@
 #### [Ramzan Mein 4 Aham Aamaal Zaroor Apnao 🤲| Rasool Allah ﷺ Ka Pyara Farman | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=CDb9T2FTb1c)
 
 * Two things to do:
-1. Kalma Taiba
-2. Istigfar
+1. Kalma Taiba (125,000 time in Ramadan)
+2. Istigfar (70,000 in Ramadan)
 
+* Duaa
+1. Jannat Ki Talab ("Allahumma inni as'aluka al-jannah" (اللَّهُمَّ إِنِّي أَسْأَلُكَ الْجَنَّةَ))
+2. Jahannum say panah (The du'aa "Allahumma inni as'aluka jannah wa a'udhu bika min an naar" (اللَّهُمَّ إِنِّي أَسْأَلُكَ الجَنَّةَ وَأَعُوذُ بِكَ مِنَ النَّارِ) )
+  
 ***

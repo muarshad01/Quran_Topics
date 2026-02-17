@@ -106,7 +106,7 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 
 ***
 
-* __Surah Al-Waaqia 56/70__: [لَوْ نَشَآءُ جَعَلْنَـٰهُ أُجَاجًۭا فَلَوْلَا تَشْكُرُونَ](https://quran.com/56/70)
+* __Surah Al-Waaqia 56/70__: [لَوْ نَشَآءُ... جَعَلْنَـٰهُ أُجَاجًۭا... فَلَوْلَا تَشْكُرُونَ](https://quran.com/56/70)
 
 ***
 

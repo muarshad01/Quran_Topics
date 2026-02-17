@@ -3,6 +3,11 @@
 
 ***
 
+#### [Trusting Allah Leads to Success | SSA Shah](https://www.youtube.com/watch?v=eTR729HZIL8)
+*
+
+***
+
 #### [Yaqeen Kay Kmalaat | یقین کے کمالات | Dua Kaisy Qabool Hoti ha? | Mufti Muhammad Qasim Attari](https://www.youtube.com/watch?v=zegBAbH6-QQ)
 
 ***

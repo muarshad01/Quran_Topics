@@ -1,9 +1,7 @@
-
 #### [Why Do Muslims Fast? | روزہ کیا ہے؟| SSA Shah](https://www.youtube.com/watch?v=DSxTG3NWrYg)
 * Also, Sunnat-e-Rabb as He doesn't eat or drink. He is Pure (Pakk).
-* Allah Almighty said, __"Except for fasting, as it is for Me and I will reward it."__ -- Hadith
 * [It was narrated from Abu Hurairah that the Messenger of Allah (ﷺ) said:
-“Every good deed of the son of Adam will be multiplied manifold. A good deed will be multiplied ten times up to as many as seven hundred times, or as much as Allah wills. Allah says: ‘Except for fasting, which is for Me and I shall reward for it. He gives up his desire and his food for My sake.’ The fasting person has two joys, one when he breaks his fast and another when he meets his Lord. The smell that comes from the mouth of a fasting person is better before Allah than the fragrance of musk.”] -- Hadith
+“Every good deed of the son of Adam will be multiplied manifold. A good deed will be multiplied ten times up to as many as seven hundred times, or as much as Allah wills. Allah says: ‘Except for fasting, which is for Me and I shall reward for it. He gives up his desire and his food for My sake.’ The fasting person has two joys, one when he breaks his fast and another when he meets his Lord. The smell that comes from the mouth of a fasting person is better before Allah than the fragrance of musk.”](https://sunnah.com/muslim:1151e) -- Sahih Muslim 1151e
 
 ***
 

@@ -1,3 +1,12 @@
+#### [Mah-e-Ramzan Ka Mafhoom? | SSA Shah](https://www.youtube.com/watch?v=KTbuaBGykAQ)
+* Shahar-e-Ramadan
+  * Shahar - Soharat (Famaous)
+  * Ramadan - Ramz (Verb: To Burn); Ramdah - Hot stone
+* Mahe-e-Sayam
+  * Sayam - Kisi-cheez-say ruk-jana; kisi-cheez-ko tarak-kar-deena.
+
+***
+
 #### [Why Do Muslims Fast? | روزہ کیا ہے؟| SSA Shah](https://www.youtube.com/watch?v=DSxTG3NWrYg)
 * Also, Sunnat-e-Rabb as He doesn't eat or drink. He is Pure (Pakk).
 * [It was narrated from Abu Hurairah that the Messenger of Allah (ﷺ) said:
@@ -8,11 +17,7 @@
 
 ***
 
-#### [Mah-e-Ramzan Ka Mafhoom? | SSA Shah](https://www.youtube.com/watch?v=KTbuaBGykAQ)
-
-***
-
-#### [Kiya Degar Sahifay Aur Asmani Kitabyn Bhi Mah E Ramzan Main Nazil Hoen? | SSA Shah](https://www.youtube.com/watch?v=WfC6M3NG5vk)
+#### [Kiya Degar Sahifay Aur Asmani Kitabyn Bhi Mah-e-Ramzan Main Nazil Hoen? | SSA Shah](https://www.youtube.com/watch?v=WfC6M3NG5vk)
 
 ***
 

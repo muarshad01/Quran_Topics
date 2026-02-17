@@ -47,7 +47,7 @@
 |---|---|---|
 | 1. -A-- | [Zikr (Rememberance)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/zikr_benefits.md) | 10/01/2026 | 
 | 2. -A-- | [Tasbeeh (Glorifying and Praising Allah (SWT)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/zikr_tasbeeh/tasbeeh_in_quran.md) | 10/01/2026 | 
-| 3. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/thank_in_quran.md) | 12/06/2025 |
+| 3. | [Shukkar (Thankfulness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/thank_in_quran.md) | Feb 16, 2026 |
 | 4. | [Istighfar (Seeking forgiveness)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/Istighfar.md) | 12/06/2025 |
 | 5. | [Rizq (Sustenance or provision)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/special_topics/rizq.md)  | 12/06/2025 |
 
@@ -125,8 +125,8 @@
 
 | No.  | Nafas and Tazkia | Last Updated |
 |---|---|---|
-| 1. | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md) | 09/01/2026 |
-| 2. | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 09/01/2026 |
+| 1. -A-- | [Nafas (Self, Soul, or Psyche.)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/nafs.md)  | 09/01/2026 |
+| 2. -A-- | [Tazkia (Purification) Nafas](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/nafs_tazkia/tazkia.md) | 09/01/2026 |
 
 ***
 

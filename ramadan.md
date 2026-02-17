@@ -47,3 +47,11 @@
 * Nazr-e-Baad: Surah Falaq / Surah Naas
 
 ***
+
+#### [Ramzan Mein 4 Aham Aamaal Zaroor Apnao 🤲| Rasool Allah ﷺ Ka Pyara Farman | Mufti Muneer Ahmad Akhoon](https://www.youtube.com/watch?v=CDb9T2FTb1c)
+
+* Two things to do:
+1. Kalma Taiba
+2. Istigfar
+
+***

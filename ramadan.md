@@ -43,5 +43,7 @@
 
 #### [Ramadan Mein Muhammad SAW Ki Ziyarat Kaise Ho Gi? | FT: Chaudhry Rukhsar Latif | Irfan Asghar](https://www.youtube.com/watch?v=VA-oXqSuvDg)
 
+* __Surah Yaseen 36/58 (For Heart)__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
+* Nazr-e-Baad: Surah Falaq / Surah Naas
+
 ***
-  

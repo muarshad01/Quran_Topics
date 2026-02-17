@@ -124,8 +124,8 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 
 ##### Mankind (Lin-Naasi):
 * __Surah An-Nas 114 (Allah)__: [Rabb, Malk, Ihah](https://quran.com/114)
-* __Surah Al-Baqarah 2/185 (Quran)__: [أُنزِلَ فِيهِ ٱلْقُرْءَانُ هُدًۭى لِّلنَّاسِ](https://quranw.com/2/185)
-* __Surah Saba 34/28 (Muhammad PBUH)__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا كَآفَّةًۭ لِّلنَّاسِ بَشِيرًۭا وَنَذِيرًۭا وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَعْلَمُونَ](https://quran.com/34/28)
+* __Surah Al-Baqarah 2/185 (Quran: هُدًۭى لِّلنَّاسِ)__: [أُنزِلَ فِيهِ ٱلْقُرْءَانُ... هُدًۭى لِّلنَّاسِ](https://quran.com/2/185)
+* __Surah Saba 34/28 (Muhammad PBUH: وَمَآ أَرْسَلْنَـٰكَ إِلَّا... كَآفَّةًۭ لِّلنَّاسِ)__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا... كَآفَّةًۭ لِّلنَّاسِ ...بَشِيرًۭا وَنَذِيرًۭا وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَعْلَمُونَ](https://quran.com/34/28)
 
 ***
 

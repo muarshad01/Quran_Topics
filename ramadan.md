@@ -7,6 +7,13 @@
 
 ***
 
+#### [How Ramadan Began? | پہلا رمضان کب آیا؟ | SSA](https://www.youtube.com/watch?v=SotYnRTQ3DM)
+* At start of Nawabah
+* 3 fast of Ayam-e-bayz and also 10th of Muharram
+* Before battle of Badr 30 fast were made obligated on Muslims
+* Ba
+***
+
 #### [Why Do Muslims Fast? | روزہ کیا ہے؟| SSA Shah](https://www.youtube.com/watch?v=DSxTG3NWrYg)
 * Also, Sunnat-e-Rabb as He doesn't eat or drink. He is Pure (Pakk).
 * [It was narrated from Abu Hurairah that the Messenger of Allah (ﷺ) said:

@@ -143,9 +143,9 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 * __Surah Al-Insaan 76/7-9__: [يُوفُونَ بِٱلنَّذْرِ وَيَخَافُونَ يَوْمًۭا كَانَ شَرُّهُۥ مُسْتَطِيرًۭا ٧...وَيُطْعِمُونَ ٱلطَّعَامَ عَلَىٰ حُبِّهِۦ مِسْكِينًۭا وَيَتِيمًۭا وَأَسِيرًا...إِنَّمَا نُطْعِمُكُمْ لِوَجْهِ ٱللَّهِ لَا نُرِيدُ مِنكُمْ جَزَآءًۭ وَلَا شُكُورًا](https://quran.com/76/7-9)
 
 ##### "Najzi" (نَجْزِي)
-* __Surah As-Saaffaat 37__: [Noh](https://quranwbw.com/37/79-81)
-* __Surah As-Saaffaat 37__: [Ibrahim](https://quranwbw.com/37/109-111)
-* __Surah As-Saaffaat 37__: [Musa & Haroon](https://quranwbw.com/37/120)
+* __Surah As-Saaffaat 37/79-81__: [Noh](https://quran.com/37/79-81)
+* __Surah As-Saaffaat 37/109-111__: [Ibrahim](https://quran.com/37/109-111)
+* __Surah As-Saaffaat 37/120__: [Musa & Haroon](https://quran.com/37/120)
 
 ***
 

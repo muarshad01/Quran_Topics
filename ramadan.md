@@ -59,3 +59,9 @@
 2. Jahannum say panah (The du'aa "Allahumma inni as'aluka jannah wa a'udhu bika min an naar" (اللَّهُمَّ إِنِّي أَسْأَلُكَ الجَنَّةَ وَأَعُوذُ بِكَ مِنَ النَّارِ) )
   
 ***
+
+#### [Ramzan 2026 Ka Powerful Wazifa | Poora Mahina Neikiyan Kamane Ka Asaan Amal | Ramadan Mubarak](https://www.youtube.com/watch?v=yMAKitokpWE)
+1. Ayat Karima - 41 time
+2. "La ilaha illallahul malikul haqqul mubin" (لَا اِلٰهَ اِلَّا اللهُ الْمَلِكُ الْحَقُّ الْمُبِينُ) - 101 time
+
+***

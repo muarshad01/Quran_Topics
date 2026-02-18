@@ -391,3 +391,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Aisa Jadu Jis Ka Pata Bhi Nahi Chalta – Is Ka Mukammal Ilaj](https://www.youtube.com/watch?v=D6ymJYCIPrY)
 
 ***
+
+#### [Ramadan Mein Jadu Ka Ilaj Asaan | Black Magic Treatment Made Easy | Qari Abdul Basit Salfi](https://www.youtube.com/watch?v=I7iq58GNCG4)
+
+***

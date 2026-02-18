@@ -65,3 +65,7 @@
 2. "La ilaha illallahul malikul haqqul mubin" (لَا اِلٰهَ اِلَّا اللهُ الْمَلِكُ الْحَقُّ الْمُبِينُ) - 101 time
 
 ***
+
+#### [Gunahon Ki Maffi K Ley RAMZAN k Mufhoom Ko Samajhana Zarori Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=hizFIdpPVTo)
+
+***

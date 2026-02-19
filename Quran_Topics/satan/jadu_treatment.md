@@ -395,3 +395,7 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Ramadan Mein Jadu Ka Ilaj Asaan | Black Magic Treatment Made Easy | Qari Abdul Basit Salfi](https://www.youtube.com/watch?v=I7iq58GNCG4)
 
 ***
+
+#### [Mirgi Or Jinnat Mein Farq | 10 Mint Ka Amal | Pir Azmat Nawaz Nade Ali | Patriata Shareef Ilaj](https://www.youtube.com/watch?v=7I6eg60wPVo)
+
+***

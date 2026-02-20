@@ -1,5 +1,7 @@
 * __Surah Yunus 92 (فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ ۚ)__: [فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ ۚ... وَإِنَّ كَثِيرًۭا مِّنَ ٱلنَّاسِ عَنْ ءَايَـٰتِنَا لَغَـٰفِلُونَ](https://quran.com/yunus/92)
 
+***
+
 #### [World War 3 | Russia Pakistan Ka Sath De Ga! Qayamat Ki Nishaniyan Puri | End Of Time](https://www.youtube.com/watch?v=bHNfyiY6SJI)
 * Year 1881 - Pharoh mummy is discovered
 * Nicola Tesla Code - 369

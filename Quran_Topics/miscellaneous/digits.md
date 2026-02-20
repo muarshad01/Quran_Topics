@@ -1,3 +1,7 @@
+* __Surah Al-Jinn 72/28__: [لِّيَعْلَمَ أَن قَدْ أَبْلَغُوا۟ رِسَـٰلَـٰتِ رَبِّهِمْ وَأَحَاطَ بِمَا لَدَيْهِمْ وَأَحْصَىٰ كُلَّ شَىْءٍ عَدَدًۢا](https://quran.com/72/28)
+
+***
+
 #### Haroof-e-Muqataat (`Ramooz-e-Israr-e-Kainaat`)
 * Controlling words of Universe
 * 14 - `Haroof-e-Muqataat`
@@ -406,6 +410,7 @@
 * [Birth Chart](https://www.youtube.com/watch?v=IBoY7q87Lj4)
 
 ***
+
 
 
 

@@ -69,3 +69,7 @@
 #### [Gunahon Ki Maffi K Ley RAMZAN k Mufhoom Ko Samajhana Zarori Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=hizFIdpPVTo)
 
 ***
+
+#### [Ramzan UL Mubarak Ko Samjhain Or GUILT FREE Ho Jayain | Irfan-ulHaq](https://www.youtube.com/watch?v=ir841uSwx9I)
+
+***

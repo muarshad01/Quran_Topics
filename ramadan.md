@@ -73,3 +73,7 @@
 #### [Ramzan UL Mubarak Ko Samjhain Or GUILT FREE Ho Jayain | Irfan-ulHaq](https://www.youtube.com/watch?v=ir841uSwx9I)
 
 ***
+
+#### [PHALA ASHRA App Nay Khud KO Rehmat Kay Roop Mein Dhalnay Ki Practice Kase Karni Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=twpkLaINa5E)
+
+***

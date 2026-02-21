@@ -2,6 +2,10 @@
 
 ***
 
+* __Surah Al-Baqarah 2/121 (يَتْلُونَهُۥ حَقَّ تِلَاوَتِهِۦٓ)__: [ٱلَّذِينَ ءَاتَيْنَـٰهُمُ ٱلْكِتَـٰبَ يَتْلُونَهُۥ حَقَّ تِلَاوَتِهِۦٓ أُو۟لَـٰٓئِكَ يُؤْمِنُونَ بِهِۦ ۗ وَمَن يَكْفُرْ بِهِۦ فَأُو۟لَـٰٓئِكَ هُمُ ٱلْخَـٰسِرُونَ](https://quran.com/2/121)
+
+***
+
 #### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 * Malik ibn Anas (711–795), also known as Imam Malik, was a Muslim scholar, jurist, muhaddith.
 

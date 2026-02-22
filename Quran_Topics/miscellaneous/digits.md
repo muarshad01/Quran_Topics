@@ -354,7 +354,7 @@
 
 #### [Unlock Your Hidden Personality Traits | Abdullah Bhatti](https://www.youtube.com/watch?v=U1e52diM2DM)
 * 1 - [1,10,19,28]
-* Full of talent; cholestor; blood thickness
+* Full of talent; cholesterol; blood thickness
 * Ya Hayyu Ya Qayyum, Ya Latifu - 500x
 * Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
 * ===
@@ -412,5 +412,16 @@
 ***
 
 #### [Numerology Prediction: Who Will Rise in 2026? Predictions for All Numbers | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=rIKTrecs0aQ)
+* 1 - [1,10,19,28]
+* King Number: Jack of all trades; Hardworker; Independent; Highly talented; Bari manzil ka musafir; Full of talent; cholesterol; blood thickness
+* Sunday Best Day
+* Diamond; Pukhraj
+* Sandal fragrance
+* Ya-Hayyu, Ya-Qayyum, Ya-Latifu - 500x
+* Ya-Allahu, Ya-Wakeelu, Ya-Naseeru - 500x
+
+* Year 2026 - 1,3,5 the best
 
 ***
+
+* 4, 8 - are struggling numbers

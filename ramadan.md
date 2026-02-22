@@ -77,3 +77,7 @@
 #### [PHALA ASHRA App Nay Khud KO Rehmat Kay Roop Mein Dhalnay Ki Practice Kase Karni Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=twpkLaINa5E)
 
 ***
+
+#### [Ramzan-ul-Mubarak - Quran Hidayat Ki Kitaab Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=WSG1tnSp7dk)
+
+***

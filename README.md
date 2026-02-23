@@ -107,7 +107,7 @@
 | 1. | [Al-Insaan](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/insaan.md) | 01/01/2026 |
 | 2. | [Muslim](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/muslim.md) | 01/01/2026 | 
 | 3. | [Momin (True Believer)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/momin.md) | 12/6/2025 |
-| 4. | Muttaqi ||
+| 4. | [Muttaqi_Taqwa]([https://github.com/muarshad01/Quran_Topics/blob/main/](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/taqwa_muttaqi.md) ||
 | 5. | [Salaheen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/Salaheen.md)| 01/02/2026 |
 | 6   | [Mukhlaseen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/mukhlaseen.md) | 08/01/2026 |
 | 7. | [Awabeen](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/insaan-muslim-momin-muttaqi-kafir-munafiq/awabeen.md)| 01/01/2026 |

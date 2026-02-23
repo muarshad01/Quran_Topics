@@ -81,3 +81,8 @@
 #### [Ramzan-ul-Mubarak - Quran Hidayat Ki Kitaab Hai | Irfan-ul-Haq](https://www.youtube.com/watch?v=WSG1tnSp7dk)
 
 ***
+
+#### [Want Spiritual Power? | Benefits of Fasting | روحانی ترقی چاہتے ہیں؟ روزہ رکھیں](https://www.youtube.com/watch?v=RQJ_fPN7jr8)
+* Hazrat Nizamuddin Auliya observed fasting on alternate days whole his life.
+
+***

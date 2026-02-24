@@ -21,8 +21,8 @@
 
 ***
 
-#### [Aap Ke Liye Kya Behtar hai Jane | | Mufti Muneer Akhoon](https://www.youtube.com/shorts/nNTKTUT9Y9k)
-* Ya Khabeeru Akhbarni (یَا خَبِیرُ اَخْبِرْنِی)
+#### [Aap Ke Liye Kya Behtar hai Jane | Mufti Muneer Akhoon](https://www.youtube.com/shorts/nNTKTUT9Y9k)
+* Ya Khabeeru Akhbarni (یَا خَبِیرُ اَخْبِرْنِی) - 303 time daily - 41 days
 
 ***
 

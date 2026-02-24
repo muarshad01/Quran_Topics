@@ -1,4 +1,6 @@
 #### [Istikhara ka khas wazifa | Istikhara | Ch Rukhsar Latif](https://www.youtube.com/watch?v=_sR5-HUk9YA)
+* "Qum bi iznillah" (قم باذن اللہ) is an Arabic phrase meaning "Rise by the permission/will of Allah". 41 days - 
+* Ya Allemu - 700 time - 3 days
 
 ***
 

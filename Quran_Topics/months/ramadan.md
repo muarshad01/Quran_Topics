@@ -7,6 +7,27 @@
 
 ***
 
+#### [Fasting Etiquettes | روزے کے آداب | SSA Shah](https://www.youtube.com/watch?v=16WekeavaTI)
+* Control of Nafas:
+  * Tongue
+  * Eye
+  * Ear
+  * Hands
+  * Foot
+* To suppress the Nafas. In Rohaniyat, Roaza is half Tareeqat.
+* Har Ibadat ki Takmeel hoti hey hai Rozay say. 
+
+***
+
+#### [Want Spiritual Power? | Benefits of Fasting | روحانی ترقی چاہتے ہیں؟ روزہ رکھیں | SSA Shah](https://www.youtube.com/watch?v=RQJ_fPN7jr8)
+* For progress in Rohaniyat, there is no other better way than fasting.
+* Roza -> Taqwa ([يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ كُتِبَ عَلَيْكُمُ ٱلصِّيَامُ كَمَا كُتِبَ عَلَى ٱلَّذِينَ مِن قَبْلِكُمْ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/183))
+* __Hazrat nizam ud din auliya__, fast ALL days except Eids.
+* Afterwards, started alternate days of fasting.
+* __Protocols__: Chugli, Ghaybat, Lie ([وَيْلٌۭ لِّكُلِّ هُمَزَةٍۢ لُّمَزَةٍ](https://quran.com/104/1))
+
+***
+
 #### [How Ramadan Began? | پہلا رمضان کب آیا؟ | SSA](https://www.youtube.com/watch?v=SotYnRTQ3DM)
 * At start of Nawabah
 * 3 fast of Ayam-e-bayz and also 10th of Muharram

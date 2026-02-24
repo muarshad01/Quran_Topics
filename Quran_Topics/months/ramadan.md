@@ -86,3 +86,13 @@
 * Hazrat Nizamuddin Auliya observed fasting on alternate days whole his life.
 
 ***
+
+#### [Rozay Ka Aisa Ajar Jo Aqal Ko Hairan Kar De😲 | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7XQCPDJB96s)
+* Roza Sabb Ibadat ka darwaza hai.
+* Namaz:
+* Zakat:
+* Hajj: Allah Ki Razaa
+* __Hadith Qudsi__: As-Sawmu li wa ana ajzi bihi" (الصَّوْمُ لِي وَأَنَا أَجْزِي بِهِ)
+  * Translation: “Fasting is for Me, and I Myself will reward it.”
+
+*** 

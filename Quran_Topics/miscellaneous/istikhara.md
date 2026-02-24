@@ -28,5 +28,6 @@
 
 #### [Pir Azmat Nawaz ](https://www.youtube.com/shorts/VqdcvVmNkKo)
 * Ya Khabira - 812 time - 7 days
+* Shaaadi, Karobar, Job...
 
 ***

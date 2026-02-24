@@ -117,3 +117,7 @@
   * Translation: “Fasting is for Me, and I Myself will reward it.”
 
 *** 
+
+#### [Kya Sehri Bhi IBADAT Hai?? Kya Sehri K Baghir Roza Rakha Ja Sakta Hai?? | Irfan-ul-Haq](https://www.youtube.com/watch?v=ZK6nuVgGqGs)
+
+***

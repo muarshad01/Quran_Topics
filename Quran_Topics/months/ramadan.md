@@ -88,7 +88,7 @@
 ***
 
 #### [Rozay Ka Aisa Ajar Jo Aqal Ko Hairan Kar De😲 | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7XQCPDJB96s)
-* Roza Sabb Ibadat ka darwaza hai.
+* Roza (Fasting): Sabb Ibadat ka darwaza (doar) hai.
 * Namaz:
 * Zakat:
 * Hajj: Allah Ki Razaa

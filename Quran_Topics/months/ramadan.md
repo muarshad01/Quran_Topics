@@ -19,6 +19,12 @@
 
 ***
 
+#### [3 Surprising Spiritual Benefits of Fasting | روحانیت میں روزے کے 3 فوائد | SSA Shah](https://www.youtube.com/watch?v=WJBWOo4WqlI)
+1. Akhlaq-e-Samadyat (He doesn't eats, drinks, or sleeps...)
+2. Rajooh-ki-siffat (Wakes up nights; Controls his Nafas; ...)
+3. Reached Abad-kay-Muqaam through Abodiyat 
+***
+
 #### [Want Spiritual Power? | Benefits of Fasting | روحانی ترقی چاہتے ہیں؟ روزہ رکھیں | SSA Shah](https://www.youtube.com/watch?v=RQJ_fPN7jr8)
 * For progress in Rohaniyat, there is no other better way than fasting.
 * Roza -> Taqwa ([يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ كُتِبَ عَلَيْكُمُ ٱلصِّيَامُ كَمَا كُتِبَ عَلَى ٱلَّذِينَ مِن قَبْلِكُمْ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/183))

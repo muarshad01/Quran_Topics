@@ -1,6 +1,7 @@
 #### [Natural Remedies to Regrow Hair | Abdullah Bhatti’s Ramadan Tips | Samaa Digital](https://www.youtube.com/watch?v=DyhqJl74szc)
 * Seka kai, Amla, Reetha half pao each ...add cococunt oil
 * Flex Seed for hair - 1/2 spoon
+* Autism
 
 ***
 

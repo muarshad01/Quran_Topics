@@ -321,3 +321,7 @@ Silsila & Khilafat
 * After Hajj, till his death didn't open his Ahraam!
 
 ***
+
+#### [Aik Wali Allah Ka Qisa | Durood Sharif Kon Parhain | Irfan-ul-Haq](https://www.youtube.com/watch?v=zHOT2k-rpWo)
+
+***

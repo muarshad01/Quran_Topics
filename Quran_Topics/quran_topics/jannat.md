@@ -72,7 +72,7 @@ nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 
 #### 4. Jannat al-Mawa (Garden of Refuge).
 * __Surah An-Najm 53/15 (جَنَّةُ ٱلْمَأْوَىٰٓ)__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ](https://quran.com/53/15)
-* __Surah An-Naziat 79/41__: [فَإِنَّ ٱلْجَنَّةَ هِىَ ٱلْمَأْوَىٰ](https://quran.com/79/41) 
+* __Surah An-Naziat 79/41 (هِىَ ٱلْمَأْوَىٰ)__: [فَإِنَّ ٱلْجَنَّةَ هِىَ ٱلْمَأْوَىٰ](https://quran.com/79/41) 
 
 #### 5. Dar as-Salam (دار السلام): The Abode of Peace.
 * __Surah Al-Anam 6/127 (لَهُمْ دَارُ ٱلسَّلَـٰمِ)__: [۞ لَهُمْ دَارُ ٱلسَّلَـٰمِ عِندَ رَبِّهِمْ ۖ وَهُوَ وَلِيُّهُم بِمَا كَانُوا۟ يَعْمَلُونَ](https://quran.com/6/127)

@@ -58,17 +58,18 @@ nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 
 #### 2. Jannat al-Firdaws (Garden of Paradise).
 * __Surah Al-Kahf 18/107 (جَنَّـٰتُ ٱلْفِرْدَوْسِ)__: [إِنَّ ٱلَّذِينَ ءَامَنُوا۟ وَعَمِلُوا۟ ٱلصَّـٰلِحَـٰتِ كَانَتْ لَهُمْ جَنَّـٰتُ ٱلْفِرْدَوْسِ نُزُلًا](https://quran.com/18/107)
+* __Surah Al-Muminun 23/11 (ٱلَّذِينَ يَرِثُونَ ٱلْفِرْدَوْسَ)__: [ٱلَّذِينَ يَرِثُونَ ٱلْفِرْدَوْسَ هُمْ فِيهَا خَـٰلِدُونَ](https://quran.com/23/11)
 
 #### 3. Jannat an-Naeem (Garden of Delight).
 * __Surah Al-Maidah 5/65 (جَنَّـٰتِ ٱلنَّعِيمِ)__: [وَلَوْ أَنَّ أَهْلَ ٱلْكِتَـٰبِ ءَامَنُوا۟ وَٱتَّقَوْا۟ لَكَفَّرْنَا عَنْهُمْ سَيِّـَٔاتِهِمْ وَلَأَدْخَلْنَـٰهُمْ جَنَّـٰتِ ٱلنَّعِيمِ](https://quran.com/5/65)
-* __Surah Yunus (10:26)__: []() 
-* __Surah Ash-Shu'ara (26:85)__: []() 
-* __Surah Luqman (31:8)__: []() 
-* __Surah Al-Qalam (68:34)__: []()
+* __Surah Yunus 10/26__: []() 
+* __Surah Ash-Shu'ara 26/85__: []() 
+* __Surah Luqman 31/8__: []() 
+* __Surah Al-Qalam 68/34__: []()
 
 #### 4. Jannat al-Mawa (Garden of Refuge).
 * __Surah An-Najm 53/15 (جَنَّةُ ٱلْمَأْوَىٰٓ)__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ](https://quran.com/53/15)
-* __Surah 79:41__: 
+* __Surah An-Naziat 79/41__: [فَإِنَّ ٱلْجَنَّةَ هِىَ ٱلْمَأْوَىٰ](https://quran.com/79/41) 
 
 #### 5. Dar as-Salam (دار السلام): The Abode of Peace.
 * __Surah Al-Anam 6/127 (لَهُمْ دَارُ ٱلسَّلَـٰمِ)__: [۞ لَهُمْ دَارُ ٱلسَّلَـٰمِ عِندَ رَبِّهِمْ ۖ وَهُوَ وَلِيُّهُم بِمَا كَانُوا۟ يَعْمَلُونَ](https://quran.com/6/127)

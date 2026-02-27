@@ -4,3 +4,9 @@
 * __Surah An-Nasr 110/1 (يَدْخُلُونَ فِى دِينِ ٱللَّهِ)__: [وَرَأَيْتَ ٱلنَّاسَ يَدْخُلُونَ فِى دِينِ ٱللَّهِ أَفْوَاجًۭا](https://quran.com/110/1)
 
 ***
+
+
+#### [Irfan ul Haq Baba | Jinnat Ka Hasaar Bandhna | Allah kay Program | Azaab e Maheen | عرفان الحق بابا](https://www.youtube.com/watch?v=AQxOff85BAY)
+
+
+***

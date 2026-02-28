@@ -291,3 +291,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
 
 ***
+
+#### [Dajjal Ka Wo Gunah Jis Ne Usay Bad-Bakht Bana Diya | Haqeeqat Jo Har Musalman Ko Janni Chahiye |](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
+
+***

@@ -4,12 +4,12 @@
 
 ***
 
-* $ xxx Uncle Tariq -
 * Phoophoo Baby -
 * Sukh Chayn Guard - 
 
 ***
 
-* 250 - Madnai Mosque (Human Appeal from Texas) - Feb 27
+* $250 - Madnai Mosque (Human Appeal from Texas) - Feb 27
+* $400 - Uncle Tariq - Feb 28
 
-**** 
+***

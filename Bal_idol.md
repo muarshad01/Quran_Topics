@@ -1,3 +1,7 @@
+#### [Is Baal Behind Iran And Israel War? | Sahil Adeem](https://www.youtube.com/watch?v=YYYNgWhPvN8)
+
+***
+
 #### [Epstein's Files بعل دیوتا UAE & Dajjal |  Abdul Salam Arif](https://www.youtube.com/watch?v=dBwxQFUaO18)
 * __Surah As-Saffat 37/123__: [وَإِنَّ إِلْيَاسَ لَمِنَ ٱلْمُرْسَلِينَ](https://quran.com/37/123)
 * __Surah As-Saffat 37/124__: [إِذْ قَالَ لِقَوْمِهِۦٓ أَلَا تَتَّقُونَ](https://quran.com/37/124)

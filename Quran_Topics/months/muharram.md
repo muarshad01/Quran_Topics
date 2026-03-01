@@ -250,3 +250,7 @@
 #### [The True Story of Karbala What Really Happened | Explained by Sahil Adeem](https://www.youtube.com/watch?v=VXoLMdYsDl0)
 
 ***
+
+#### [The Treaty Hussain ﷺ Followed at Karbala – Powerful Lessons Explained | Sahil Adeem](https://www.youtube.com/watch?v=s04PXtB8ZLg)
+
+***

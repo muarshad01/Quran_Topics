@@ -1,8 +1,10 @@
 #### [(1589) Chapter: Signs Of The Battles](https://sunnah.com/abudawud:4294)
-* Narrated Mu'adh ibn Jabal: The Prophet (ﷺ) said:
+[Narrated Mu'adh ibn Jabal: The Prophet (ﷺ) said:
 1. The flourishing state of Jerusalem will be when Yathrib is in ruins,
 2. the ruined state of Yathrib will be when the great war comes,
 3. the outbreak of the great war will be at the conquest of Constantinople
-4. and the conquest of Constantinople when the Dajjal (Antichrist) comes forth. He (the Prophet) struck his thigh or his shoulder with his hand and said: This is as true as you are here or as you are sitting (meaning Mu'adh ibn Jabal). -- Sunan Abi Dawud 4294
+4. and the conquest of Constantinople when the Dajjal (Antichrist) comes forth. He (the Prophet) struck his thigh or his shoulder with his hand and said: This is as true as you are here or as you are sitting (meaning Mu'adh ibn Jabal)](https://sunnah.com/abudawud:4294) -- Sunan Abi Dawud 4294
 
 *** 
+
+* [Narrated Zainab bint Jahsh: That the Prophet (ﷺ) once came to her in a state of fear and said, "None has the right to be worshipped but Allah. Woe unto the Arabs from a danger that has come near. An opening has been made in the wall of Gog and Magog like this," making a circle with his thumb and index finger. Zainab bint Jahsh said, "O Allah's Messenger (ﷺ)! Shall we be destroyed even though there are pious persons among us?" He said, "Yes, when the evil person will increase."](https://sunnah.com/bukhari:3346) -- Sahih al-Bukhari 3346

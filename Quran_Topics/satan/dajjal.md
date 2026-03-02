@@ -299,3 +299,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Dajjal Ki Paidaish Ka Hairatangez Raaz | Dr Israr Ahmed](https://www.youtube.com/watch?v=CLAq8TxUWWg)
 
 ***
+
+#### [Dajjal is Out in 2027 | Sahil Adeem](https://www.youtube.com/watch?v=IcB_oa4jpcA)
+
+***

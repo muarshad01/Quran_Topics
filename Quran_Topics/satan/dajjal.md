@@ -303,3 +303,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Dajjal is Out in 2027 | Sahil Adeem](https://www.youtube.com/watch?v=IcB_oa4jpcA)
 
 ***
+
+#### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Ft. Sahil Adeem | GNN](https://www.youtube.com/watch?v=2vUYPQj01F4)
+
+***

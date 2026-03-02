@@ -129,3 +129,11 @@
 ***
 
 #### [Ramzan UL Mubarak Ko Samjhain Or GUILT FREE Ho Jayain | Irfan-ul-Haq](https://www.youtube.com/watch?v=ir841uSwx9I)
+
+
+***
+
+#### [Surah Al-Qadr Wazifa | Fulfill Your Heart’s Deepest Wishes | Rukhsar Latif](https://www.youtube.com/watch?v=3GllFVUEa6Q)
+* Ramadan last 10 days - 2 Rakat Nafals - 41 time Surah Al-Qadr in each rakat
+
+***

@@ -295,3 +295,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Dajjal Ka Wo Gunah Jis Ne Usay Bad-Bakht Bana Diya | Haqeeqat Jo Har Musalman Ko Janni Chahiye |](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
 
 ***
+
+#### [Dajjal Ki Paidaish Ka Hairatangez Raaz | Dr Israr Ahmed](https://www.youtube.com/watch?v=CLAq8TxUWWg)
+
+***

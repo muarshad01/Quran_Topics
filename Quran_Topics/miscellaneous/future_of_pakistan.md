@@ -1,4 +1,8 @@
-#### [Historic Press Conference | India and Afghanistan Border Update | Orya Maqbool Jan | Harf e Raaz](https://www.youtube.com/watch?v=et_oHvvac44)
+#### [Shocking Reality About Afghanistan! Big Prediction on India & USA Future | SSA Shah](https://www.youtube.com/watch?v=DB-9gpd20-M)
+
+***
+
+#### [Historic Press Conference | India and Afghanistan Border Update | Orya Maqbool Jan | Harf-e-Raaz](https://www.youtube.com/watch?v=et_oHvvac44)
 * Sarfarz Shah
 
 ***

@@ -1,4 +1,6 @@
 #### [Shocking Reality About Afghanistan! Big Prediction on India & USA Future | SSA Shah](https://www.youtube.com/watch?v=DB-9gpd20-M)
+* Hazrat Ali - 
+* Maulana Room - 
 
 ***
 

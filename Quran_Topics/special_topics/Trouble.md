@@ -182,3 +182,5 @@
 * [Surah Fajr 15-20](https://www.youtube.com/shorts/dza5PYeSwYI)
 
 ***
+
+* __Surah Ale-Imran 3/182__: [ذَٰلِكَ بِمَا... قَدَّمَتْ أَيْدِيكُمْ... وَأَنَّ ٱللَّهَ لَيْسَ بِظَلَّامٍۢ لِّلْعَبِيدِ ](https://quran.com/3/154-200)

@@ -1,4 +1,4 @@
-* $500 Nasir - before Ramadan started
+* $500 Zakat Nasir - before Ramadan started
 * $200 Cash - Madni Mosque - Manassas - Feb 17
 * $930 New mosque construciton - Madni mosque - Feb 24/25
 
@@ -9,8 +9,8 @@
 
 ***
 
-* $ 1,000 Zakat - Moiz (March 03)
-* $ 1,000 Zakat - Aysha (March 03)
+* $1,000 Zakat - Moiz (March 03)
+* $1,000 Zakat - Aysha (March 03)
 
 *** 
 

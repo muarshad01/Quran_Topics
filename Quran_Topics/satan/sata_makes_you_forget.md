@@ -10,6 +10,9 @@
 * __Surah Ale_Imran 3/155 (...إِنَّمَا ٱسْتَزَلَّهُمُ ٱلشَّيْطَـٰنُ بِبَعْضِ مَا كَسَبُوا۟ ۖ ...)__: [إِنَّ ٱلَّذِينَ تَوَلَّوْا۟ مِنكُمْ يَوْمَ ٱلْتَقَى ٱلْجَمْعَانِ ...إِنَّمَا ٱسْتَزَلَّهُمُ ٱلشَّيْطَـٰنُ بِبَعْضِ مَا كَسَبُوا۟ ۖ ...وَلَقَدْ عَفَا ٱللَّهُ عَنْهُمْ ۗ إِنَّ ٱللَّهَ غَفُورٌ حَلِيمٌۭ](https://quran.com/3/155)
   * Indeed, those ˹believers˺ who fled on the day when the two armies met __were made to slip by Satan because of their misdeeds__. But Allah has pardoned them. Surely Allah is All-Forgiving, Most Forbearing.
 
+* __Surah Ale_Imran 3/175__: [إِنَّمَا ذَٰلِكُمُ ٱلشَّيْطَـٰنُ يُخَوِّفُ أَوْلِيَآءَهُۥ... فَلَا تَخَافُوهُمْ وَخَافُونِ... إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/3/175)
+  * That ˹warning˺ was only ˹from˺ Satan, trying to prompt you to fear his followers. So do not fear them; fear Me if you are ˹true˺ believers.
+
 ***
 
 * __Surah Al-Anam 6/68 (وَإِمَّا يُنسِيَنَّكَ ٱلشَّيْطَـٰنُ)__: [وَإِذَا رَأَيْتَ ٱلَّذِينَ يَخُوضُونَ فِىٓ ءَايَـٰتِنَا فَأَعْرِضْ عَنْهُمْ حَتَّىٰ يَخُوضُوا۟ فِى حَدِيثٍ غَيْرِهِۦ ۚ وَإِمَّا يُنسِيَنَّكَ ٱلشَّيْطَـٰنُ فَلَا تَقْعُدْ بَعْدَ ٱلذِّكْرَىٰ مَعَ ٱلْقَوْمِ ٱلظَّـٰلِمِينَ](https://quran.com/6/68)

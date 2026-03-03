@@ -155,3 +155,11 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 3. Paradise and Hell
 4. I'm saved from trials
 
+***
+
+## Bandagi vs Ibadaat
+* Bandagi: A very high-level status
+   * `Lay gaya wuh apnay banday koo` - Quran
+* After bandagi, you're not a `part-time Muslim`
+
+***

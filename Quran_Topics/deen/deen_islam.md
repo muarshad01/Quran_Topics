@@ -11,5 +11,6 @@
 
 #### [Irfan ul Haq Baba | Jinnat Ka Hasaar Bandhna | Allah kay Program | Azaab e Maheen | عرفان الحق بابا](https://www.youtube.com/watch?v=AQxOff85BAY)
 
-
 ***
+
+* __Surah Ale-Imran 3/102__: [يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟... ٱتَّقُوا۟ ٱللَّهَ حَقَّ تُقَاتِهِۦ... وَلَا تَمُوتُنَّ إِلَّا وَأَنتُم مُّسْلِمُونَ](https://quran.com/3/102)

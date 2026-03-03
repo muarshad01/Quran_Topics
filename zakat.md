@@ -4,12 +4,17 @@
 
 ***
 
-* Phoophoo Baby -
-* Sukh Chayn Guard - 
+* $250 - Madnai Mosque (Human Appeal from Texas) - Feb 27
+* $400 - Uncle Tariq - Feb 28
 
 ***
 
-* $250 - Madnai Mosque (Human Appeal from Texas) - Feb 27
-* $400 - Uncle Tariq - Feb 28
+* $ 1,000 Zakat - Moiz (March 03)
+* $ 1,000 Zakat - Aysha (March 03)
+
+*** 
+
+* Phoophoo Baby -
+* Sukh Chayn Guard - 
 
 ***

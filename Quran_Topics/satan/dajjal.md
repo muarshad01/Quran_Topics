@@ -307,3 +307,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Ft. Sahil Adeem | GNN](https://www.youtube.com/watch?v=2vUYPQj01F4)
 
 ***
+
+#### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Ft. Orya Maqbool Jan With Osama Tayyab](https://www.youtube.com/watch?v=bjq5M1l002M)
+
+***

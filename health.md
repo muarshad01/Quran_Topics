@@ -25,3 +25,7 @@
 #### [Banjhpan Ka Masla | FT: Chaudhry Rukhsar](https://www.youtube.com/shorts/dQOWxnypGgc)
 
 ***
+
+#### [Mardana Kamzori or Timing Ka Gharelu Ilaj | Hakeem Babar | Al Noor Health Tips](https://www.youtube.com/watch?v=iCFdLua_vC0)
+
+***

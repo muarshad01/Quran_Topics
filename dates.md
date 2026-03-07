@@ -1,9 +1,7 @@
 ## Naqeer, Qitmeer, Fatil
 * Naqeer (Arabic: نقير) refers to the __tiny, speck-like dot found on the back of a date stone__, often used in Quranic Arabic (Surah An-Nisa 53 & 124) to symbolize something extremely insignificant or tiny. It is one of three date seed components mentioned in Islamic texts, alongside Qitmeer (membrane) and Fateel (thread).
 
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/date-membrane.png
-" width="300" height="300" />
-
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/date-membrane.png" width="300" height="300" />
 
 ####  Naqeer (Arabic: نقير) 
 * Naqeer (Arabic: نقير) refers to the __tiny, speck-like dot found on the back of a date stone__, often used in Quranic Arabic (Surah An-Nisa 53 & 124) to symbolize something extremely insignificant or tiny.

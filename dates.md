@@ -1,7 +1,7 @@
 ## Naqeer, Qitmeer, Fatil
-1. __Naqeer (Arabic: نقير)__ refers to the __tiny, speck-like dot found on the back of a date stone__, often used in Quranic Arabic (Surah An-Nisa 53 & 124) to symbolize something extremely insignificant or tiny. It is one of three date seed components mentioned in Islamic texts, alongside Qitmeer (membrane) and Fateel (thread).
-2. __Qitmeer (قطمير)__ refers to the thin, membrane-like skin that covers a date seed. 
-3. __Fatil (فتيل)__ in the Quran refers to the tiny, thin thread-like fiber found in the slit of a date stone, often used to illustrate an infinitesimally small, microscopic amount or particle of justice or a deed. 
+1. __Naqeer (Arabic: نقير)__ refers to the __tiny, speck-like dot found on the back of a date stone__, often used in Quranic Arabic (Surah An-Nisa 53 & 124) to symbolize something extremely insignificant or tiny. 
+2. __Qitmeer (قطمير)__ refers to the __thin, membrane-like skin that covers a date seed.__ 
+3. __Fatil (فتيل)__ in the Quran refers to the __tiny, thin thread-like fiber found in the slit of a date stone, often used to illustrate an infinitesimally small, microscopic amount or particle of justice or a deed.__
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/date-membrane.png" width="300" height="300" />
 

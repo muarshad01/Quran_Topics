@@ -222,3 +222,5 @@
 * __SECRET__: No body can fight that person because Allah SWT takes care of his ememies.
 
 ***
+
+#### [The Most Powerful Dhikr for Spiritual Peace | Abdullah Bhatti Reveals! | 89 news hd](https://www.youtube.com/watch?v=ehxl4IQtd0U)

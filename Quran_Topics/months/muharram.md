@@ -259,3 +259,5 @@
 #### [The True Story of Karbala What Really Happened | Sahil Adeem](https://www.youtube.com/watch?v=VXoLMdYsDl0)
 
 ***
+
+#### [Why Did Imam Hussain (AS) Cry After Helping a Beggar? | Emotional Story | 89 News HD](https://www.youtube.com/watch?v=6EVLYV_OUWI)

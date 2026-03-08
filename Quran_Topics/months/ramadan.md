@@ -19,6 +19,16 @@
 
 ***
 
+#### [Signs of Laylat al-Qadr | لیلہ القدر کی علامات کیا ہیں؟| SSA Shah](https://www.youtube.com/watch?v=SSkBB20HhZE)
+* Wakeup and worship the last 10 nights of Laylatul Qadr
+* Those who have been gifted with  Ilam-aud-Taufeeq know its signs
+1. Weather will be temperate. Summer heat/Winter coldness reduces such that it feels like its a Spring night.
+2. A strange/special light spreads in all directions. Then night becomes very bright even though there is no source of light.
+3. There will be some time slot when you will feel like dead-silence all around. Even the sound of animals don't come.
+
+***
+
+
 #### [3 Surprising Spiritual Benefits of Fasting | روحانیت میں روزے کے 3 فوائد | SSA Shah](https://www.youtube.com/watch?v=WJBWOo4WqlI)
 1. Akhlaq-e-Samadyat (He doesn't eats, drinks, or sleeps...)
 2. Rajooh-ki-siffat (Wakes up nights; Controls his Nafas; ...)

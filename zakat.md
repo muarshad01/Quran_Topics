@@ -14,11 +14,11 @@
 
 *** 
 
-* Phoophoo Baby -
-* Sukh Chayn Guard - 
+* Culpeper Mosque - $1,500 for Machine and $300 for Iftaar (March 07)
 
 ***
 
-* Culpeper Mosque - $1,500 for Machine and $300 for Iftaar (March 07)
+* Phoophoo Baby -
+* Sukh Chayn Guard - 
 
 ***

@@ -10,10 +10,7 @@
 * __THINK__ in SOLITUDE.
 * __FOCUS__ on `Ghor-o-Fikr`
 
-* Jo-kuch merey-pass-hai...uss-par-mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai
-Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai. Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai. -- SSA Shah
-
-
+* Jo-kuch merey-pass-hai...uss-par-mera sirf-itna haqq-hai...mayn iss-say apni-aur-apnay-khandaan-ki jaiz-zarooriat puri-kar-loon. Iss-kay-bad joo-kuch bach-rahay...woh-sabb doosron-ka-hai. __Yehi Faqeer Ka, Andaaz-e-Izhaar-e-Tashakar Hai. -- SSA Shah__
 
 ***
 

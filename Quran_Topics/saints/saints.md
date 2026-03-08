@@ -215,6 +215,8 @@ Silsila & Khilafat
 * Ala-ud-din Ali Ahmed Sabir (Sabir Kaliyari) [1196 – 1291 = 95 years]
    * Nephew and successor to Baba Fareed.
 
+* Turk pani pati
+
 *** 
 
 #### [Hazrat Baba Farid Ganj shakar ka khandani tauraf](https://www.youtube.com/watch?v=UhtPUqvTTxQ)

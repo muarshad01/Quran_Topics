@@ -28,6 +28,14 @@
 
 ***
 
+#### [The Most Powerful Way to Worship on Laylat al-Qadr! | لیلہ القدر میں عبادت کا خاص طریقہ| SSA Shah](https://www.youtube.com/watch?v=H8ZjqfOxi4c)
+1. Asha prayer till slightly more than  mid-night...offer Nafals
+2. 1-3 am, recite Quran-e-Majeed
+3. Nafals and Tahajjad
+4. Fajr prayers
+5. Tilawat-e-Quran-e-Majeed
+
+***
 
 #### [3 Surprising Spiritual Benefits of Fasting | روحانیت میں روزے کے 3 فوائد | SSA Shah](https://www.youtube.com/watch?v=WJBWOo4WqlI)
 1. Akhlaq-e-Samadyat (He doesn't eats, drinks, or sleeps...)

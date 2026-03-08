@@ -54,8 +54,8 @@
 
 #### Hazrat Rabia Basri
 * In Bazaar, WATER in one hand and FIRE in the other hand:
-* I'm going to cool down Jahanum (the fear of which makes people Ibadah) fire with this water, 
-* Going to burn Jannat (the greed of which makes people to do Ibadah) with this fire
+* I'm going to cool down Jahanum (the __FEAR__ of which makes people Ibadah) fire with this water, 
+* Going to burn Jannat (the __GREED__ of which makes people to do Ibadah) with this fire
 * Hazrat Sultan Bahu said about Bibi Rabia Basri, woh FAQR-kay-muqaam par faiz theen.
 
 ***

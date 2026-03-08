@@ -411,3 +411,7 @@
 * __Surah Al-Araf 7/16__: [قَالَ فَبِمَآ أَغْوَيْتَنِى لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ ](https://quran.com/7/16)
 
 ***
+
+#### [Iblees Ne Ambiya (as) ko Gumrah kar diya | Allama Talib Johri | ‪@Naqihassan-p4e‬](https://www.youtube.com/watch?v=Ie87QmHarto)
+
+***

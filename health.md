@@ -2,6 +2,10 @@
 
 ***
 
+#### [Get Rid of Obesity, Dark Spots & Wrinkles | Abdullah Bhatti Proven Wazifa & Totka ](https://www.youtube.com/watch?v=cFg2xUHjUZo)
+
+***
+
 #### [Natural Remedies to Regrow Hair | Abdullah Bhatti’s Ramadan Tips | Samaa Digital](https://www.youtube.com/watch?v=DyhqJl74szc)
 * Seka kai, Amla, Reetha half pao each ...add cococunt oil
 * Flex Seed for hair - 1/2 spoon

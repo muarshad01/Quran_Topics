@@ -6,6 +6,10 @@
 
 ***
 
+#### [Secret To Whitening: 7 Day Challenge Skin Brightening | Hair Growth Tips | Ft. Amina Malik](https://www.youtube.com/watch?v=AJn09c0OE4M)
+
+***
+
 #### [Natural Remedies to Regrow Hair | Abdullah Bhatti’s Ramadan Tips | Samaa Digital](https://www.youtube.com/watch?v=DyhqJl74szc)
 * Seka kai, Amla, Reetha half pao each ...add cococunt oil
 * Flex Seed for hair - 1/2 spoon

@@ -19,12 +19,12 @@
 
 ***
 
+* $1,000 (10 families for one month Sud) - Mar 08
+* $300 Iftaar @Pearl Academy
+
+***
+
 * Sukh Chayn Guard - 
 * Phoophoo Baby -
 
 * Nasir Bila - $ 250 (TODO)
-
-***
-
-* $1,000 (10 families for one month Sud) - Mar 08
-* $300 Iftaar @Pearl Academy

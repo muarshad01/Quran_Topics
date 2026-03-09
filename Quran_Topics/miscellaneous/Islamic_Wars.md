@@ -2,6 +2,10 @@
 
 ***
 
+#### [Emaan Afroz Waqia (17 Ramadan) Ghazw e Badar | Dr Israr Ahmed](https://www.youtube.com/watch?v=t-Ca0WwyLO4)
+
+***
+
 * Polytheists: Badar and Ahud
 * Infidels: Jang-e-Khandaq
 * Jews: Battle of Khyber

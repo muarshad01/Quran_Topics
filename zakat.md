@@ -14,7 +14,8 @@
 
 *** 
 
-* Culpeper Mosque - $1,500 for Machine and $300 for Iftaar (March 07)
+* $1,500 for Cleaning Machine @Culpeper Mosque 
+* $300 for Iftaar (March 07)
 
 ***
 
@@ -24,3 +25,6 @@
 * Nasir Bila - $ 250 (TODO)
 
 ***
+
+* $1,000 (10 families for one month Sud) - Mar 08
+* $300 Iftaar @Pearl Academy

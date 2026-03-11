@@ -24,7 +24,7 @@
 
 ***
 
-* Sukh Chayn Guard - 
-* Phoophoo Baby -
+* Sukh Chayn Guard - Rs. 20,000/=
 
+* Phoophoo Baby - (TODO)
 * Nasir Bila - $ 250 (TODO)

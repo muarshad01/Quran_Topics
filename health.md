@@ -10,6 +10,10 @@
 
 ***
 
+#### [Hair Growth Oil Remedy: White Hair to Black Hair Naturally | Tips for Silky Hair | Ft. Amina Malik](https://www.youtube.com/watch?v=6Aw8uHOKZU8)
+
+***
+
 #### [Natural Remedies to Regrow Hair | Abdullah Bhatti’s Ramadan Tips | Samaa Digital](https://www.youtube.com/watch?v=DyhqJl74szc)
 * Seka kai, Amla, Reetha half pao each ...add cococunt oil
 * Flex Seed for hair - 1/2 spoon

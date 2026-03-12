@@ -2,6 +2,10 @@
 
 ***
 
+#### [What is Baal? Why did Allah mention it in the Quran? | Abdul Salam Arif | GNN](https://www.youtube.com/watch?v=wKn287b2smE)
+
+***
+
 #### [Epstein's Files بعل دیوتا UAE & Dajjal |  Abdul Salam Arif](https://www.youtube.com/watch?v=dBwxQFUaO18)
 * __Surah As-Saffat 37/123__: [وَإِنَّ إِلْيَاسَ لَمِنَ ٱلْمُرْسَلِينَ](https://quran.com/37/123)
 * __Surah As-Saffat 37/124__: [إِذْ قَالَ لِقَوْمِهِۦٓ أَلَا تَتَّقُونَ](https://quran.com/37/124)

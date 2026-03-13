@@ -313,3 +313,9 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Why is the mention of the Antichrist disappearing | Abdul Salam | GNN](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
+
+***
+
+#### [Abraham Accords Connection with Dajjal | UAE Role Explained | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
+
+***

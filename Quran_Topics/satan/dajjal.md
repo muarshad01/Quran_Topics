@@ -311,3 +311,5 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Ft. Orya Maqbool Jan With Osama Tayyab](https://www.youtube.com/watch?v=bjq5M1l002M)
 
 ***
+
+#### [Why is the mention of the Antichrist disappearing | Abdul Salam | GNN](https://www.youtube.com/watch?v=mOu_O1HCnLQ)

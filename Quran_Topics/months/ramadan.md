@@ -155,3 +155,7 @@
 * Ramadan last 10 days - 2 Rakat Nafals - 41 time Surah Al-Qadr in each rakat
 
 ***
+
+#### [Laylatul Qadar | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQ5B4RDAMrM)
+
+***

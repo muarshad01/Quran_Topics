@@ -83,3 +83,7 @@
 ***
 
 #### [Hazrat Ali (R.A) Wisdom | Why Wise People Love Solitude | Nida-e-Haq](https://www.youtube.com/watch?v=HB3DWJvmUP0)
+
+***
+
+#### [Akele Rehne Ka Hunar Seekh Lo | Tumhari Uraan Se Duniya Hairan Ho Jayegi | Wasif Ali Wasif Quotes](https://www.youtube.com/watch?v=-3oqC3PosZk)

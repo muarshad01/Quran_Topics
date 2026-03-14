@@ -20,6 +20,18 @@
 ***
 
 #### [Modern Interpretation of Yajuj-Majuj | Sahil Adeem](https://www.youtube.com/watch?v=2yajeOBoK3U)
+* morphology
+* Salah AS Camel
+* How Adam AS was sent from Heaven to Earth
+* __Surah Al-Baqarah 2/36 (ٱهْبِطُوا۟)__: [فَأَزَلَّهُمَا ٱلشَّيْطَـٰنُ عَنْهَا فَأَخْرَجَهُمَا مِمَّا كَانَا فِيهِ ۖ وَقُلْنَا ...ٱهْبِطُوا۟... بَعْضُكُمْ لِبَعْضٍ عَدُوٌّۭ ۖ وَلَكُمْ فِى ٱلْأَرْضِ مُسْتَقَرٌّۭ وَمَتَـٰعٌ إِلَىٰ حِينٍۢ](https://quran.com/2/36)
+* __Surah Al-Anbya 21/96 (حَدَبٍۢ يَنسِلُونَ)__: [حَتَّىٰٓ... إِذَا فُتِحَتْ يَأْجُوجُ وَمَأْجُوجُ... وَهُم مِّن كُلِّ حَدَبٍۢ يَنسِلُونَ](https://quran.com/21/96)
+1. Adam AS
+2. Yahya AS & Issa AS ([بَل رَّفَعَهُ ٱللَّهُ إِلَيْهِ ۚ وَكَانَ ٱللَّهُ عَزِيزًا حَكِيمًۭا](https://quran.com/4/157-158))
+3. Yusuf AS
+4. Idris AS ([وَرَفَعْنَـٰهُ مَكَانًا عَلِيًّا](https://quran.com/19/57))
+5. Haroom AS
+6. Moosa AS
+7. Ibrahim AS
 
 ***
 

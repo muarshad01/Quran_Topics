@@ -1,4 +1,5 @@
 #### Gog and Magog
+* The "999:1" ratio regarding Gog and Magog (Yajouj and Majuj) stems from Islamic eschatology, indicating that for every 1,000 people, 999 will be from these chaotic, destructive tribes, destined for hell. They are described as countless sons of Adam, spreading like a plague during the end times
 
 * __Surah Al-Kahf 18/99__: [وَتَرَكْنَا... بَعْضَهُمْ يَوْمَئِذٍۢ يَمُوجُ فِى بَعْضٍۢ ۖ... وَنُفِخَ فِى ٱلصُّورِ... فَجَمَعْنَـٰهُمْ جَمْعًۭا](https://quran.com/18/99)
 

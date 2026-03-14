@@ -28,9 +28,13 @@
 * __Mount Zion (Sion) and Sihon__ - city of David
 * __Zionism__ - a movement for (originally) the re-establishment and (now) the development and protection of a Jewish nation in what is now Israel.
 * __Surah Al-Isra 17/104 (فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ... جِئْنَا بِكُمْ لَفِيفًۭا)__: [وَقُلْنَا مِنۢ بَعْدِهِۦ لِبَنِىٓ إِسْرَٰٓءِيلَ ٱسْكُنُوا۟ ٱلْأَرْضَ... فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ... جِئْنَا بِكُمْ لَفِيفًۭا](https://quran.com/17/104)
-  * ~1920
+* ~1920
   * The first Miss World pageant was not held in 1920
-* __Sea of Galilee (Behr-e-Tibria)__
+  * he first official nude beach FKK
+  * Paper currency
+  * Banking System
+  * Passport (Hadith: Your chains will be broken; 1st chain; Khilafat last chain; Namaaz)
+  * __Sea of Galilee (Behr-e-Tibria)__
 * __Aliyah__ is the immigration of Jews from the diaspora (70 AD) to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
 * The __Protocols of the Elders of Zion (1896)__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.
 * The __Balfour Declaration (1917)__ letter from British Foreign Secretary Arthur Balfour to Lord Walter Rothschild, expressing support for a "national home for the Jewish people" in Palestine.
@@ -39,4 +43,5 @@
 ‘Khul Gye’ Yajooj Majooj Ke Lashkar Tamam
 Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
 ```
+
 ***

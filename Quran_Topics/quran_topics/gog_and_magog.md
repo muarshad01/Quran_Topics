@@ -80,5 +80,7 @@ Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
 
 * 35:00
 * ALL Gog and Magog death will be the within the same instant. Another REALM!
+* Birds will fly and come and pick them up and throw them in WATER.
+* RAIN will clean the earth from that VIRUS.
 
 ***

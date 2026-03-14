@@ -17,3 +17,7 @@
 #### [Modern Interpretation of Yajuj Majuj | Sahil Adeem](https://www.youtube.com/watch?v=2yajeOBoK3U)
 
 ***
+
+#### [“Destruction for Arabia?” Dream of Muhammad(ﷺ) | Gog and Magog Already Free | Orya Maqbool Jan](https://www.youtube.com/watch?v=Rc1labix11w)
+
+***

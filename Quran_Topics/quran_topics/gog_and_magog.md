@@ -26,8 +26,9 @@
 * __Ashkenazi Jews (They're not Bani-Israel)__
 * __Mount Zion (Sion) and Sihon__ - city of David
 * __Zionism__ - a movement for (originally) the re-establishment and (now) the development and protection of a Jewish nation in what is now Israel.
-* 1920
-* The first Miss World pageant was not held in 1920
+* __Surah Al-Isra 17/104 (جِئْنَا بِكُمْ لَفِيفًۭا)__: [وَقُلْنَا مِنۢ بَعْدِهِۦ لِبَنِىٓ إِسْرَٰٓءِيلَ ٱسْكُنُوا۟ ٱلْأَرْضَ... فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ... جِئْنَا بِكُمْ لَفِيفًۭا](https://quran.com/17/104)
+  * ~1920
+  * The first Miss World pageant was not held in 1920
 * __Sea of Galilee (Behr-e-Tibria)__
 * __Aliyah__ is the immigration of Jews from the diaspora (70 AD) to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
 * The __Protocols of the Elders of Zion (1896)__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.

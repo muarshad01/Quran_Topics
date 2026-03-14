@@ -26,7 +26,7 @@
 * __Surah Al-Baqarah 2/36 (ٱهْبِطُوا۟)__: [فَأَزَلَّهُمَا ٱلشَّيْطَـٰنُ عَنْهَا فَأَخْرَجَهُمَا مِمَّا كَانَا فِيهِ ۖ وَقُلْنَا ...ٱهْبِطُوا۟... بَعْضُكُمْ لِبَعْضٍ عَدُوٌّۭ ۖ وَلَكُمْ فِى ٱلْأَرْضِ مُسْتَقَرٌّۭ وَمَتَـٰعٌ إِلَىٰ حِينٍۢ](https://quran.com/2/36)
 * __Surah Al-Anbya 21/96 (حَدَبٍۢ يَنسِلُونَ)__: [حَتَّىٰٓ... إِذَا فُتِحَتْ يَأْجُوجُ وَمَأْجُوجُ... وَهُم مِّن كُلِّ حَدَبٍۢ يَنسِلُونَ](https://quran.com/21/96)
 1. Adam AS
-2. Yahya AS & Issa AS ([بَل رَّفَعَهُ ٱللَّهُ إِلَيْهِ ۚ وَكَانَ ٱللَّهُ عَزِيزًا حَكِيمًۭا](https://quran.com/4/157-158))
+2. Yahya AS & Issa AS ([بَل رَّفَعَهُ ٱللَّهُ إِلَيْهِ ۚ وَكَانَ ٱللَّهُ عَزِيزًا حَكِيمًۭا](https://quran.com/4/157-158)) - Where and in what state?
 3. Yusuf AS
 4. Idris AS ([وَرَفَعْنَـٰهُ مَكَانًا عَلِيًّا](https://quran.com/19/57))
 5. Haroom AS
@@ -63,6 +63,5 @@ Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
   * "Yansilun" (يَنسِلُونَ) - meaning to rush, hasten, or emerge swiftly.
   * Until ˹after˺ Gog and Magog have broken loose ˹from the barrier˺, swarming down from every hill
   * Hadab" (حَدَب) in Arabic, and particularly within the Quran, literally refers to raised ground or an elevation
-
 
 ***

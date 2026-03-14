@@ -40,9 +40,17 @@
 * Fund Establishment (1901)
 * The __Balfour Declaration (1917)__ letter from British Foreign Secretary Arthur Balfour to Lord Walter Rothschild, expressing support for a "national home for the Jewish people" in Palestine.
 
+
+#### Allama Iqbal
 ```
 ‘Khul Gye’ Yajooj Majooj Ke Lashkar Tamam
 Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
 ```
+ * __Surah Yaseen 36/51 (21/96)__: [وَنُفِخَ فِى ٱلصُّورِ... فَإِذَا هُم مِّنَ ٱلْأَجْدَاثِ إِلَىٰ رَبِّهِمْ... يَنسِلُونَ](https://quran.com/36/51)
+* __Surah Al-Anbya 21/96__: [حَتَّىٰٓ... إِذَا فُتِحَتْ يَأْجُوجُ وَمَأْجُوجُ... وَهُم مِّن كُلِّ حَدَبٍۢ يَنسِلُونَ](https://quran.com/21/96)
+  * "Yansilun" (يَنسِلُونَ) - meaning to rush, hasten, or emerge swiftly.
+  * Until ˹after˺ Gog and Magog have broken loose ˹from the barrier˺, swarming down from every hill
+  * Hadab" (حَدَب) in Arabic, and particularly within the Quran, literally refers to raised ground or an elevation
+
 
 ***

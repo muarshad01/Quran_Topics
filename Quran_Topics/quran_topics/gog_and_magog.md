@@ -5,16 +5,16 @@
 ***
 
 * __Surah Al-Anbya 21/95__: [وَحَرَٰمٌ عَلَىٰ قَرْيَةٍ أَهْلَكْنَـٰهَآ ...أَنَّهُمْ لَا يَرْجِعُونَ](https://quran.com/21/95)
+  * This town (قَرْيَةٍ) is "Yerushalayim"
 * __Surah Al-Anbya 21/96__: [حَتَّىٰٓ... إِذَا فُتِحَتْ يَأْجُوجُ وَمَأْجُوجُ... وَهُم مِّن كُلِّ حَدَبٍۢ يَنسِلُونَ](https://quran.com/21/96)
-* __Surah Al-Anbya 21/97__: [وَٱقْتَرَبَ ٱلْوَعْدُ ٱلْحَقُّ فَإِذَا هِىَ شَـٰخِصَةٌ أَبْصَـٰرُ ٱلَّذِينَ كَفَرُوا۟ يَـٰوَيْلَنَا قَدْ كُنَّا فِى غَفْلَةٍۢ مِّنْ هَـٰذَا بَلْ كُنَّا ظَـٰلِمِينَ](https://quran.com/21/97)
   * Until ˹after˺ Gog and Magog have broken loose ˹from the barrier˺, swarming down from every hill
   * Hadab" (حَدَب) in Arabic, and particularly within the Quran, literally refers to raised ground or an elevation
-  * This town is "Yerushalayim"
+* __Surah Al-Anbya 21/97__: [وَٱقْتَرَبَ ٱلْوَعْدُ ٱلْحَقُّ فَإِذَا هِىَ شَـٰخِصَةٌ أَبْصَـٰرُ ٱلَّذِينَ كَفَرُوا۟ يَـٰوَيْلَنَا قَدْ كُنَّا فِى غَفْلَةٍۢ مِّنْ هَـٰذَا بَلْ كُنَّا ظَـٰلِمِينَ](https://quran.com/21/97)
 
 ***
  
- * __Surah Yaseen 36/51__: [وَنُفِخَ فِى ٱلصُّورِ... فَإِذَا هُم مِّنَ ٱلْأَجْدَاثِ إِلَىٰ رَبِّهِمْ... يَنسِلُونَ](https://quran.com/36/51)
-
+ * __Surah Yaseen 36/51 (21/96)__: [وَنُفِخَ فِى ٱلصُّورِ... فَإِذَا هُم مِّنَ ٱلْأَجْدَاثِ إِلَىٰ رَبِّهِمْ... يَنسِلُونَ](https://quran.com/36/51)
+* "Yansilun" (يَنسِلُونَ) - meaning to rush, hasten, or emerge swiftly.
 
 ***
 
@@ -35,5 +35,10 @@
   * The first Miss World pageant was not held in 1920
 * Sea of Galilee (Behr-e-Tibria)
 * __Aliyah__ is the immigration of Jews from the diaspora to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
+* The __Balfour Declaration was a 2 November 1917__ letter from British Foreign Secretary Arthur Balfour to Lord Walter Rothschild, expressing support for a "national home for the Jewish people" in Palestine.
 
+```
+‘Khul Gye’ Yajooj Majooj Ke Lashkar Tamam
+Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
+```
 ***

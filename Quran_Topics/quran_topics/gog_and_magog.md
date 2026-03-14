@@ -27,5 +27,9 @@
 ***
 
 #### [“Destruction for Arabia?” Dream of Muhammad(ﷺ) | Gog and Magog Already Free | Orya Maqbool Jan](https://www.youtube.com/watch?v=Rc1labix11w)
+* Ashkenazi Jews (They're not Bani-Israel)
+* The __Protocols of the Elders of Zion__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.
+* __Mount Zion (Sion) and Sihon__ - city of David
+* Zionism - a movement
 
 ***

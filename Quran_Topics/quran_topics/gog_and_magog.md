@@ -37,6 +37,7 @@
   * __Sea of Galilee (Behr-e-Tibria)__
 * __Aliyah__ is the immigration of Jews from the diaspora (70 AD) to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
 * The __Protocols of the Elders of Zion (1896)__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.
+* Fund Establishment (1901)
 * The __Balfour Declaration (1917)__ letter from British Foreign Secretary Arthur Balfour to Lord Walter Rothschild, expressing support for a "national home for the Jewish people" in Palestine.
 
 ```

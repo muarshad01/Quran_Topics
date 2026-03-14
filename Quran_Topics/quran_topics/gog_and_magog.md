@@ -27,7 +27,7 @@
 * __Ashkenazi Jews (They're not Bani-Israel)__
 * __Mount Zion (Sion) and Sihon__ - city of David
 * __Zionism__ - a movement for (originally) the re-establishment and (now) the development and protection of a Jewish nation in what is now Israel.
-* __Surah Al-Isra 17/104 (جِئْنَا بِكُمْ لَفِيفًۭا)__: [وَقُلْنَا مِنۢ بَعْدِهِۦ لِبَنِىٓ إِسْرَٰٓءِيلَ ٱسْكُنُوا۟ ٱلْأَرْضَ... فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ... جِئْنَا بِكُمْ لَفِيفًۭا](https://quran.com/17/104)
+* __Surah Al-Isra 17/104 (فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ... جِئْنَا بِكُمْ لَفِيفًۭا)__: [وَقُلْنَا مِنۢ بَعْدِهِۦ لِبَنِىٓ إِسْرَٰٓءِيلَ ٱسْكُنُوا۟ ٱلْأَرْضَ... فَإِذَا جَآءَ وَعْدُ ٱلْـَٔاخِرَةِ... جِئْنَا بِكُمْ لَفِيفًۭا](https://quran.com/17/104)
   * ~1920
   * The first Miss World pageant was not held in 1920
 * __Sea of Galilee (Behr-e-Tibria)__

@@ -31,5 +31,9 @@
 * The __Protocols of the Elders of Zion__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.
 * __Mount Zion (Sion) and Sihon__ - city of David
 * Zionism - a movement
+* 1920
+  * The first Miss World pageant was not held in 1920
+* Sea of Galilee (Behr-e-Tibria)
+* __Aliyah__ is the immigration of Jews from the diaspora to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
 
 ***

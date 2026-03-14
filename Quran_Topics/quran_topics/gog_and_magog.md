@@ -83,4 +83,9 @@ Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
 * Birds will fly and come and pick them up and throw them in WATER.
 * RAIN will clean the earth from that VIRUS.
 
+* Bible: Book of Revelation
+* Prophet Issa will take his People to Tur Mountain.
+
 ***
+
+* 40:00

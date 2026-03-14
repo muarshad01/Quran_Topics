@@ -23,15 +23,15 @@
 ***
 
 #### [“Destruction for Arabia?” Dream of Muhammad(ﷺ) | Gog and Magog Already Free | Orya Maqbool Jan](https://www.youtube.com/watch?v=Rc1labix11w)
-* Ashkenazi Jews (They're not Bani-Israel)
-* The __Protocols of the Elders of Zion__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.
+* __Ashkenazi Jews (They're not Bani-Israel)__
 * __Mount Zion (Sion) and Sihon__ - city of David
-* Zionism - a movement
+* __Zionism__ - a movement for (originally) the re-establishment and (now) the development and protection of a Jewish nation in what is now Israel.
 * 1920
-  * The first Miss World pageant was not held in 1920
-* Sea of Galilee (Behr-e-Tibria)
-* __Aliyah__ is the immigration of Jews from the diaspora to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
-* The __Balfour Declaration was a 2 November 1917__ letter from British Foreign Secretary Arthur Balfour to Lord Walter Rothschild, expressing support for a "national home for the Jewish people" in Palestine.
+* The first Miss World pageant was not held in 1920
+* __Sea of Galilee (Behr-e-Tibria)__
+* __Aliyah__ is the immigration of Jews from the diaspora (70 AD) to, historically, the geographical Land of Israel or the Palestine region, where in the 20th century the State of Israel was established.
+* The __Protocols of the Elders of Zion (1896)__ is a fabricated, antisemitic text, not a legitimate document from 1896, first published in 1903 in the Russian Empire.
+* The __Balfour Declaration (1917)__ letter from British Foreign Secretary Arthur Balfour to Lord Walter Rothschild, expressing support for a "national home for the Jewish people" in Palestine.
 
 ```
 ‘Khul Gye’ Yajooj Majooj Ke Lashkar Tamam

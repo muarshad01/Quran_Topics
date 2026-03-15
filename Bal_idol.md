@@ -16,3 +16,7 @@
 * __Surah As-Saffat 37/129__: [وَتَرَكْنَا عَلَيْهِ فِى ٱلْـَٔاخِرِينَ](https://quran.com/37/129)
 
 *** 
+
+#### [Baal Kaun Tha? | Haqeeqat Jo Aap Nahi Jante | Dr Israr Ahmed](https://www.youtube.com/watch?v=cdvx16WimQE)
+
+***

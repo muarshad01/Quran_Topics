@@ -328,7 +328,7 @@ Silsila & Khilafat
 
 ***
 
-#### [Logical Positivism and Data of God Quran | Prof ARA](https://www.youtube.com/watch?v=85exaWb7dmA)()
+#### [Logical Positivism and Data of God Quran | Prof ARA](https://www.youtube.com/watch?v=85exaWb7dmA)
 * There are 4 Highest, most literate Saints
 * One in West (Imam-e-Maghrib) and three in East (Imam-e-Mashriq)
 * Hazrat Imam Abul Hasan al-Shadhili (One of the greatest ever born saints in Islam)
@@ -348,6 +348,11 @@ Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
 
 * __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/2/56)
 * __Surah Al-Baqarah 2/1-2__: [الٓمٓ...ذَٰلِكَ ٱلْكِتَـٰبُ لَا رَيْبَ ۛ فِيهِ ۛ هُدًۭى لِّلْمُتَّقِينَ](https://quran.com/2/1-2)
-* __Surah Al-Baqarah 2/176__: [ذَٰلِكَ بِأَنَّ ٱللَّهَ نَزَّلَ ٱلْكِتَـٰبَ بِٱلْحَقِّ ۗ وَإِنَّ ٱلَّذِينَ ٱخْتَلَفُوا۟ فِى ٱلْكِتَـٰبِ لَفِى شِقَاقٍۭ بَعِيدٍۢ ١٧٦](https://quran.com/2/176)
+* __Surah Al-Baqarah 2/176__: [ذَٰلِكَ بِأَنَّ ٱللَّهَ نَزَّلَ ٱلْكِتَـٰبَ بِٱلْحَقِّ ۗ وَإِنَّ ٱلَّذِينَ ٱخْتَلَفُوا۟ فِى ٱلْكِتَـٰبِ لَفِى شِقَاقٍۭ بَعِيدٍۢ ](https://quran.com/2/176)
+* Challenging your sense of inquisitiveness
+* Challenging your skepticism
+
+* __Surah As-Saffat 37/177__: [فَإِذَا نَزَلَ بِسَاحَتِهِمْ فَسَآءَ صَبَاحُ ٱلْمُنذَرِينَ](https://quran.com/37/177)
+* Jab azab aun-kay aangan-mayn utray-gaa, buri-hai daray-e-gayoon ki-sahar
 
 *** 

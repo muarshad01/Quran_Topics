@@ -89,3 +89,7 @@ Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
 ***
 
 * 40:00
+
+#### [Yajooj and Majooj (Gog and Magog) in Islam| Prof ARA](https://www.youtube.com/watch?v=Y0JcLrLAalg)
+
+***

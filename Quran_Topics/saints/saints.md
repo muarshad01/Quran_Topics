@@ -328,16 +328,18 @@ Silsila & Khilafat
 
 ***
 
-#### [https://www.youtube.com/watch?v=85exaWb7dmA](Logical Positivism and Data of God Quran | Professor ARA)
+#### [Logical Positivism and Data of God Quran | Prof ARA](https://www.youtube.com/watch?v=85exaWb7dmA)()
 * There are 4 Highest, most literate Saints
 * One in West (Imam-e-Maghrib) and three in East (Imam-e-Mashriq)
 * Hazrat Imam Abul Hasan al-Shadhili (One of the greatest ever born saints in Islam)
-* Hazrat Junaid-e-Baghdadi Rahmatullah Alaih (Established school of Mysticism)
 
+1. Hazrat Junaid-e-Baghdadi Rahmatullah Alaih (Established school of Mysticism)
+2. Abu Bakr al-Shibli
+3. Hazrat Abu Fazl bin Hasan Khattali
+4. Hazrat Abu-al Ḥasan Ali bin Usman Al-Hajveri (RA)
 
-3. - Silsila Junadia Awasia (2nd Khilafat)
-   *  __One Word__ to recite
-   * Hazrat Data Ganj Bakhsh (Ali al-Hujwiri) was discple of Hazrat Abu Fazl bin Hasan Khattali (or Khatli)
-   * Hazrat Junaid-e-Baghdadi Rahmatullah Alaih
+```
+Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
+```
 
-* Hazrat Abu-al Ḥasan Ali bin Usman Al-Hajveri (RA)
+*** 

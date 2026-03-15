@@ -28,3 +28,9 @@
 
 * Phoophoo Baby - (TODO)
 * Nasir Bila - $ 250 (TODO)
+
+***
+
+$ 6,200 to Madni Mosque (Culpepper) - March 15, 2026
+
+***

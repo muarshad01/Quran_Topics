@@ -27,3 +27,7 @@
 * Shahrah...
 
 ***
+
+#### [Why are the hills of Safa and Marwa being hidden? | Abdul Salam Arif | GNN](https://www.youtube.com/watch?v=4gEjU2TzjcE)
+
+***

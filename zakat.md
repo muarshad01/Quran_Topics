@@ -31,6 +31,11 @@
 
 ***
 
-$ 6,200 to Madni Mosque (Culpepper) - March 15, 2026
+$ 6,200 Mosque (Culpepper) - March 15, 2026
+
+***
+
+$ 100 to Madni Mosque - March 16, 2026 (Chicago Relief Fund)
+$  70 to Madni Mosque (Imam Fiaz) - March 16, 2026
 
 ***

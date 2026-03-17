@@ -46,4 +46,7 @@
 * __Surah An-Naml 27/82 (لَهُمْ دَآبَّةًۭ مِّنَ ٱلْأَرْضِ تُكَلِّمُهُمْ أَنَّ ٱلنَّاسَ)__: [وَإِذَا وَقَعَ ٱلْقَوْلُ عَلَيْهِمْ أَخْرَجْنَا لَهُمْ ...دَآبَّةًۭ مِّنَ ٱلْأَرْضِ تُكَلِّمُهُمْ أَنَّ ٱلنَّاسَ ...كَانُوا۟ بِـَٔايَـٰتِنَا لَا يُوقِنُونَ ](https://quran.com/27/82) -- Will come out from Safa.
 
 * In Islamic eschatology, the __Garden of Basan (Baisan)__ is mentioned in the Hadith of Tamim al-Dari as one of the signs marking the nearing release of the Dajjal (the Antichrist). The chained Dajjal specifically inquires about whether the palm trees of Baisan (a city in historical Palestine/Jordan region) are still producing fruit.
+
+* The __Sea of Galilee__, known in Arabic as __Bahr al-Tabariyyah (Lake Tiberias)__, is the world's lowest freshwater lake, situated roughly 682–705 feet below sea level in northern Israel. Fed by the Jordan River, this crucial water reservoir is approximately 13 miles long and 7 miles wide, surrounded by hills prone to sudden storms
+
 ***

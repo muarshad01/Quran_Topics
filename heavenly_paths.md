@@ -39,5 +39,6 @@
 
 * __Surah 2/158-159__: [...](https://quran.com/2/158-159)
 * Changed Marwa to `Mount Moriah`
+* Sacrifice of Ismail AS was on Marwa...portal opened...lamb came!!
 
 ***

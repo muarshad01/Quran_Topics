@@ -49,4 +49,6 @@
 
 * The __Sea of Galilee__, known in Arabic as __Bahr al-Tabariyyah (Lake Tiberias)__, is the world's lowest freshwater lake, situated roughly 682–705 feet below sea level in northern Israel. Fed by the Jordan River, this crucial water reservoir is approximately 13 miles long and 7 miles wide, surrounded by hills prone to sudden storms
 
+* __Surah Al-Ankabut 29/14 (أَلْفَ سَنَةٍ إِلَّا خَمْسِينَ عَامًۭا)__: [وَلَقَدْ أَرْسَلْنَا نُوحًا إِلَىٰ قَوْمِهِۦ فَلَبِثَ فِيهِمْ ...أَلْفَ سَنَةٍ إِلَّا خَمْسِينَ عَامًۭا... فَأَخَذَهُمُ ٱلطُّوفَانُ وَهُمْ ظَـٰلِمُونَ](https://quran.com/29/14)
+
 ***

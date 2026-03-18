@@ -320,7 +320,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Dajjal,s JASASA and Reality OF CIA & MOSAD](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
+#### [Dajjal,s Jasasa and Reality of CIA & MOSAD | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
 * Daaba - Creatur
 * Jasasa
 * Dehar - Mandar / Temple
@@ -331,5 +331,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 4. __Q3__: Ummi, Propht Muhammad PBUH
 * I'm Messieh
 * Makkah and Taibah (Madina)
+* Jasoos / Jasasa (Female creatur doing espionage!)
+* Aynan (See) / Khabar / Itlaah
 
 *** 

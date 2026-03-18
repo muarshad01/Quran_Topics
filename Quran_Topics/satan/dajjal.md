@@ -319,3 +319,17 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Abraham Accords Connection with Dajjal | UAE Role Explained | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
 
 ***
+
+#### [Dajjal,s JASASA and Reality OF CIA & MOSAD](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
+* Daaba - Creatur
+* Jasasa
+* Dehar - Mandar / Temple
+#### Four Questions Dajjal Asked:
+1. __Q1__: The __date palm trees in Baisan __ have not produced any more fruit. Jordan!
+2. __Q2__: The __Sea of Galilee__, also known as Behr-e-Tabria (Lake Tiberias or Kinneret), is Israel's largest freshwater lake, spanning about (13 X 8) miles.
+3. __Q4__: Zaggar Chashma???
+4. __Q3__: Ummi, Propht Muhammad PBUH
+* I'm Messieh
+* Makkah and Taibah (Madina)
+
+*** 

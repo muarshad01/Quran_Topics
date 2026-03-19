@@ -259,6 +259,21 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
+#### [Shaitan Kay Bachy Illuminati? Supernatural Podcast With Labiba Arshad | Abdus Salam Arif](https://www.youtube.com/watch?v=k1UR-bbMGH8)
+* Illumanati
+* Free Mason
+* Khalifa: Ditto Copy
+* __Surah Hajar 15/26-44__: [](https://quran.com/15/26-44)
+1. Attack from ALL 4 sides
+2. I'll kidnap them
+3. `I'll order them (followers of Satan) to change your creation`
+4. Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
+* `Order of Illumanati`
+   * `May 01, 1776` [This is not yum-e-mazdoor]
+* `Free Mason`
+   * knight Templar 
+
+***
 #### [Important Secrets of Freemasons, Surprising Revelations | Abdul Salam Arif](https://www.youtube.com/watch?v=KadHx0p13Og)
 * Freemasons starts with `The Knights Templar`
 * The Dome of the Rock (Qubbat al-Sakhra)
@@ -273,6 +288,7 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
   * Abdel Fattah el-Sisi is the current and sixth President of Egypt
   * John F Kannedy
   * Jeorgy W Bush
+
 ***
 
 #### [Dajjal Ka Saudia Arab Me Mahal? | Ahadees Me Ki Jany Wali Peshgoi Sach Sabit | Dr. Abdus Salam](https://www.youtube.com/watch?v=gQk-j5R51d4)
@@ -283,22 +299,6 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 * __Hadith__: Three years before Dajjal arrival there will be `Famine`
 * __Hadith__: He'll land behind `Ahud Mountain`
 * __Hadith__: `Issa AS will murder him (Dajjal) at Ludd`
-
-***
-
-#### [Shaitan Kay Bachy Illuminati? Supernatural Podcast With Labiba Arshad | Abdus Salam Arif](https://www.youtube.com/watch?v=k1UR-bbMGH8)
-* Illumanati
-* Free Mason
-* Khalifa: Ditto Copy
-* __Surah Hajar 15/26-44__: [](https://quran.com/15/26-44)
-1. Attack from ALL 4 sides
-2. I'll kidnap them
-3. `I'll order them (followers of Satan) to change your creation`
-4. Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
-* `Order of Illumanati`
-   * `May 01, 1776` [This is not yum-e-mazdoor]
-* `Free Mason`
-   * knight Templar 
 
 ***
 

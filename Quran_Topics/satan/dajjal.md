@@ -324,7 +324,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Dajjal,s Jasasa and Reality of CIA & MOSAD | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
+#### [Dajjal,s Jasasa and Reality of CIA & Mossad | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
 * Daaba - Creatur
 * Jasasa
 * Dehar - Mandar / Temple

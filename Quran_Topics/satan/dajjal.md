@@ -201,15 +201,15 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [East side and Dajjal | Abdus Salaam Arif](https://www.youtube.com/watch?v=syKVO0guebo)
-* `Saf ibn Sayyad` is Dajjal...`Hazrat Umer AS`
-* `Tamim al-Dari` met Dajjal on a Peninsula
-* Al-Masih (is a Personality) ad-Dajjal (is a System)
-* Al-Masih (is a Personality) Rooh Allah (is a System)
-* One Eyed & From EAST side:
-* `Najad Saudi Arabia`: __Bokhari 7094, Tirmidhi 3953__
-   * O Allah, Hamaray Shaam par Reham Farmay
-   * O Allah, Hamaray Yaman par Reham Farmay
-   * `Banu Hanifa (Current Saudi Kings), Banu Qays, Banu Tamim (Qatar)` 
+* Saf ibn Sayyad is Dajjal...Hazrat Umer RA - hadith
+* Tamim al-Dari met Dajjal on a Peninsula - hadith
+* al-Masih (is a Personality) ad-Dajjal (is a System)
+* al-Masih (is a Personality) Rooh Allah (is a System)
+* One Eyed & From EAST side - hadith
+* __Najad Saudi Arabia__: [Narrated Ibn `Umar: The Prophet (ﷺ) said, "O Allah! Bestow Your blessings on our Sham! O Allah! Bestow Your blessings on our Yemen." The People said, "And also on our Najd." He said, "O Allah! Bestow Your blessings on our Sham (north)! O Allah! Bestow Your blessings on our Yemen." The people said, "O Allah's Apostle! And also on our Najd." I think the third time the Prophet (ﷺ) said, "There (in Najd) is the place of earthquakes and afflictions and from there comes out the side of the head of Satan."](https://sunnah.com/bukhari:7094) -- Sahih al-Bukhari 7094
+  * O Allah, Hamaray Shaam par Reham Farmay
+  * O Allah, Hamaray Yaman par Reham Farmay
+  * `Banu Hanifa (Current Saudi Kings), Banu Qays, Banu Tamim (Qatar)` 
 
 ***
 

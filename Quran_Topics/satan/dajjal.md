@@ -365,10 +365,13 @@ The Prophet (ﷺ) then recited: "Verily, with Allah (Alone) is the knowledge of 
 * Dajjal is a being - creature - similar to humans. Create to test humans as it has low of powers.
 
 #### Dajjal System
-* __Zionism__ is an ethnocultural nationalist movement originating in 19th-century Europe that aimed to create and support a Jewish homeland in Palestine, historically known as __Zion__.
+* __Zionism (Sihoni Movement)__ is an ethnocultural nationalist movement originating in 19th-century Europe that aimed to create and support a Jewish homeland in Palestine, historically known as __Zion__.
 * __Mount Zion (Arabic: جبل صهيون, Jabal Sahyoun)__ is a hill in Jerusalem, located just outside the walls of the Old City to the south. The term Mount Zion has been used in the Hebrew Bible first for the City of David and later for the __Temple Mount__, but its meaning has shifted and it is now used as the name of ancient Jerusalem's Western Hill. In a wider sense, the term Zion is also used for the entire Land of Israel.
 * __Mount Zion: is a hill in Jerusalem located just outside the Old City walls, holding immense religious significance as the traditional site of King David's Tomb and the Room of the Last Supper__.
 * __Temple Mount: This is the elevated plateau where the First and Second Temples stood, currently housing the Dome-of-the-Rock and Al-Aqsa Mosque.__
+
+* [1917 Balfour Declaration](https://i0.wp.com/jcfa.org/wp-content/uploads/2017/02/1743866_original.jpg?w=768&ssl=1)
+
 
 ***
 

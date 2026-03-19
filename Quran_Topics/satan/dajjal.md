@@ -105,20 +105,20 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [When Dajjal was creating Israel, God was making Pakistan | Prof ARA](https://www.youtube.com/watch?v=y9BIMU2vwno)
 * When Dajjal was establishing Israel
 * Allah SWT was establishing Pakistan
-* Allah nay apko apni-pechaan kay-liye paida-kiya-hai
+* Allah nay apko apni-pechaan-kay-liye paida-kiya-hai
 * Talab-e-Sadiq
-* Ibtade-Mohabbat ki-rah
-* Jastojoo-e-Haqiqat-aur-Rabbaniat ka aik-zara-bhee app-kay naseeb-mayn nahi-aa-sakta
+* Ibtade-Mohabbat ki-raah
+* Jastojoo-e-Haqiqat aur Rabbaniat-ka-aik-zara bhee app-kay-naseeb-mayn nahi-aa-sakta
 * Allah SWT doesn't need anything except your __KHALOOS___
 * __Surah Al-Insan 76/3__: [إِنَّا هَدَيْنَـٰهُ ٱلسَّبِيلَ ...إِمَّا شَاكِرًۭا وَإِمَّا كَفُورًا](https://quran.com/76/3)
 
 ***
 
 #### [Hadith (1/3, 1/3, 1/3) | Prof ARA](https://www.youtube.com/shorts/bTjhCg-jG-g)
-* [(9)Chapter: The Conquest Of Constantinople, The Emergence Of The Dajjal And The Descent Of 'Eisa bin Mariam](https://sunnah.com/muslim:2897) -- Sahih Muslim 2897
-1. 1/3 - Will Join Dajjal
-2. 1/3 - Will Fight and Defeated
-3. 1/3 - Will Fight and Conquer 
+* [Abu Huraira reported Allah's Messenger (ﷺ) as saying: The Last Hour would not come until the Romans would land at al-A'maq or in Dabiq. An army consisting of the best (soldiers) of the people of the earth at that time will come from Medina (to counteract them). When they will arrange themselves in ranks, the Romans would say: Do not stand between us and those (Muslims) who took prisoners from amongst us. Let us fight with them; and the Muslims would say: Nay, by Allah, we would never get aside from you and from our brethren that you may fight them. They will then fight and a third (part) of the army would run away, whom Allah will never forgive. A third (part of the army) which would be constituted of excellent martyrs in Allah's eye, would be killed and the third who would never be put to trial would win and they would be conquerors of Constantinople. And as they would be busy in distributing the spoils of war (amongst themselves) after hanging their swords by the olive trees, the Satan would cry: The Dajjal has taken your place among your family. They would then come out, but it would be of no avail. And when they would come to Syria, he would come out while they would be still preparing themselves for battle drawing up the ranks. Certainly, the time of prayer shall come and then Jesus (peace be upon him) son of Mary would descend and would lead them. When the enemy of Allah would see him, it would (disappear) just as the salt dissolves itself in water and if he (Jesus) were not to confront them at all, even then it would dissolve completely, but Allah would kill them by his hand and he would show them their blood on his lance (the lance of Jesus Christ).](https://sunnah.com/muslim:2897) -- Sahih Muslim 2897
+1. 1/3 - A third (part) of the army would run away, whom Allah will never forgive.
+2. 1/3 - Will Fight and Killed (Excellent martyrs in Allah's eye)
+3. 1/3 - Will Fight and Conquer Constantinople.
 
 ***
 

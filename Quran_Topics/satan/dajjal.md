@@ -247,21 +247,23 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
-#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Dr. Abdus Salam](https://www.youtube.com/watch?v=5K3q86xHnC4)
-* Columbus when discovered America
-* He sees a high-beam of light
-* Hubal versus statue-of-liberty
-* (One eye, Pyramid, World order)
-* Nokola Tesla...Pyramid...Wireless Energy...
+#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Abdul Salam Arif](https://www.youtube.com/watch?v=5K3q86xHnC4)
+* When Columbus discovered America
+* He saw a high-beam of light from very far away....
+* Station head-quarter of...
+* Hubal resembeles 99% Statue-of-Liberty in NY
+* [One eye, Pyramid, World order]
+* Nokola Tesla...Pyramid (Energy Source)...Wireless Energy...
 * Madonna dance symbols...
+* Freemasons starts with `The Knights Templar`
 
 ***
 
-#### [Important Secrets of Freemasons, Surprising Revelations | Dr. Abdus Salam](https://www.youtube.com/watch?v=KadHx0p13Og)
-* Knights Templar (Freemasonry)
-* Dome-of-Rock (Gunbad-e-Shakrah)
-* Caves under dome-of-rock, found books...
-* The conquerors were give the title of `Knights Templar`
+#### [Important Secrets of Freemasons, Surprising Revelations | Abdul Salam Arif](https://www.youtube.com/watch?v=KadHx0p13Og)
+* The Knights Templar (Freemasonry)
+* The Dome of the Rock (Qubbat al-Sakhra)
+* Caves under Dome of the Rock, found books...
+* The conquerors were give the title of `The Knights Templar`
 * They captured bait-ul-maqdas for 88 years...
 * __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ ...أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ...ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ... لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ... إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
 

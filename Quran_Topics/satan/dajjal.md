@@ -27,16 +27,18 @@ They would be small in number.
 #### [How to Protect Yourself from Dajjal? | Sahil Adeem](https://www.youtube.com/watch?v=5xKt_nZK5EY)
 * __SAKINA__: Surah Al-Kahf recitation, cloud came down on top of a house...horse started making noise...
 * No memtion of Dajjal (Anti Christ), Issa AS, Maryam AS,...
-* Recite First & last 10-Ayat
-* Surah Kafh, * Surah of Tauheed, first-ayat starts with (ٱلْحَمْدُ لِلَّهِ) and last-ayat ends with (أَحَدًۢا).
-* Isfahani Yahudi...
+* Recite First & last 10-Ayats
+* __Surah Al- Kafh, Surah of Tauheed__:
+  * First-ayat starts with (ٱلْحَمْدُ لِلَّهِ)
+  * Last-ayat ends with (أَحَدًۢا).
+* Dajjal: Isfahani Yahudi.
 
 ***
 
 #### [How Will Dajjal Reach Every Home? | Sahil Adeem](https://www.youtube.com/watch?v=KrXdqKzzRmQ)
-* When Dajjal comes, go towards mountains...
+* When Dajjal comes, go towards mountains.
 * __Mountains__:
-1. First Wahi
+1. First Wahi (Ghar-e-Hira (Cave of Hira) )
 2. Last Wahi (Issa AS at Toor)
 3. Ishab-e-kahf
 
@@ -49,7 +51,7 @@ They would be small in number.
 
 #### [Dajjal myth or reality! How will we know Imam Mahdi | Sahil Adeem](https://www.youtube.com/watch?v=wL_0peOcGag)
 ```
-Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspected by some companions, including Umar, and even the Prophet himself, to be the Dajjal (False Messiah) due to some matching characteristics, but later Islamic tradition distinguishes him as a soothsayer or charlatan, not the ultimate Dajjal, whose identity was clarified later by narratives like Tamim al-Dari's encounter, revealing the true Dajjal's distinct features like being childless and unable to enter Mecca
+Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspected by some companions, including Umar, and even the Prophet himself, to be the Dajjal (False Messiah) due to some matching characteristics, but later Islamic tradition distinguishes him as a soothsayer or charlatan, not the ultimate Dajjal, whose identity was clarified later by narratives like Tamim al-Dari's encounter, revealing the true Dajjal's distinct features like being childless and unable to enter Mecca.
 ```
 
 ***
@@ -58,11 +60,11 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 1. The Garden of Jorden
 2. The water of Euphrates River
 3. The announcement of Prophet PBUH Mission
-* __Surah Al-Maarij 70/3-4__: [](https://quran.com/70/3-4)
+* __Surah Al-Maarij 70/3-4__: [مِّنَ ٱللَّهِ ذِى ٱلْمَعَارِجِ...تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/3-4)
 * Has that path opened?
 * The last-time angel Jibraeel will come for a Prophet?
-* `I saw prophet Issas AS was doing Tawaf in Kabba and Dajjal was walking behind him...` -- Hadith
 * Gihong Spring and 3 Arab rivers are from 6th heaven
+* [Narrated Salim from his father: No, By Allah, the Prophet (ﷺ) did not tell that Jesus was of red complexion but said, "While I was asleep circumambulating the Ka`ba (in my dream), suddenly I saw a man of brown complexion and lank hair walking between two men, and water was dropping from his head. I asked, 'Who is this?' The people said, 'He is the son of Mary.' Then I looked behind and I saw a red-complexioned, fat, curly-haired man, blind in the right eye which looked like a bulging out grape. I asked, 'Who is this?' They replied, 'He is Ad-Dajjal.' The one who resembled to him among the people, was Ibn Qatar." (Az-Zuhri said, "He (i.e. Ibn Qatan) was a man from the tribe Khuza`a who died in the pre-lslamic period.")](https://sunnah.com/bukhari:3441) -- Sahih al-Bukhari 3441
 
 ***
 
@@ -155,9 +157,10 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 #### [Dajjal 3 Questions | Relation Between Dajjal Island & Pakistan? | Dr. Abdus Salam](https://www.youtube.com/watch?v=CKl7GFSJPXQ)
 * `Tamim al-Dari` hadith
-* Q1: `Palestinian city (Baysan)` - Are dates still giving fruit there?
-* Q2: `Syrian river (Dayr al-Zawr)` - Has its water dried out?
-* Q3: `Israel (Sea of Galilee)` - Does it has water?
+* __Q1__: Palestinian city (__Baysan__) - Are dates still giving fruit there?
+* __Q2__: Syrian river (__Dayr al-Zawr__) - Has its water dried out?
+* __Q3__: The __Sea of Galilee (Behr-e-Tabria)__, is Israel's largest freshwater lake, spanning about (13 X 8) miles. - Does it has water?
+
 * `Saf ibn Sayyad` hadith
 * Extra-ordinary creation
 

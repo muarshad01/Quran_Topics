@@ -122,14 +122,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-## Mufti Muneer Akhoon
-
-#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
-* Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
-* Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
-
-***
-
 ## Dr Abdus Salam
 
 #### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Dr. Abdus Salam](https://www.youtube.com/watch?v=5K3q86xHnC4)
@@ -411,5 +403,13 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 #### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Orya Maqbool Jan](https://www.youtube.com/watch?v=bjq5M1l002M)
 
 #### [Is Trump Preparing the Army of Dajjal? | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
+
+***
+
+## Mufti Muneer Akhoon
+
+#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
+* Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
+* Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
 
 ***

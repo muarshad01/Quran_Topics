@@ -167,6 +167,86 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+#### [RUB _Dajjal- Arab Countries Petro Dollar - Part 1 | Abdul Salam Arif](https://www.youtube.com/watch?v=6u6rfOUisTo)
+* [Narrated Mujahid: I was in the company of Ibn `Abbas and the people talked about Ad-Dajjal and said, "Ad-Dajjal will come with the word Kafir (non-believer) written in between his eyes." On that Ibn `Abbas said, "I have not heard this from the Prophet (ﷺ) but I heard him saying, 'As if I saw Moses just now entering the valley reciting Talbyia. '](https://sunnah.com/bukhari:1555) - Sahih al-Bukhari 1555
+* Dajjal will say, "I'm Rabb"
+* Dajjal will be One eyed.
+* No one can see his Rabb in this Life.
+* Prophet SAW said, "Always, remember, your Rabb is not One eyed"
+* Prophet SAW said, "If someone says I'm Rabb and performs miricles, then, always remember/think that you can't see your Rabb Tallah before your death"
+
+#### Difference between "Ilah versus Rabb"
+* Ilah has full authority of Legistation
+* Following that law is Ibadah
+* Who follows that law is Abid
+
+#### Five Pillers of Islam
+1. Beliefs
+2. Morality
+3. Finance
+4. Sociology
+5. Politics
+
+#### Rabb
+* Rabb fulfills your finalcial needs
+* Takes care of financial needs (provides / sustains)
+
+* __Hadees-e-Jibrail__: [Narrated Abu Huraira: One day while the Prophet (ﷺ) was sitting in the company of some people, (The angel) Gabriel came and asked, "What is faith?" Allah's Messenger (ﷺ) replied, 'Faith is to believe in Allah, His angels, (the) meeting with Him, His Apostles, and to believe in Resurrection." Then he further asked, "What is Islam?" Allah's Messenger (ﷺ) replied, "To worship Allah Alone and none else, to offer prayers perfectly to pay the compulsory charity (Zakat) and to observe fasts during the month of Ramadan." Then he further asked, "What is Ihsan (perfection)?" Allah's Messenger (ﷺ) replied, "To worship Allah as if you see Him, and if you cannot achieve this state of devotion then you must consider that He is looking at you." Then he further asked, "When will the Hour be established?" Allah's Messenger (ﷺ) replied, "The answerer has no better knowledge than the questioner. But I will inform you about its portents. ( وَسَأُخْبِرُكَ عَنْ أَشْرَاطِهَا)
+1. When a slave (lady) gives birth to her master. (وَلَدَتِ الأَمَةُ رَبَّهَا)
+2. When the shepherds of black camels start boasting and competing with others in the construction of higher buildings.
+%%%
+And the Hour is one of five things which nobody knows except Allah.
+The Prophet (ﷺ) then recited: "Verily, with Allah (Alone) is the knowledge of the Hour--." (31. 34) Then that man (Gabriel) left and the Prophet (ﷺ) asked his companions to call him back, but they could not see him. Then the Prophet (ﷺ) said, "That was Gabriel who came to teach the people their religion." Abu 'Abdullah said: He (the Prophet) considered all that as a part of faith.](https://sunnah.com/bukhari:50) -- Sahih al-Bukhari 50
+
+* Dajjal will never say I'm Ilah.
+
+* The __EU's GSP+ (Generalized Scheme of Preferences Plus)__ offers zero-tariff access to the EU market for vulnerable low- and lower-middle-income countries that implement 27 international conventions on human rights, labor, environment, and good governance.
+* Financial devastation
+
+* __Surah Yunus 10/92 (فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ)__: [فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ ۚ... وَإِنَّ كَثِيرًۭا مِّنَ ٱلنَّاسِ عَنْ ءَايَـٰتِنَا لَغَـٰفِلُونَ](https://quran.com/10/92)
+  * In 1881, a major discovery in Deir el-Bahari, near Luxor, unearthed a secret "royal cache" (TT320) containing over 50 mummies of Egyptian rulers.
+* Dajjal is a being - creature - similar to humans. Create to test humans as it has low of powers.
+
+#### Dajjal System
+* __Zionism (Sihoni Movement)__ is an ethnocultural nationalist movement originating in 19th-century Europe that aimed to create and support a Jewish homeland in Palestine, historically known as __Zion__.
+* __Mount Zion (Arabic: جبل صهيون, Jabal Sahyoun)__ is a hill in Jerusalem, located just outside the walls of the Old City to the south. The term Mount Zion has been used in the Hebrew Bible first for the City of David and later for the __Temple Mount__, but its meaning has shifted and it is now used as the name of ancient Jerusalem's Western Hill. In a wider sense, the term Zion is also used for the entire Land of Israel.
+* __Mount Zion: is a hill in Jerusalem located just outside the Old City walls, holding immense religious significance as the traditional site of King David's Tomb and the Room of the Last Supper__.
+* __Temple Mount: This is the elevated plateau where the First and Second Temples stood, currently housing the Dome-of-the-Rock and Al-Aqsa Mosque.__
+
+* [1917 Balfour Declaration](https://i0.wp.com/jcfa.org/wp-content/uploads/2017/02/1743866_original.jpg?w=768&ssl=1)
+* __Surah An-Nisa 4/157__: [وَقَوْلِهِمْ إِنَّا قَتَلْنَا ٱلْمَسِيحَ عِيسَى ٱبْنَ مَرْيَمَ رَسُولَ ٱللَّهِ ...وَمَا قَتَلُوهُ وَمَا صَلَبُوهُ وَلَـٰكِن شُبِّهَ لَهُمْ ۚ... ](https://quran.com/4/157)
+
+#### Islam Financial Management System
+1. Dinar (Gold Conin) and Silver
+__Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَمِنْ أَهْلِ ٱلْكِتَـٰبِ مَنْ إِن تَأْمَنْهُ بِقِنطَارٍۢ يُؤَدِّهِۦٓ إِلَيْكَ وَمِنْهُم مَّنْ إِن تَأْمَنْهُ بِدِينَارٍۢ لَّا يُؤَدِّهِۦٓ إِلَيْكَ إِلَّا مَا دُمْتَ عَلَيْهِ قَآئِمًۭا ۗ ذَٰلِكَ بِأَنَّهُمْ قَالُوا۟ لَيْسَ عَلَيْنَا فِى ٱلْأُمِّيِّـۧنَ سَبِيلٌۭ وَيَقُولُونَ عَلَى ٱللَّهِ ٱلْكَذِبَ وَهُمْ يَعْلَمُونَ](https://quran.com/3/75)
+* __Surah Al-Kahf (Silver Coin: بِوَرِقِكُمْ)__: [وَكَذَٰلِكَ بَعَثْنَـٰهُمْ لِيَتَسَآءَلُوا۟ بَيْنَهُمْ ۚ قَالَ قَآئِلٌۭ مِّنْهُمْ كَمْ لَبِثْتُمْ ۖ قَالُوا۟ لَبِثْنَا يَوْمًا أَوْ بَعْضَ يَوْمٍۢ ۚ قَالُوا۟ رَبُّكُمْ أَعْلَمُ بِمَا لَبِثْتُمْ فَٱبْعَثُوٓا۟ أَحَدَكُم بِوَرِقِكُمْ هَـٰذِهِۦٓ إِلَى ٱلْمَدِينَةِ فَلْيَنظُرْ أَيُّهَآ أَزْكَىٰ طَعَامًۭا فَلْيَأْتِكُم بِرِزْقٍۢ مِّنْهُ وَلْيَتَلَطَّفْ وَلَا يُشْعِرَنَّ بِكُمْ أَحَدًا](https://quran.com/18/19)
+* 3rd currency mineral.
+* 1-Dinar: 3.88 grams of gold
+* 1-Dinar = 40 Dirhams (Silver Coins)
+
+***
+
+#### [Rub-dajjal-Petro Dollar and Arabs - Part 2 | Abdul Salam Arif](https://www.youtube.com/watch?v=mK-69A2q1ks)
+*  TODO
+
+***
+
+#### [Dajjal,s Jasasa and Reality of CIA & Mossad | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
+* Daaba - Creatur
+* Jasasa
+* Dehar - Mandar / Temple
+#### Four Questions Dajjal Asked:
+1. __Q1__: The __date palm trees in Baisan __ have not produced any more fruit. Jordan!
+2. __Q2__: The __Sea of Galilee__, also known as Behr-e-Tabria (Lake Tiberias or Kinneret), is Israel's largest freshwater lake, spanning about (13 X 8) miles.
+3. __Q4__: Zaggar Chashma???
+4. __Q3__: Ummi, Propht Muhammad PBUH
+* I'm Messieh
+* Makkah and Taibah (Madina)
+* Jasoos / Jasasa (Female creatur doing espionage!)
+* Aynan (See) / Khabar / Itlaah
+
+***
+
 #### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Dr. Abdus Salam](https://www.youtube.com/watch?v=5K3q86xHnC4)
 * Columbus when discovered America
 * He sees a high-beam of light
@@ -281,86 +361,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
   * Jews
 
 *** 
-
-#### [RUB _Dajjal- Arab Countries Petro Dollar - Part 1 | Abdul Salam Arif](https://www.youtube.com/watch?v=6u6rfOUisTo)
-* [Narrated Mujahid: I was in the company of Ibn `Abbas and the people talked about Ad-Dajjal and said, "Ad-Dajjal will come with the word Kafir (non-believer) written in between his eyes." On that Ibn `Abbas said, "I have not heard this from the Prophet (ﷺ) but I heard him saying, 'As if I saw Moses just now entering the valley reciting Talbyia. '](https://sunnah.com/bukhari:1555) - Sahih al-Bukhari 1555
-* Dajjal will say, "I'm Rabb"
-* Dajjal will be One eyed.
-* No one can see his Rabb in this Life.
-* Prophet SAW said, "Always, remember, your Rabb is not One eyed"
-* Prophet SAW said, "If someone says I'm Rabb and performs miricles, then, always remember/think that you can't see your Rabb Tallah before your death"
-
-#### Difference between "Ilah versus Rabb"
-* Ilah has full authority of Legistation
-* Following that law is Ibadah
-* Who follows that law is Abid
-
-#### Five Pillers of Islam
-1. Beliefs
-2. Morality
-3. Finance
-4. Sociology
-5. Politics
-
-#### Rabb
-* Rabb fulfills your finalcial needs
-* Takes care of financial needs (provides / sustains)
-
-* __Hadees-e-Jibrail__: [Narrated Abu Huraira: One day while the Prophet (ﷺ) was sitting in the company of some people, (The angel) Gabriel came and asked, "What is faith?" Allah's Messenger (ﷺ) replied, 'Faith is to believe in Allah, His angels, (the) meeting with Him, His Apostles, and to believe in Resurrection." Then he further asked, "What is Islam?" Allah's Messenger (ﷺ) replied, "To worship Allah Alone and none else, to offer prayers perfectly to pay the compulsory charity (Zakat) and to observe fasts during the month of Ramadan." Then he further asked, "What is Ihsan (perfection)?" Allah's Messenger (ﷺ) replied, "To worship Allah as if you see Him, and if you cannot achieve this state of devotion then you must consider that He is looking at you." Then he further asked, "When will the Hour be established?" Allah's Messenger (ﷺ) replied, "The answerer has no better knowledge than the questioner. But I will inform you about its portents. ( وَسَأُخْبِرُكَ عَنْ أَشْرَاطِهَا)
-1. When a slave (lady) gives birth to her master. (وَلَدَتِ الأَمَةُ رَبَّهَا)
-2. When the shepherds of black camels start boasting and competing with others in the construction of higher buildings.
-
-And the Hour is one of five things which nobody knows except Allah.
-The Prophet (ﷺ) then recited: "Verily, with Allah (Alone) is the knowledge of the Hour--." (31. 34) Then that man (Gabriel) left and the Prophet (ﷺ) asked his companions to call him back, but they could not see him. Then the Prophet (ﷺ) said, "That was Gabriel who came to teach the people their religion." Abu 'Abdullah said: He (the Prophet) considered all that as a part of faith.](https://sunnah.com/bukhari:50) -- Sahih al-Bukhari 50
-
-* Dajjal will never say I'm Ilah.
-
-* The __EU's GSP+ (Generalized Scheme of Preferences Plus)__ offers zero-tariff access to the EU market for vulnerable low- and lower-middle-income countries that implement 27 international conventions on human rights, labor, environment, and good governance.
-* Financial devastation
-
-* __Surah Yunus 10/92 (فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ)__: [فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ ۚ... وَإِنَّ كَثِيرًۭا مِّنَ ٱلنَّاسِ عَنْ ءَايَـٰتِنَا لَغَـٰفِلُونَ](https://quran.com/10/92)
-  * In 1881, a major discovery in Deir el-Bahari, near Luxor, unearthed a secret "royal cache" (TT320) containing over 50 mummies of Egyptian rulers.
-* Dajjal is a being - creature - similar to humans. Create to test humans as it has low of powers.
-
-#### Dajjal System
-* __Zionism (Sihoni Movement)__ is an ethnocultural nationalist movement originating in 19th-century Europe that aimed to create and support a Jewish homeland in Palestine, historically known as __Zion__.
-* __Mount Zion (Arabic: جبل صهيون, Jabal Sahyoun)__ is a hill in Jerusalem, located just outside the walls of the Old City to the south. The term Mount Zion has been used in the Hebrew Bible first for the City of David and later for the __Temple Mount__, but its meaning has shifted and it is now used as the name of ancient Jerusalem's Western Hill. In a wider sense, the term Zion is also used for the entire Land of Israel.
-* __Mount Zion: is a hill in Jerusalem located just outside the Old City walls, holding immense religious significance as the traditional site of King David's Tomb and the Room of the Last Supper__.
-* __Temple Mount: This is the elevated plateau where the First and Second Temples stood, currently housing the Dome-of-the-Rock and Al-Aqsa Mosque.__
-
-* [1917 Balfour Declaration](https://i0.wp.com/jcfa.org/wp-content/uploads/2017/02/1743866_original.jpg?w=768&ssl=1)
-* __Surah An-Nisa 4/157__: [وَقَوْلِهِمْ إِنَّا قَتَلْنَا ٱلْمَسِيحَ عِيسَى ٱبْنَ مَرْيَمَ رَسُولَ ٱللَّهِ ...وَمَا قَتَلُوهُ وَمَا صَلَبُوهُ وَلَـٰكِن شُبِّهَ لَهُمْ ۚ... ](https://quran.com/4/157)
-
-#### Islam Financial Management System
-1. Dinar (Gold Conin) and Silver
-__Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَمِنْ أَهْلِ ٱلْكِتَـٰبِ مَنْ إِن تَأْمَنْهُ بِقِنطَارٍۢ يُؤَدِّهِۦٓ إِلَيْكَ وَمِنْهُم مَّنْ إِن تَأْمَنْهُ بِدِينَارٍۢ لَّا يُؤَدِّهِۦٓ إِلَيْكَ إِلَّا مَا دُمْتَ عَلَيْهِ قَآئِمًۭا ۗ ذَٰلِكَ بِأَنَّهُمْ قَالُوا۟ لَيْسَ عَلَيْنَا فِى ٱلْأُمِّيِّـۧنَ سَبِيلٌۭ وَيَقُولُونَ عَلَى ٱللَّهِ ٱلْكَذِبَ وَهُمْ يَعْلَمُونَ](https://quran.com/3/75)
-* __Surah Al-Kahf (Silver Coin: بِوَرِقِكُمْ)__: [وَكَذَٰلِكَ بَعَثْنَـٰهُمْ لِيَتَسَآءَلُوا۟ بَيْنَهُمْ ۚ قَالَ قَآئِلٌۭ مِّنْهُمْ كَمْ لَبِثْتُمْ ۖ قَالُوا۟ لَبِثْنَا يَوْمًا أَوْ بَعْضَ يَوْمٍۢ ۚ قَالُوا۟ رَبُّكُمْ أَعْلَمُ بِمَا لَبِثْتُمْ فَٱبْعَثُوٓا۟ أَحَدَكُم بِوَرِقِكُمْ هَـٰذِهِۦٓ إِلَى ٱلْمَدِينَةِ فَلْيَنظُرْ أَيُّهَآ أَزْكَىٰ طَعَامًۭا فَلْيَأْتِكُم بِرِزْقٍۢ مِّنْهُ وَلْيَتَلَطَّفْ وَلَا يُشْعِرَنَّ بِكُمْ أَحَدًا](https://quran.com/18/19)
-* 3rd currency mineral.
-* 1-Dinar: 3.88 grams of gold
-* 1-Dinar = 40 Dirhams (Silver Coins)
-
-***
-
-#### [Rub-dajjal-Petro Dollar and Arabs - Part 2 | Abdul Salam Arif](https://www.youtube.com/watch?v=mK-69A2q1ks)
-*  TODO
-
-***
-
-#### [Dajjal,s Jasasa and Reality of CIA & Mossad | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
-* Daaba - Creatur
-* Jasasa
-* Dehar - Mandar / Temple
-#### Four Questions Dajjal Asked:
-1. __Q1__: The __date palm trees in Baisan __ have not produced any more fruit. Jordan!
-2. __Q2__: The __Sea of Galilee__, also known as Behr-e-Tabria (Lake Tiberias or Kinneret), is Israel's largest freshwater lake, spanning about (13 X 8) miles.
-3. __Q4__: Zaggar Chashma???
-4. __Q3__: Ummi, Propht Muhammad PBUH
-* I'm Messieh
-* Makkah and Taibah (Madina)
-* Jasoos / Jasasa (Female creatur doing espionage!)
-* Aynan (See) / Khabar / Itlaah
-
-*** 
+ 
 
 #### [Masjid Al-Aqsa & the End Times](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s)
 

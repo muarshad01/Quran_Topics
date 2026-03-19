@@ -354,10 +354,14 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 And the Hour is one of five things which nobody knows except Allah.
 The Prophet (ﷺ) then recited: "Verily, with Allah (Alone) is the knowledge of the Hour--." (31. 34) Then that man (Gabriel) left and the Prophet (ﷺ) asked his companions to call him back, but they could not see him. Then the Prophet (ﷺ) said, "That was Gabriel who came to teach the people their religion." Abu 'Abdullah said: He (the Prophet) considered all that as a part of faith.](https://sunnah.com/bukhari:50) -- Sahih al-Bukhari 50
+
 * Dajjal will never say I'm Ilah.
-  
 
+* The __EU's GSP+ (Generalized Scheme of Preferences Plus)__ offers zero-tariff access to the EU market for vulnerable low- and lower-middle-income countries that implement 27 international conventions on human rights, labor, environment, and good governance.
+* Financial devastation
 
+* __Surah Yunus 10/92 (فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ)__: [فَٱلْيَوْمَ نُنَجِّيكَ بِبَدَنِكَ لِتَكُونَ لِمَنْ خَلْفَكَ ءَايَةًۭ ۚ... وَإِنَّ كَثِيرًۭا مِّنَ ٱلنَّاسِ عَنْ ءَايَـٰتِنَا لَغَـٰفِلُونَ](https://quran.com/10/92)
+  * In 1881, a major discovery in Deir el-Bahari, near Luxor, unearthed a secret "royal cache" (TT320) containing over 50 mummies of Egyptian rulers.
 
 ***
 

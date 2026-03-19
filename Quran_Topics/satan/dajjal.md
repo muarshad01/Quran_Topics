@@ -66,13 +66,11 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-
-#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
 
 ***
 
-
-#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
+#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
 
 ***
 
@@ -80,15 +78,11 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Ft. Sahil Adeem | GNN](https://www.youtube.com/watch?v=2vUYPQj01F4)
+#### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Sahil Adeem](https://www.youtube.com/watch?v=2vUYPQj01F4)
 
 ***
 
 #### [Exploring Dajjal, Yajuj Majuj and Surah Kahaf | Sahil Adeem](https://www.youtube.com/watch?v=kP8QC8KrbH0)
-
-***
-
-#### [Is Trump Preparing the Army of Dajjal? | Signs from Ahadith | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
 
 ***
 
@@ -268,9 +262,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Dajjal Kab Aye Ga? | Dr Abdus Salam Arif | Podcast | Episode 20 (Part 2)](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
-
-***
 
 #### [Jerusalem (or City of David)](https://www.generationword.com/jerusalem101/19-city-of-david.html)
 1. Gihon Spring
@@ -283,14 +274,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 *** 
 
 #### [Dajjal Ka Wo Gunah Jis Ne Usay Bad-Bakht Bana Diya | Haqeeqat Jo Har Musalman Ko Janni Chahiye |](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
-
-***
-
-#### [Dajjal Ki Paidaish Ka Hairatangez Raaz | Dr Israr Ahmed](https://www.youtube.com/watch?v=CLAq8TxUWWg)
-
-***
-
-#### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Ft. Orya Maqbool Jan With Osama Tayyab](https://www.youtube.com/watch?v=bjq5M1l002M)
 
 ***
 
@@ -378,7 +361,11 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
-#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
+#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Abdul Salam Arif](https://www.youtube.com/watch?v=52t9dtbYYDc)
+
+***
+
+#### [Dajjal Kab Aye Ga? | Podcast | Episode 20 (Part 2) | Abdus Salam Arif ](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
 
 ***
 
@@ -386,14 +373,28 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
-#### [Why is the mention of the Antichrist disappearing | Abdul Salam | GNN](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
+#### [Why is the mention of the Antichrist disappearing | Abdul Salam Arif](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
 
 ***
 
-#### [Abraham Accords Connection with Dajjal | UAE Role Explained | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
+#### [Abraham Accords Connection with Dajjal | UAE Role Explained | Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
 
 ***
 
-#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
+#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Abdul Salam Arif](https://www.youtube.com/watch?v=79JY4r7isvQ)
+
+***
+
+## Dr Israr
+
+#### [Dajjal Ki Paidaish Ka Hairatangez Raaz | Dr Israr Ahmed](https://www.youtube.com/watch?v=CLAq8TxUWWg)
+
+***
+
+## Orya Maqbool Jan
+
+#### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Orya Maqbool Jan](https://www.youtube.com/watch?v=bjq5M1l002M)
+
+#### [Is Trump Preparing the Army of Dajjal? | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
 
 ***

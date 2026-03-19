@@ -136,6 +136,23 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+#### [Dajjal Ka Maa Baap Kon? Duniya Mai Kitny Din Rahyga? | Abdus Salam Arif](https://www.youtube.com/watch?v=uJW-mSWiqqQ)
+* No NAMAZ in which prophet PBUH has sought `Allah SWT Panah from Mesieh ad-Dajjal Shar and Fitnah`
+  * __Duaa:  (اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ  شَرِّ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ)__
+* __Surah Sad 38/34 (جَسَدًۭا)__: [وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا ثُمَّ أَنَابَ](https://quran.com/38/34)
+* __Surah Sad 38/35 (King Solomon AS Duaa)__: [قَالَ رَبِّ ٱغْفِرْ لِى وَهَبْ لِى مُلْكًۭا لَّا يَنۢبَغِى لِأَحَدٍۢ مِّنۢ بَعْدِىٓ ۖ إِنَّكَ أَنتَ ٱلْوَهَّابُ](https://quran.com/38/35)
+* __Surah Sajdah 32/21__: [وَلَنُذِيقَنَّهُم مِّنَ ٱلْعَذَابِ ٱلْأَدْنَىٰ دُونَ ٱلْعَذَابِ ٱلْأَكْبَرِ لَعَلَّهُمْ يَرْجِعُونَ](https://quran.com/32/21)
+* Saf ibn Sayyad (child) - hadith
+* Tamim al-Dari - hadith
+
+#### Multi-dimentional Creature
+1. Nuh AS time
+2. Jassad Salman AS time - ([وَلَقَدْ فَتَنَّا سُلَيْمَـٰنَ وَأَلْقَيْنَا عَلَىٰ كُرْسِيِّهِۦ جَسَدًۭا ثُمَّ أَنَابَ](https://quran.com/38/34))
+3. In shackles at an Island (Tamim al-Dari - hadith)
+4. In Madina as Saf ibn Sayyad - hadith
+
+***
+
 #### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Dr. Abdus Salam](https://www.youtube.com/watch?v=5K3q86xHnC4)
 * Columbus when discovered America
 * He sees a high-beam of light
@@ -167,7 +184,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Shaitan Kay Bachy Illuminati? Supernatural Podcast With Labiba Arshad | Dr. Abdus Salam Arif](https://www.youtube.com/watch?v=k1UR-bbMGH8)
+#### [Shaitan Kay Bachy Illuminati? Supernatural Podcast With Labiba Arshad | Abdus Salam Arif](https://www.youtube.com/watch?v=k1UR-bbMGH8)
 * Illumanati
 * Free Mason
 * Khalifa: Ditto Copy
@@ -180,22 +197,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
    * `May 01, 1776` [This is not yum-e-mazdoor]
 * `Free Mason`
    * knight Templar 
-
-***
-
-#### [Dajjal Ka Maa Baap Kon? Duniya Mai Kitny Din Rahyga? | Ft. Abdul Salam | Suno Podcast Supernatural](https://www.youtube.com/watch?v=uJW-mSWiqqQ)
-* No NAMAZ in which prophet PBUH has sought `Allah SWT Panah from Mesieh ad-Dajjal Shar and Fitnah`
-* Prophet Salman AS, `JASAD` sat at his throne (Chair)
-  * Oh Allah, don't give anybody a kingdom like me 
-* __Surah Sajdah 32/21__: [وَلَنُذِيقَنَّهُم مِّنَ ٱلْعَذَابِ ٱلْأَدْنَىٰ دُونَ ٱلْعَذَابِ ٱلْأَكْبَرِ لَعَلَّهُمْ يَرْجِعُونَ](https://quran.com/32/21)
-* Ibn Sayyad (child) - Hadith
-* Tamim Dari - Hadith
-
-#### Multidimentional Creature
-* Nuh AS time
-* Salman AS time - Jasad
-* In shackles at an Island
-* In Madina as Ibn Sayyad
 
 ***
 

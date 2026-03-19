@@ -66,6 +66,36 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+
+#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+
+***
+
+
+#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
+
+***
+
+#### [Dajjal is Out in 2027 | Sahil Adeem](https://www.youtube.com/watch?v=IcB_oa4jpcA)
+
+***
+
+#### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Ft. Sahil Adeem | GNN](https://www.youtube.com/watch?v=2vUYPQj01F4)
+
+***
+
+#### [Exploring Dajjal, Yajuj Majuj and Surah Kahaf | Sahil Adeem](https://www.youtube.com/watch?v=kP8QC8KrbH0)
+
+***
+
+#### [Is Trump Preparing the Army of Dajjal? | Signs from Ahadith | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
+
+***
+
+#### [Situation in Middle East | Sahil Adeem & Orya Maqbool Jan Podcast](https://www.youtube.com/watch?v=F8Ste5HwVCk)
+
+***
+
 ## Prof ARA
 
 #### [When Dajjal was creating Israel, God was making Pakistan | Prof ARA](https://www.youtube.com/watch?v=y9BIMU2vwno)
@@ -88,6 +118,13 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+## Mufti Muneer Akhoon
+
+#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
+* Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
+* Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
+
+***
 
 ## Dr Abdus Salam
 
@@ -108,18 +145,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * The conquerors were give the title of `Knights Templar`
 * They captured bait-ul-maqdas for 88 years...
 * __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ ...أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ...ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ... لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ... إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
-
-***
-
-#### [Dajjal ki hukmarani Hazrat Salman (RA) Jaisi hogi? Dajjal khud ko kaise manwaye ga | Dr. Abdus Salam](https://www.youtube.com/watch?v=l1OHVJEwowk)
-
-***
-
-## Mufti Muneer Akhoon
-
-#### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
-* Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
-* Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
 
 ***
 
@@ -189,10 +214,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Kali Mata Or Dajjal | Yajooj Majooj Kahan Hain? Horror Podcast](https://www.youtube.com/watch?v=jd-8LkL59d0&t=70s)
-
-***
-
 #### [Bani Israel Ko Saza Q Mili? Jerusalem Ki History | Dr. Abdul Salam Arif](https://www.youtube.com/watch?v=vcibvqVDGP0)
 * Entry point which opens up in other world...
 * Dajjal will also try to run away from there ...
@@ -247,39 +268,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Masjid Al-Aqsa & the End Times](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s)
-
-***
-
-#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
-
-***
-
-#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)
-
-***
-
 #### [Dajjal Kab Aye Ga? | Dr Abdus Salam Arif | Podcast | Episode 20 (Part 2)](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
-
-***
-
-#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
-
-***
-
-#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
-
-***
-
-#### [Exploring Dajjal, Yajuj Majuj and Surah Kahaf | Sahil Adeem](https://www.youtube.com/watch?v=kP8QC8KrbH0)
-
-***
-
-#### [Is Trump Preparing the Army of Dajjal? | Signs from Ahadith | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
-
-***
-
-#### [Situation in Middle East | Sahil Adeem & Orya Maqbool Jan Podcast](https://www.youtube.com/watch?v=F8Ste5HwVCk)
 
 ***
 
@@ -293,10 +282,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 *** 
 
-#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
-
-***
-
 #### [Dajjal Ka Wo Gunah Jis Ne Usay Bad-Bakht Bana Diya | Haqeeqat Jo Har Musalman Ko Janni Chahiye |](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
 
 ***
@@ -305,23 +290,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Dajjal is Out in 2027 | Sahil Adeem](https://www.youtube.com/watch?v=IcB_oa4jpcA)
-
-***
-
-#### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Ft. Sahil Adeem | GNN](https://www.youtube.com/watch?v=2vUYPQj01F4)
-
-***
-
 #### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Ft. Orya Maqbool Jan With Osama Tayyab](https://www.youtube.com/watch?v=bjq5M1l002M)
-
-***
-
-#### [Why is the mention of the Antichrist disappearing | Abdul Salam | GNN](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
-
-***
-
-#### [Abraham Accords Connection with Dajjal | UAE Role Explained | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
 
 ***
 
@@ -385,6 +354,7 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 ***
 
 #### [Rub-dajjal-Petro Dollar and Arabs - Part 2 | Abdul Salam Arif](https://www.youtube.com/watch?v=mK-69A2q1ks)
+*  TODO
 
 ***
 
@@ -403,3 +373,27 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 * Aynan (See) / Khabar / Itlaah
 
 *** 
+
+#### [Masjid Al-Aqsa & the End Times](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s)
+
+***
+
+#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
+
+***
+
+#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)
+
+***
+
+#### [Why is the mention of the Antichrist disappearing | Abdul Salam | GNN](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
+
+***
+
+#### [Abraham Accords Connection with Dajjal | UAE Role Explained | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
+
+***
+
+#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Supernatural Podcast With Abdus Salam](https://www.youtube.com/watch?v=79JY4r7isvQ)
+
+***

@@ -74,15 +74,11 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
-
-***
-
-#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Suno Pakistan EP 345](https://www.youtube.com/watch?v=rhZKg2OGTZw)
-
-***
-
 #### [Dajjal is Out in 2027 | Sahil Adeem](https://www.youtube.com/watch?v=IcB_oa4jpcA)
+
+***
+
+#### [Is Dajjal Outside of Time? What the Hadith Reveals | Sahil Adeem](https://www.youtube.com/watch?v=jDsCPnX4Jok)
 
 ***
 
@@ -94,7 +90,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Situation in Middle East | Sahil Adeem & Orya Maqbool Jan Podcast](https://www.youtube.com/watch?v=F8Ste5HwVCk)
+#### [Situation in Middle East | Sahil Adeem](https://www.youtube.com/watch?v=F8Ste5HwVCk)
 
 ***
 
@@ -391,6 +387,10 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 ***
 
 #### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Abdul Salam Arif](https://www.youtube.com/watch?v=79JY4r7isvQ)
+
+***
+
+#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Abdul Salam Arif](https://www.youtube.com/watch?v=rhZKg2OGTZw)
 
 ***
 

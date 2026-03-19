@@ -96,10 +96,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
-#### [Exploring Dajjal, Yajuj Majuj and Surah Kahaf | Sahil Adeem](https://www.youtube.com/watch?v=kP8QC8KrbH0)
-
-***
-
 #### [Situation in Middle East | Sahil Adeem](https://www.youtube.com/watch?v=F8Ste5HwVCk)
 
 ***

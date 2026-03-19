@@ -58,23 +58,28 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 #### [Nabi SAW saw Dajjal with Hazrat Issa AS | Sahil Adeem‬](https://www.youtube.com/watch?v=W6AR3_Xe5Zc)
 1. __Q1__: Palestinian city (__Baysan__) - Are dates still giving fruit there?
-2. __Q2__: The water of Euphrates River
+2. __Q2__: The Euphrates River (Is it still flowing? - Meaning, heavenly path is still oepn?)
 3. __Q3__: The announcement of Prophet PBUH Mission
-* Has that path opened?
-* The last-time angel Jibraeel will come for a Prophet?
+* Dajjal Asked: The __last-time__ Jibraeel AS comes for a prophet has that happened?
 * __Surah Al-Maarij 70/3-4__: [مِّنَ ٱللَّهِ ذِى ٱلْمَعَارِجِ...تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/3-4)
 * The __Gihon Spring__, located in the City of David National Park in Jerusalem, is an historic, intermittent, freshwater source that served as the primary water supply for the ancient city. It is biblically significant as the site of King Solomon’s coronation and historically protected by King Hezekiah's Tunnel, which directed water to the Pool of Siloam
 
-#### Water sources from 6th heaven
+#### Water sources from 6th Heaven
 * __Gihong Spring__ is located in the City of David National Park in Jerusalem
 1. The Neil river
-2. The Euphratees river
+2. The Euphratees River (starts from the root of Sidrat al-Muntaha!)
 3. Sea of Galilee (Behr-e-Tabria)
 * [Narrated Salim from his father: No, By Allah, the Prophet (ﷺ) did not tell that Jesus was of red complexion but said, "While I was asleep circumambulating the Ka`ba (in my dream), suddenly I saw a man of brown complexion and lank hair walking between two men, and water was dropping from his head. I asked, 'Who is this?' The people said, 'He is the son of Mary.' Then I looked behind and I saw a red-complexioned, fat, curly-haired man, blind in the right eye which looked like a bulging out grape. I asked, 'Who is this?' They replied, 'He is Ad-Dajjal.' The one who resembled to him among the people, was Ibn Qatar." (Az-Zuhri said, "He (i.e. Ibn Qatan) was a man from the tribe Khuza`a who died in the pre-lslamic period.")](https://sunnah.com/bukhari:3441) -- Sahih al-Bukhari 3441
 
 ***
 
 #### [Dajjal is Out in 2027 | Sahil Adeem](https://www.youtube.com/watch?v=IcB_oa4jpcA)
+* Dajjal will make dead alive
+* Sight and breatl of Issa ibn-e-Marym will cause dajjal forces to die
+* Issa AS vehicle is  Donkey
+* Prophet Muhammad AS vehicle is Camal
+* __Surah At-Talaq 65/12__: [ٱللَّهُ ٱلَّذِى خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ يَتَنَزَّلُ ٱلْأَمْرُ بَيْنَهُنَّ لِتَعْلَمُوٓا۟ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ وَأَنَّ ٱللَّهَ قَدْ أَحَاطَ بِكُلِّ شَىْءٍ عِلْمًۢا](https://www.youtube.com/watch?v=IcB_oa4jpcA)
+* __Surah Al-Maarij 70/3-4__: [مِّنَ ٱللَّهِ ذِى ٱلْمَعَارِجِ...تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/3-4)
 
 ***
 

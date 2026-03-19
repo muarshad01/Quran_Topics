@@ -320,6 +320,10 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+#### [RUB _Dajjal- Arab Countries Petro Dollar - Part 1 | Abdul Salam Arif](https://www.youtube.com/watch?v=6u6rfOUisTo)
+
+***
+
 #### [Dajjal,s Jasasa and Reality of CIA & MOSAD | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)
 * Daaba - Creatur
 * Jasasa

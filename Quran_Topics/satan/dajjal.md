@@ -268,16 +268,41 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 * __Surah Hajar 15/26-44__: [](https://quran.com/15/26-44) -- Dialogue: Why have you refused?
 * __Surah Hajar 15/36__: [قَالَ رَبِّ فَأَنظِرْنِىٓ إِلَىٰ يَوْمِ يُبْعَثُونَ](https://quran.com/15/36)
 * __Surah Hajar 15/37__: [قَالَ فَإِنَّكَ مِنَ ٱلْمُنظَرِينَ](https://quran.com/15/37)
-* __Surah Saad__: []()
+* __Surah Saad 38__: []()
 1. I'll attack them from ALL 4 directions
-2. I'll sit in their path and kidnap ("aghwa" (اغوا)) them
+2. I'll sit in their path
+3. I'll kidnap ("aghwa" (اغوا)) them
 * __Surah Al-Araf 7/16-17 (ثُمَّ لَـَٔاتِيَنَّهُم مِّنۢ بَيْنِ أَيْدِيهِمْ وَمِنْ خَلْفِهِمْ وَعَنْ أَيْمَـٰنِهِمْ وَعَن شَمَآئِلِهِمْ)__: [قَالَ فَبِمَآ أَغْوَيْتَنِى... لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ...ثُمَّ لَـَٔاتِيَنَّهُم مِّنۢ بَيْنِ أَيْدِيهِمْ وَمِنْ خَلْفِهِمْ وَعَنْ أَيْمَـٰنِهِمْ وَعَن شَمَآئِلِهِمْ ۖ... وَلَا تَجِدُ أَكْثَرَهُمْ شَـٰكِرِينَ](https://quran.com/7/16-17)
 * __Surah Al-Araf 7/27 (إِنَّهُۥ يَرَىٰكُمْ هُوَ وَقَبِيلُهُۥ مِنْ حَيْثُ لَا تَرَوْنَهُمْ ۗ)__: [يَـٰبَنِىٓ ءَادَمَ لَا يَفْتِنَنَّكُمُ ٱلشَّيْطَـٰنُ كَمَآ أَخْرَجَ أَبَوَيْكُم مِّنَ ٱلْجَنَّةِ يَنزِعُ عَنْهُمَا لِبَاسَهُمَا لِيُرِيَهُمَا سَوْءَٰتِهِمَآ ۗ ...إِنَّهُۥ يَرَىٰكُمْ هُوَ وَقَبِيلُهُۥ مِنْ حَيْثُ لَا تَرَوْنَهُمْ ۗ... إِنَّا جَعَلْنَا ٱلشَّيَـٰطِينَ أَوْلِيَآءَ لِلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/7/27)
 3. I'll order them (followers of Satan) to change your creation
 * __Surah An-Nisa 4/118-119 (Illumanati: وَلَـَٔامُرَنَّهُمْ فَلَيُغَيِّرُنَّ خَلْقَ ٱللَّهِ)__: [لَّعَنَهُ ٱللَّهُ ۘ... وَقَالَ لَأَتَّخِذَنَّ مِنْ عِبَادِكَ نَصِيبًۭا مَّفْرُوضًۭا...وَلَأُضِلَّنَّهُمْ وَلَأُمَنِّيَنَّهُمْ وَلَـَٔامُرَنَّهُمْ فَلَيُبَتِّكُنَّ ءَاذَانَ ٱلْأَنْعَـٰمِ... وَلَـَٔامُرَنَّهُمْ فَلَيُغَيِّرُنَّ خَلْقَ ٱللَّهِ ۚ... وَمَن يَتَّخِذِ ٱلشَّيْطَـٰنَ وَلِيًّۭا مِّن دُونِ ٱللَّهِ فَقَدْ خَسِرَ خُسْرَانًۭا مُّبِينًۭا](https://quran.com/4/118-119)
   * Verily, I will mislead them, and surely, I will arouse in them false desires; and certainly, I will order them
-* Hadith - No Nabi after Nuh AS who has not warned about Dajjal. 
-5. Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
+* No Nabi after Nuh AS who has not warned about Dajjal. -- Hadith 
+5. Adam - Idris (7th generations)] - Nuh (4th Ggeneration): 11 - 12 generations
+* Woman gestation period - 9 months
+* Jinn gestation period - 15 months (Gives birth to 6-7 children)
+* Elephant gestation period - 2 years
+
+* Kidnapped Adam's son; Got him do Zina; ...
+* Bible: The Book of Enoch (Idris AS) - Ethopia (King Nagashi); most authentics Bible version!
+* King Nagashi of Ethopia - Prophet PBUH offered his Ghaibana Namaz-e-Jinaza.
+#### 4-of 12 chiefs of Jannah ar Habshi (Black)
+1. Hakeem Luqman
+2. Syedana Nagashi
+3. Syedana Bilal Habshi
+4. xxx
+
+#### Nephilim
+* The __Book of Enoch and "Nephilim"__ are central to ancient Enochian literature.
+* The Nephilim are described as hybrid, giant offspring born from fallen angels (Watchers) and human women, bringing chaos to earth.
+1. The Book of the Watchers
+2. The Book of Parables
+3. The Book of Heavenly Luminaries
+4. The Book of Dream Visions
+5. The Epistle of Enoch
+
+* 20:00
+
 * `Order of Illumanati`
    * `May 01, 1776` [This is not yum-e-mazdoor]
 * `Free Mason`

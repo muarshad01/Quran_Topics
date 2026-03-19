@@ -1,4 +1,8 @@
-#### Fitna al-Masih ad-Dajjal
+#### Fitna al-Masih ad-Dajjal (Arabic: الْمَسِيحُ الدَّجَّالُ)
+* False Messiah
+* Lying Deceiver
+
+***
 
 #### Hadith
 * [(9) Chapter: Ad-Dajjal will not be able to enter Al-Madina](https://sunnah.com/bukhari:1881)

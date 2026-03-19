@@ -1,6 +1,7 @@
 #### Fitna al-Masih ad-Dajjal (Arabic: الْمَسِيحُ الدَّجَّالُ)
 * False Messiah
 * Lying Deceiver
+* __Duaa:  (اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ  شَرِّ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ)__
 
 ***
 
@@ -371,8 +372,12 @@ The Prophet (ﷺ) then recited: "Verily, with Allah (Alone) is the knowledge of 
 * __Temple Mount: This is the elevated plateau where the First and Second Temples stood, currently housing the Dome-of-the-Rock and Al-Aqsa Mosque.__
 
 * [1917 Balfour Declaration](https://i0.wp.com/jcfa.org/wp-content/uploads/2017/02/1743866_original.jpg?w=768&ssl=1)
+* __Surah An-Nisa 4/157__: [وَقَوْلِهِمْ إِنَّا قَتَلْنَا ٱلْمَسِيحَ عِيسَى ٱبْنَ مَرْيَمَ رَسُولَ ٱللَّهِ ...وَمَا قَتَلُوهُ وَمَا صَلَبُوهُ وَلَـٰكِن شُبِّهَ لَهُمْ ۚ... ](https://quran.com/4/157)
 
-
+#### Islam Financial Management System
+1. Dinar and Silver
+__Surah Ali-Imran 3/75 (بِدِينَارٍۢ)__: [۞ وَمِنْ أَهْلِ ٱلْكِتَـٰبِ مَنْ إِن تَأْمَنْهُ بِقِنطَارٍۢ يُؤَدِّهِۦٓ إِلَيْكَ وَمِنْهُم مَّنْ إِن تَأْمَنْهُ بِدِينَارٍۢ لَّا يُؤَدِّهِۦٓ إِلَيْكَ إِلَّا مَا دُمْتَ عَلَيْهِ قَآئِمًۭا ۗ ذَٰلِكَ بِأَنَّهُمْ قَالُوا۟ لَيْسَ عَلَيْنَا فِى ٱلْأُمِّيِّـۧنَ سَبِيلٌۭ وَيَقُولُونَ عَلَى ٱللَّهِ ٱلْكَذِبَ وَهُمْ يَعْلَمُونَ](https://quran.com/3/75)
+* __Surah Al-Kahf (Silver Coin: بِوَرِقِكُمْ)__: [وَكَذَٰلِكَ بَعَثْنَـٰهُمْ لِيَتَسَآءَلُوا۟ بَيْنَهُمْ ۚ قَالَ قَآئِلٌۭ مِّنْهُمْ كَمْ لَبِثْتُمْ ۖ قَالُوا۟ لَبِثْنَا يَوْمًا أَوْ بَعْضَ يَوْمٍۢ ۚ قَالُوا۟ رَبُّكُمْ أَعْلَمُ بِمَا لَبِثْتُمْ فَٱبْعَثُوٓا۟ أَحَدَكُم بِوَرِقِكُمْ هَـٰذِهِۦٓ إِلَى ٱلْمَدِينَةِ فَلْيَنظُرْ أَيُّهَآ أَزْكَىٰ طَعَامًۭا فَلْيَأْتِكُم بِرِزْقٍۢ مِّنْهُ وَلْيَتَلَطَّفْ وَلَا يُشْعِرَنَّ بِكُمْ أَحَدًا](https://quran.com/18/19)
 ***
 
 #### [Dajjal,s Jasasa and Reality of CIA & Mossad | Abdul Salam Arif](https://www.youtube.com/watch?v=Hl5iECM_Fe0)

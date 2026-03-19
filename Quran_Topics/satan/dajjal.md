@@ -38,7 +38,7 @@ They would be small in number.
 #### [How Will Dajjal Reach Every Home? | Sahil Adeem](https://www.youtube.com/watch?v=KrXdqKzzRmQ)
 * When Dajjal comes, go towards mountains.
 * __Mountains__:
-1. First Wahi (Ghar-e-Hira (Cave of Hira) )
+1. First Wahi (Ghar-e-Hira (Cave of Hira)
 2. Last Wahi (Issa AS at Toor)
 3. Ishab-e-kahf
 
@@ -57,13 +57,19 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Nabi SAW saw Dajjal with Hazrat Issa AS | Sahil Adeem‬](https://www.youtube.com/watch?v=W6AR3_Xe5Zc)
-1. The Garden of Jorden
-2. The water of Euphrates River
-3. The announcement of Prophet PBUH Mission
-* __Surah Al-Maarij 70/3-4__: [مِّنَ ٱللَّهِ ذِى ٱلْمَعَارِجِ...تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/3-4)
+1. __Q1__: Palestinian city (__Baysan__) - Are dates still giving fruit there?
+2. __Q2__: The water of Euphrates River
+3. __Q3__: The announcement of Prophet PBUH Mission
 * Has that path opened?
 * The last-time angel Jibraeel will come for a Prophet?
-* Gihong Spring and 3 Arab rivers are from 6th heaven
+* __Surah Al-Maarij 70/3-4__: [مِّنَ ٱللَّهِ ذِى ٱلْمَعَارِجِ...تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/3-4)
+* The __Gihon Spring__, located in the City of David National Park in Jerusalem, is an historic, intermittent, freshwater source that served as the primary water supply for the ancient city. It is biblically significant as the site of King Solomon’s coronation and historically protected by King Hezekiah's Tunnel, which directed water to the Pool of Siloam
+
+#### Water sources from 6th heaven
+* __Gihong Spring__ is located in the City of David National Park in Jerusalem
+1. The Neil river
+2. The Euphratees river
+3. Sea of Galilee (Behr-e-Tabria)
 * [Narrated Salim from his father: No, By Allah, the Prophet (ﷺ) did not tell that Jesus was of red complexion but said, "While I was asleep circumambulating the Ka`ba (in my dream), suddenly I saw a man of brown complexion and lank hair walking between two men, and water was dropping from his head. I asked, 'Who is this?' The people said, 'He is the son of Mary.' Then I looked behind and I saw a red-complexioned, fat, curly-haired man, blind in the right eye which looked like a bulging out grape. I asked, 'Who is this?' They replied, 'He is Ad-Dajjal.' The one who resembled to him among the people, was Ibn Qatar." (Az-Zuhri said, "He (i.e. Ibn Qatan) was a man from the tribe Khuza`a who died in the pre-lslamic period.")](https://sunnah.com/bukhari:3441) -- Sahih al-Bukhari 3441
 
 ***

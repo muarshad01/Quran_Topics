@@ -325,6 +325,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [RUB _Dajjal- Arab Countries Petro Dollar - Part 1 | Abdul Salam Arif](https://www.youtube.com/watch?v=6u6rfOUisTo)
+* [Narrated Mujahid: I was in the company of Ibn `Abbas and the people talked about Ad-Dajjal and said, "Ad-Dajjal will come with the word Kafir (non-believer) written in between his eyes." On that Ibn `Abbas said, "I have not heard this from the Prophet (ﷺ) but I heard him saying, 'As if I saw Moses just now entering the valley reciting Talbyia. '](https://sunnah.com/bukhari:1555) - Sahih al-Bukhari 1555
 
 ***
 

@@ -326,6 +326,37 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 #### [RUB _Dajjal- Arab Countries Petro Dollar - Part 1 | Abdul Salam Arif](https://www.youtube.com/watch?v=6u6rfOUisTo)
 * [Narrated Mujahid: I was in the company of Ibn `Abbas and the people talked about Ad-Dajjal and said, "Ad-Dajjal will come with the word Kafir (non-believer) written in between his eyes." On that Ibn `Abbas said, "I have not heard this from the Prophet (ﷺ) but I heard him saying, 'As if I saw Moses just now entering the valley reciting Talbyia. '](https://sunnah.com/bukhari:1555) - Sahih al-Bukhari 1555
+* Dajjal will say, "I'm Rabb"
+* Dajjal will be One eyed.
+* No one can see his Rabb in this Life.
+* Prophet SAW said, "Always, remember, your Rabb is not One eyed"
+* Prophet SAW said, "If someone says I'm Rabb and performs miricles, then, always remember/think that you can't see your Rabb Tallah before your death"
+
+#### Difference between "Ilah versus Rabb"
+* Ilah has full authority of Legistation
+* Following that law is Ibadah
+* Who follows that law is Abid
+
+#### Five Pillers of Islam
+1. Beliefs
+2. Morality
+3. Finance
+4. Sociology
+5. Politics
+
+#### Rabb
+* Rabb fulfills your finalcial needs
+* Takes care of financial needs (provides / sustains)
+
+* [Narrated Abu Huraira:
+
+One day while the Prophet (ﷺ) was sitting in the company of some people, (The angel) Gabriel came and asked, "What is faith?" Allah's Messenger (ﷺ) replied, 'Faith is to believe in Allah, His angels, (the) meeting with Him, His Apostles, and to believe in Resurrection." Then he further asked, "What is Islam?" Allah's Messenger (ﷺ) replied, "To worship Allah Alone and none else, to offer prayers perfectly to pay the compulsory charity (Zakat) and to observe fasts during the month of Ramadan." Then he further asked, "What is Ihsan (perfection)?" Allah's Messenger (ﷺ) replied, "To worship Allah as if you see Him, and if you cannot achieve this state of devotion then you must consider that He is looking at you." Then he further asked, "When will the Hour be established?" Allah's Messenger (ﷺ) replied, "The answerer has no better knowledge than the questioner. But I will inform you about its portents.
+
+1. When a slave (lady) gives birth to her master. (وَلَدَتِ الأَمَةُ رَبَّهَا)
+
+2. When the shepherds of black camels start boasting and competing with others in the construction of higher buildings. And the Hour is one of five things which nobody knows except Allah.
+
+The Prophet (ﷺ) then recited: "Verily, with Allah (Alone) is the knowledge of the Hour--." (31. 34) Then that man (Gabriel) left and the Prophet (ﷺ) asked his companions to call him back, but they could not see him. Then the Prophet (ﷺ) said, "That was Gabriel who came to teach the people their religion." Abu 'Abdullah said: He (the Prophet) considered all that as a part of faith.](https://sunnah.com/bukhari:50) -- Sahih al-Bukhari 50
 
 ***
 

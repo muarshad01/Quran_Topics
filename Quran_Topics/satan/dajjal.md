@@ -260,20 +260,31 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 ***
 
 #### [Shaitan Kay Bachy Illuminati? Supernatural Podcast With Labiba Arshad | Abdus Salam Arif](https://www.youtube.com/watch?v=k1UR-bbMGH8)
+* Why American president takes Oath on Bible?
+* Faces like animals...bodies like humans.
+* Adam: Khalifa is your Ditto Copy
 * Illumanati
 * Free Mason
-* Khalifa: Ditto Copy
-* __Surah Hajar 15/26-44__: [](https://quran.com/15/26-44)
-1. Attack from ALL 4 sides
-2. I'll kidnap them
-3. `I'll order them (followers of Satan) to change your creation`
-4. Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
+* __Surah Al-Baqarah 2/30-40__: []()
+* __Surah Al-Araf 7/16-17__: []()
+* __Surah Hajar 15/26-44__: [](https://quran.com/15/26-44) -- Dialogue: Why have you refused?
+* __Surah Hajar 15/36__: [قَالَ رَبِّ فَأَنظِرْنِىٓ إِلَىٰ يَوْمِ يُبْعَثُونَ](https://quran.com/15/36)
+* __Surah Hajar 15/37__: [قَالَ فَإِنَّكَ مِنَ ٱلْمُنظَرِينَ](https://quran.com/15/37)
+* __Surah Saad__: []()
+1. I'll attack them from ALL 4 directions
+* __Surah Al-Araf 7/16-17 (Satan attack from ALL sides)__: [قَالَ فَبِمَآ أَغْوَيْتَنِى... لَأَقْعُدَنَّ لَهُمْ صِرَٰطَكَ ٱلْمُسْتَقِيمَ...ثُمَّ لَـَٔاتِيَنَّهُم مِّنۢ بَيْنِ أَيْدِيهِمْ وَمِنْ خَلْفِهِمْ وَعَنْ أَيْمَـٰنِهِمْ وَعَن شَمَآئِلِهِمْ ۖ... وَلَا تَجِدُ أَكْثَرَهُمْ شَـٰكِرِينَ](https://quran.com/7/16-17)
+* __Surah Al-Araf 7/27__: [يَـٰبَنِىٓ ءَادَمَ لَا يَفْتِنَنَّكُمُ ٱلشَّيْطَـٰنُ كَمَآ أَخْرَجَ أَبَوَيْكُم مِّنَ ٱلْجَنَّةِ يَنزِعُ عَنْهُمَا لِبَاسَهُمَا لِيُرِيَهُمَا سَوْءَٰتِهِمَآ ۗ إِنَّهُۥ يَرَىٰكُمْ هُوَ وَقَبِيلُهُۥ مِنْ حَيْثُ لَا تَرَوْنَهُمْ ۗ إِنَّا جَعَلْنَا ٱلشَّيَـٰطِينَ أَوْلِيَآءَ لِلَّذِينَ لَا يُؤْمِنُونَ](https://quran.com/7/27)
+3. I'll kidnap them
+4. I'll order them (followers of Satan) to change your creation
+* __Surah An-Nisa 4/118-119__: [لَّعَنَهُ ٱللَّهُ ۘ... وَقَالَ لَأَتَّخِذَنَّ مِنْ عِبَادِكَ نَصِيبًۭا مَّفْرُوضًۭا...وَلَأُضِلَّنَّهُمْ وَلَأُمَنِّيَنَّهُمْ وَلَـَٔامُرَنَّهُمْ فَلَيُبَتِّكُنَّ ءَاذَانَ ٱلْأَنْعَـٰمِ وَلَـَٔامُرَنَّهُمْ فَلَيُغَيِّرُنَّ خَلْقَ ٱللَّهِ ۚ وَمَن يَتَّخِذِ ٱلشَّيْطَـٰنَ وَلِيًّۭا مِّن دُونِ ٱللَّهِ فَقَدْ خَسِرَ خُسْرَانًۭا مُّبِينًۭا](https://quran.com/4/118-119)
+5. Adam - Idris (7th generations)[The Book of Enoch - Ethopia (King Nagashi)] - Nuh (4th Ggeneration) [900 years tableeg]: 11 - 12 generations
 * `Order of Illumanati`
    * `May 01, 1776` [This is not yum-e-mazdoor]
 * `Free Mason`
    * knight Templar 
 
 ***
+
 #### [Important Secrets of Freemasons, Surprising Revelations | Abdul Salam Arif](https://www.youtube.com/watch?v=KadHx0p13Og)
 * Freemasons starts with `The Knights Templar`
 * The Dome of the Rock (Qubbat al-Sakhra)

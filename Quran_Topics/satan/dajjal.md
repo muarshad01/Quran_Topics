@@ -260,13 +260,19 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 ***
 
 #### [Important Secrets of Freemasons, Surprising Revelations | Abdul Salam Arif](https://www.youtube.com/watch?v=KadHx0p13Og)
-* The Knights Templar (Freemasonry)
+* Freemasons starts with `The Knights Templar`
 * The Dome of the Rock (Qubbat al-Sakhra)
 * Caves under Dome of the Rock, found books...
 * The conquerors were give the title of `The Knights Templar`
 * They captured bait-ul-maqdas for 88 years...
-* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ ...أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ...ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ... لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ... إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
-
+* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ ...أَسْرَىٰ بِعَبْدِهِۦ ...لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ...ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ... لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ... إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
+* King Philip IV of France ("the Fair") destroyed the Knights Templar to eliminate his massive debts to them and seize their wealth
+* Some Knights Templar flee to USA and became Illumanatic
+* Famous Freemasons
+  * Mustafa Kemal Atatürk
+  * Abdel Fattah el-Sisi is the current and sixth President of Egypt
+  * John F Kannedy
+  * Jeorgy W Bush
 ***
 
 #### [Dajjal Ka Saudia Arab Me Mahal? | Ahadees Me Ki Jany Wali Peshgoi Sach Sabit | Dr. Abdus Salam](https://www.youtube.com/watch?v=gQk-j5R51d4)

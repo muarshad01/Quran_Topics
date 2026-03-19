@@ -251,11 +251,14 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Hadith Bokhari: Will do the same as Earlier Ummats...
 * Hadith XXX: Will pass through similar Cirstances...
 
-#### Two Rise and Two Falls
-* Bani Israel: Children of those on Noah AS boat...Quran
+#### Two-Rises and Two-Falls
+* __Bani Israel__:
+  * __Surah Al-Isra 17/3__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3)
+  * __Surah Yaseen 36/41__: [وَءَايَةٌۭ لَّهُمْ أَنَّا حَمَلْنَا ذُرِّيَّتَهُمْ فِى ٱلْفُلْكِ ٱلْمَشْحُونِ](https://quran.com/36/41)
+  * __Surah As-Saffat 37/77-82__: [](https://quran.com/37/77-82)
 * __1-RISE__: Talut - David -> Solomon - __1st Temple__
-* __1-FALL__: Bakht Nasar (Nebucha-dnezzar)
-* __2-RISE__: Cyrus saved them.Send them back to Palestine - __2nd Temple__
+* __1-FALL__: Bakht Nasar (Nebucha-dnezzar) - Destroyed the First Temple in 586 BC and captured Jews
+* __2-RISE__: Cyrus saved them and send them back to Palestine - __2nd Temple__
 * Killed Zikaria AS, Yahya AS at request of a dancer.
 * __Issa AS__: Make the dead alive, Make clay mould birds, give eye-sight, etc. Crucify, etc ([](https://quran.com/4/157)).
 * __2-FALL__: 

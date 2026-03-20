@@ -415,17 +415,11 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 *** 
 
-#### 
-
-[Masjid Al-Aqsa & the End of Times | Abdul Salam Arif](https://www.youtube.com/watch?v=MwIICIR7muI)
+#### [Masjid Al-Aqsa & the End of Times | Abdul Salam Arif](https://www.youtube.com/watch?v=MwIICIR7muI)
 
 ***
 
 #### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn-e-Sayyad | Abdul Salam Arif](https://www.youtube.com/watch?v=52t9dtbYYDc)
-
-***
-
-#### [Dajjal Kab Aye Ga? | Podcast | Episode 20 (Part 2) | Abdus Salam Arif ](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
 
 ***
 
@@ -438,6 +432,10 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 ***
 
 #### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Abdul Salam Arif](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+
+***
+
+#### [Dajjal Kab Aye Ga? | Podcast | Episode 20 (Part 2) | Abdus Salam Arif ](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
 
 ***
 

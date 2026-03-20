@@ -358,18 +358,17 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 * `O' Allah SWT give Barakh to Syria land.` - Hadith
 
 #### Ibrahim AS
-* `Ibrahim AS` was born in Iraq at `Mesopotamia civilization` time; `Ur city`
-* __Surah Baqarah 258-259 (Namrod King)__: [](https://quran.com/2/258-259)
-* `Ibraham AS` was ordered to migrate to `Syria (Canaan)`
-* `Ibraham AS` send his Nephew `Lut AS` to `Sodom` city (near `Dead sea`)
-* __Surah Baqarah 2/124__: [](https://quran.com/2/124)
+* `Ibrahim AS` was born in Iraq at `Mesopotamia civilization` time; `Urr city`
+* __Surah Al-Baqarah 2/258-259 (Namrod King)__: [أَلَمْ تَرَ إِلَى ٱلَّذِى حَآجَّ إِبْرَٰهِـۧمَ فِى رَبِّهِۦٓ أَنْ ءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ إِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّىَ ٱلَّذِى يُحْىِۦ وَيُمِيتُ قَالَ أَنَا۠ أُحْىِۦ وَأُمِيتُ ۖ قَالَ إِبْرَٰهِـۧمُ فَإِنَّ ٱللَّهَ يَأْتِى بِٱلشَّمْسِ مِنَ ٱلْمَشْرِقِ فَأْتِ بِهَا مِنَ ٱلْمَغْرِبِ فَبُهِتَ ٱلَّذِى كَفَرَ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلظَّـٰلِمِينَ...](https://quran.com/2/258-259)
+* Ibraham AS was ordered to migrate to `Syria (Canaan)`
+* `Ibraham AS` send his Nephew `Lut AS` to Sodom city (near Dead sea)
+* __Surah Al-Baqarah 2/124__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ فَأَتَمَّهُنَّ ۖ... قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ... قَالَ وَمِن ذُرِّيَّتِى ۖ... قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
 * Banu Ismail, Banu Ismail, ...
-* Hazrat Ibrahim AS wife (`Sara AS`) ...
-* `(Ibrahim AS, Sara AS)`
-* `Ishaq AS -> Yaqub AS name is Israel (Grandson) [12 sons, youngest Yusuf]` settled in Canaan
-* __Surah Al-Isra 17/1__: [](https://quran.com/17/1) (`barakna hawlahu`)
-* `Musa -> Yusha bin Nun`
-* `Prophet Daud (AS) and Jalut`
+* Ibrahim AS wife Sara AS
+* Ishaq AS -> Yaqub AS name is Israel (Grandson) [12 sons, youngest Yusuf]. settled in Canaan
+* __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ أَسْرَىٰ بِعَبْدِهِۦ لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1) (`barakna hawlahu`)
+* __Yusha bin Nun (Joshua)__ was the devoted attendant, student, and eventual successor to Prophet Musa (Moses)
+* __Surah Al-Baqarah 2/251 ( وَقَتَلَ دَاوُۥدُ جَالُوتَ)__: [فَهَزَمُوهُم بِإِذْنِ ٱللَّهِ وَقَتَلَ دَاوُۥدُ جَالُوتَ وَءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ وَٱلْحِكْمَةَ وَعَلَّمَهُۥ مِمَّا يَشَآءُ ۗ وَلَوْلَا دَفْعُ ٱللَّهِ ٱلنَّاسَ بَعْضَهُم بِبَعْضٍۢ لَّفَسَدَتِ ٱلْأَرْضُ وَلَـٰكِنَّ ٱللَّهَ ذُو فَضْلٍ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/251)
 * Daud AS son Soluman AS -> `First Temple`
 
 ***

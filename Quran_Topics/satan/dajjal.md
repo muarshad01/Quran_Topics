@@ -415,7 +415,9 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 *** 
 
-#### [Masjid Al-Aqsa & the End of Times | Abdul Salam Arif](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s](https://www.youtube.com/watch?v=MwIICIR7muI)
+#### 
+
+[Masjid Al-Aqsa & the End of Times | Abdul Salam Arif](https://www.youtube.com/watch?v=MwIICIR7muI)
 
 ***
 

@@ -120,6 +120,8 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Somaria Civilization
 * Aboriginal Civilization
 
+* 50:00
+
 ***
 
 #### [Situation in Middle East | Sahil Adeem](https://www.youtube.com/watch?v=F8Ste5HwVCk)

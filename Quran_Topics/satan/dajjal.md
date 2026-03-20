@@ -399,10 +399,11 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 * __RISE__: Prophet PBUH till 1200 years
 * European used to give us Tax: Haroon Rasheed and Mamoon Rasheed Abbasi Saltanat
 * __FALL__: Halaku Khan
-* India (Akbar-e-Azam); Turkey (); Iran ()
+* India: Akbar-e-Azam (1556-1605)
+* Turkey: Suleiman the Magnificent (1520-1566)
+* Iran: The Safavid dynasty (1501–1736)
 
 ***
-
 
 #### [Jerusalem (or City of David)](https://www.generationword.com/jerusalem101/19-city-of-david.html)
 1. Gihon Spring
@@ -414,24 +415,23 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 *** 
  
-
-#### [Masjid Al-Aqsa & the End Times](https://www.youtube.com/watch?v=MwIICIR7muI&t=55s)
-
-***
-
-#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn e Sayyad | Abdul Salam Arif](https://www.youtube.com/watch?v=52t9dtbYYDc)
-
-***
-
-#### [Dajjal Kab Aye Ga? | Podcast | Episode 20 (Part 2) | Abdus Salam Arif ](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
-
-***
-
 #### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)
 
 ***
 
 #### [Why is the mention of the Antichrist disappearing | Abdul Salam Arif](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
+
+***
+
+#### [Masjid Al-Aqsa & the End of Times | Abdul Salam Arif]([https://www.youtube.com/watch?v=MwIICIR7muI&t=55s](https://www.youtube.com/watch?v=MwIICIR7muI))
+
+***
+
+#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn-e-Sayyad | Abdul Salam Arif](https://www.youtube.com/watch?v=52t9dtbYYDc)
+
+***
+
+#### [Dajjal Kab Aye Ga? | Podcast | Episode 20 (Part 2) | Abdus Salam Arif ](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
 
 ***
 

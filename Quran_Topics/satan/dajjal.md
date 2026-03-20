@@ -414,10 +414,6 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
   * Jews
 
 *** 
- 
-#### [The pyramids of Egypt are the station heads of Satan and the Antichrist? | Suno Muslim](https://www.youtube.com/watch?v=5K3q86xHnC4)
-
-***
 
 #### [Why is the mention of the Antichrist disappearing | Abdul Salam Arif](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
 

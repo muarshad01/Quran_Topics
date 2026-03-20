@@ -1,6 +1,6 @@
 * https://brilliant.org/
 
-* [Book: The Ultimate Mathematics of the Quran - Prof. Fazli](https://pdfcoffee.com/the-ultimate-mathematics-of-the-quran-pdf-free.html)
+#### [Book: The Ultimate Mathematics of the Quran - Prof. Fazli](https://pdfcoffee.com/the-ultimate-mathematics-of-the-quran-pdf-free.html)
 
 ***
 

@@ -20,6 +20,11 @@
 #### [Baal Kaun Tha? | Haqeeqat Jo Aap Nahi Jante | Dr Israr Ahmed](https://www.youtube.com/watch?v=cdvx16WimQE)
 
 ***
+
+#### [Who was Moloch? Is He More Dangerous Than Baal? Why Did People Worship Him? | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=8ef6HHMTxTE)
+
+***
+
 According to Islamic tradition (such as Ibn al-Kalbi’s Book of Idols), there were 360 idols surrounding the Ka'bah before the conquest of Makkah by Prophet Muhammad. The most prominent included: 
 
 * Hubal: Considered the chief idol of Makkah, located inside or near the Ka'bah. It was a huge, human-shaped idol imported from Syria.

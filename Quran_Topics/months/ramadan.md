@@ -159,3 +159,7 @@
 #### [Laylatul Qadar | Irfan-ul-Haq](https://www.youtube.com/watch?v=dQ5B4RDAMrM)
 
 ***
+
+#### [Roza, Taraweeh & the Dajjal: Unveiling Truths on Fasting, Prayer & End Times | Ft. Abdul Salam Arif](https://www.youtube.com/watch?v=e3PpkqNhZzk)
+
+***

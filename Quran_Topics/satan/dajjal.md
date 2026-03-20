@@ -120,11 +120,17 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Somaria Civilization
 * Aboriginal Civilization
 
-* 50:00
+* The International Jew - The World's Foremost Problem, Volume 1, 1920
+
+* 1:00:00
+* __Surah Al-Anbya 21/104__: [يَوْمَ نَطْوِى ٱلسَّمَآءَ كَطَىِّ ٱلسِّجِلِّ لِلْكُتُبِ ۚ... كَمَا بَدَأْنَآ أَوَّلَ خَلْقٍۢ نُّعِيدُهُۥ ۚ وَعْدًا عَلَيْنَآ ۚ إِنَّا كُنَّا فَـٰعِلِينَ](https://quran.com/21/104)
+* __Surah Al-Anbya 56/75__: [۞ فَلَآ أُقْسِمُ بِمَوَٰقِعِ ٱلنُّجُومِ](https://quran.com/56/75)
+* __Surah Al-Anbya 56/75__: [وَإِنَّهُۥ لَقَسَمٌۭ لَّوْ تَعْلَمُونَ عَظِيمٌ](https://quran.com/56/76)
 
 ***
 
 #### [Situation in Middle East | Sahil Adeem](https://www.youtube.com/watch?v=F8Ste5HwVCk)
+* __Surah An-Nisa 4/74__: [۞ فَلْيُقَـٰتِلْ فِى سَبِيلِ ٱللَّهِ ...ٱلَّذِينَ يَشْرُونَ ٱلْحَيَوٰةَ ٱلدُّنْيَا بِٱلْـَٔاخِرَةِ ۚ... وَمَن يُقَـٰتِلْ فِى سَبِيلِ ٱللَّهِ... فَيُقْتَلْ أَوْ يَغْلِبْ فَسَوْفَ نُؤْتِيهِ أَجْرًا عَظِيمًۭا](https://quran.com/4/74)
 
 ***
 

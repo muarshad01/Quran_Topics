@@ -122,6 +122,10 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 ***
 
+#### [Who is Dajjaal ? Dajjaal kon hai ? Person or nations ? | Prof ARA](https://www.youtube.com/watch?v=f0hT-ZgA3RA)
+
+***
+
 ## Abdul Salam Arif
 
 #### [Dajjal 3 Questions | Relation Between Dajjal Island & Pakistan? | Dr. Abdus Salam](https://www.youtube.com/watch?v=CKl7GFSJPXQ)

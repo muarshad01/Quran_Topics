@@ -261,3 +261,10 @@
 ***
 
 #### [Why Did Imam Hussain (AS) Cry After Helping a Beggar? | Emotional Story | 89 News HD](https://www.youtube.com/watch?v=6EVLYV_OUWI)
+
+***
+
+#### [Karbala | واقعہ کربلا کی حقیقت: ابن زیاد اور عمر بن سعد کون تھے؟ | Dr Israr Ahmed](https://www.youtube.com/watch?v=iJ70PjjJfIw)
+* Ali bin Hussain (Zain ul-Abadeen)
+
+***

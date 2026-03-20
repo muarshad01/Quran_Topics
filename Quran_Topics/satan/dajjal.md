@@ -302,29 +302,31 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 5. The Epistle of Enoch
 
 * 20:00
+* __Surah Hud 11/40__: [](https://quran.com/11/40)
+* __Surah Al-Mu'minun23/27__: [](https://quran.com/23/27)
 
-* `Order of Illumanati`
-   * `May 01, 1776` [This is not yum-e-mazdoor]
-* `Free Mason`
-   * knight Templar 
+* 25:00
+* __Surah Maryam 19/57__: [وَرَفَعْنَـٰهُ مَكَانًا عَلِيًّا](https://quran.com/19/57)
 
-* Illumanati
-* Free Mason
+#### Order of Illumanati
+* May 01, 1776 - This is not yum-e-mazdoor
+* Dajjal: One eye; Only physical world eye; No spiritual eye
+* __Surah An-Nisa 4/120__: [يَعِدُهُمْ وَيُمَنِّيهِمْ ۖ وَمَا يَعِدُهُمُ ٱلشَّيْطَـٰنُ إِلَّا غُرُورًا]()
 
 ***
 
 #### [Important Secrets of Freemasons, Surprising Revelations | Abdul Salam Arif](https://www.youtube.com/watch?v=KadHx0p13Og)
-* Freemasons starts with `The Knights Templar`
+* Freemasons starts with __The Knights Templar__
 * The Dome of the Rock (Qubbat al-Sakhra)
 * Caves under Dome of the Rock, found books...
 * The conquerors were give the title of `The Knights Templar`
 * They captured bait-ul-maqdas for 88 years...
 * __Surah Al-Isra 17/1__: [سُبْحَـٰنَ ٱلَّذِىٓ ...أَسْرَىٰ بِعَبْدِهِۦ ...لَيْلًۭا مِّنَ ٱلْمَسْجِدِ ٱلْحَرَامِ إِلَى ٱلْمَسْجِدِ ٱلْأَقْصَا ...ٱلَّذِى بَـٰرَكْنَا حَوْلَهُۥ... لِنُرِيَهُۥ مِنْ ءَايَـٰتِنَآ ۚ... إِنَّهُۥ هُوَ ٱلسَّمِيعُ ٱلْبَصِيرُ](https://quran.com/17/1)
 * King Philip IV of France ("the Fair") destroyed the Knights Templar to eliminate his massive debts to them and seize their wealth
-* Some Knights Templar flee to USA and became Illumanatic
+* Some Knights Templar flee to USA and became __Illumanati__
 * Famous Freemasons
-  * Mustafa Kemal Atatürk
-  * Abdel Fattah el-Sisi is the current and sixth President of Egypt
+  * Mustafa Kemal Ataturk
+  * Abdel Fattah el-Sisi
   * John F Kannedy
   * Jeorgy W Bush
 

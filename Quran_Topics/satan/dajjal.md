@@ -93,6 +93,18 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 #### [Greatest Power of the Jews | Dajjal-Driven Objectives Behind Iran–Israel War | Sahil Adeem](https://www.youtube.com/watch?v=2vUYPQj01F4)
+* [Book: The Ultimate Mathematics of the Quran - Prof. Fazli](https://pdfcoffee.com/the-ultimate-mathematics-of-the-quran-pdf-free.html)
+* [sourcecode.academy/](https://sourcecode.academy/)
+* Difference between Bani-Israel last prophet and Issa AS is about ~350 years.
+* Difference Prophet Issa AS and Prophet Muhammad PBUH is is about ~671 years.
+* __Surah Al-Maida 5/68__: [قُلْ يَـٰٓأَهْلَ ٱلْكِتَـٰبِ لَسْتُمْ عَلَىٰ شَىْءٍ حَتَّىٰ تُقِيمُوا۟ ٱلتَّوْرَىٰةَ وَٱلْإِنجِيلَ وَمَآ أُنزِلَ إِلَيْكُم مِّن رَّبِّكُمْ ۗ وَلَيَزِيدَنَّ كَثِيرًۭا مِّنْهُم مَّآ أُنزِلَ إِلَيْكَ مِن رَّبِّكَ طُغْيَـٰنًۭا وَكُفْرًۭا ۖ فَلَا تَأْسَ عَلَى ٱلْقَوْمِ ٱلْكَـٰفِرِينَ](https://quran.com/5/68)
+* Old Testament (Jews)
+* New Testament (Christians)
+* Last Testament (Muslims)
+
+* 20:00
+* __Surah Fatir 35/24 (وَإِن مِّنْ أُمَّةٍ إِلَّا خَلَا فِيهَا نَذِيرٌۭ)__: [إِنَّآ أَرْسَلْنَـٰكَ بِٱلْحَقِّ بَشِيرًۭا وَنَذِيرًۭا ۚ ...وَإِن مِّنْ أُمَّةٍ إِلَّا خَلَا فِيهَا نَذِيرٌۭ](https://quran.com/35/24)
+* 30:00
 
 ***
 

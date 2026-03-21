@@ -120,7 +120,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Somaria Civilization
 * Aboriginal Civilization
 
-* The International Jew - The World's Foremost Problem, Volume 1, 1920
+* Book: The International Jew - The World's Foremost Problem - Volume 1, 1920
 
 * 1:00:00
 * __Surah Al-Anbya 21/104__: [يَوْمَ نَطْوِى ٱلسَّمَآءَ كَطَىِّ ٱلسِّجِلِّ لِلْكُتُبِ ۚ... كَمَا بَدَأْنَآ أَوَّلَ خَلْقٍۢ نُّعِيدُهُۥ ۚ وَعْدًا عَلَيْنَآ ۚ إِنَّا كُنَّا فَـٰعِلِينَ](https://quran.com/21/104)
@@ -131,6 +131,31 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 
 #### [Situation in Middle East | Sahil Adeem](https://www.youtube.com/watch?v=F8Ste5HwVCk)
 * __Surah An-Nisa 4/74__: [۞ فَلْيُقَـٰتِلْ فِى سَبِيلِ ٱللَّهِ ...ٱلَّذِينَ يَشْرُونَ ٱلْحَيَوٰةَ ٱلدُّنْيَا بِٱلْـَٔاخِرَةِ ۚ... وَمَن يُقَـٰتِلْ فِى سَبِيلِ ٱللَّهِ... فَيُقْتَلْ أَوْ يَغْلِبْ فَسَوْفَ نُؤْتِيهِ أَجْرًا عَظِيمًۭا](https://quran.com/4/74)
+
+#### They're different
+* Bani Israel
+* Yahud (Jews)
+* Ale-e-Yaqoob 
+
+* Book: The International Jew - The World's Foremost Problem - Volume 1, 1920
+
+* Eastern river will be shutdown---no ships will float. -- Hadith
+
+#### Walter Rothschild and the Balfour Declaration
+* __Lionel Walter Rothschild__ was the 'Lord Rothschild' to whom Balfour addressed his 1917 proposal regarding the establishment of a Jewish state.
+
+* 1901, ILAD Fund
+
+#### [The Gihon Spring](https://www.rothschildarchive.org/family/family_interests/walter_rothschild_and_the_balfour_declaration#:~:text=Lionel%20Walter%20Rothschild%20was%20the,establishment%20of%20a%20Jewish%20state.)
+* North of City of David Jerusalem
+* Prophet Solomon AS hit his Asaa (stick) at the center of Temple and water sprouted out
+* Water comes directly from Jannah - Hadith
+* Currently not in __Temple Mount__
+* It is beneath __Temple Mount__, inside the __City of David Jerusalem__
+* __Temple Mount__ has (Bait ul Muqaddas(also known as Al-Aqsa), Dome-of-Rock)
+
+* 20:00
+
 
 ***
 

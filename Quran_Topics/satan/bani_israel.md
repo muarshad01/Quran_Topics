@@ -206,26 +206,7 @@
 
 ***
 
-#### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
-* 1. __When Moutain was lifted__ and then Allah brought it down, but they refused again. 
-  * __Surah Al-Baqarah 2/64 (ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ)__: [ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ ۖ فَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَكُنتُم مِّنَ ٱلْخَـٰسِرِينَ](https://quran.com/2/64)
-  * __Surah Al-Baqarah 2/83 (ثُمَّ تَوَلَّيْتُمْ إِلَّا قَلِيلًۭا مِّنكُمْ وَأَنتُم مُّعْرِضُونَ)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَ بَنِىٓ إِسْرَٰٓءِيلَ لَا تَعْبُدُونَ إِلَّا ٱللَّهَ وَبِٱلْوَٰلِدَيْنِ إِحْسَانًۭا وَذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَقُولُوا۟ لِلنَّاسِ حُسْنًۭا وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ ثُمَّ تَوَلَّيْتُمْ إِلَّا قَلِيلًۭا مِّنكُمْ وَأَنتُم مُّعْرِضُونَ](https://quran.com/2/83)
-* __Surah Al-Araf 7/163 (Sabbath)__: [وَسْـَٔلْهُمْ عَنِ ٱلْقَرْيَةِ ٱلَّتِى كَانَتْ حَاضِرَةَ ٱلْبَحْرِ إِذْ يَعْدُونَ فِى ٱلسَّبْتِ إِذْ تَأْتِيهِمْ حِيتَانُهُمْ يَوْمَ سَبْتِهِمْ شُرَّعًۭا وَيَوْمَ لَا يَسْبِتُونَ ۙ لَا تَأْتِيهِمْ ۚ كَذَٰلِكَ نَبْلُوهُم بِمَا كَانُوا۟ يَفْسُقُونَ](https://quran.com/7/163)
-* 2. __Sabath__ (Catching Fish by Net)
-* 3. __Murder__ at the time of Prophet Musa (Cow story)
-
-***
-
-#### [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)
-* Made Monkeys & Swine (Sabaath)
-* Killed Prophets morning / evening
-* 6 tribes fought against 6 other tribes
-* Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
-* __Surah Al-Qasas 28/15 (Musa AS Killed a man)__: [وَدَخَلَ ٱلْمَدِينَةَ عَلَىٰ حِينِ غَفْلَةٍۢ مِّنْ أَهْلِهَا فَوَجَدَ فِيهَا رَجُلَيْنِ يَقْتَتِلَانِ هَـٰذَا مِن شِيعَتِهِۦ وَهَـٰذَا مِنْ عَدُوِّهِۦ ۖ فَٱسْتَغَـٰثَهُ ٱلَّذِى مِن شِيعَتِهِۦ عَلَى ٱلَّذِى مِنْ عَدُوِّهِۦ فَوَكَزَهُۥ مُوسَىٰ فَقَضَىٰ عَلَيْهِ ۖ قَالَ هَـٰذَا مِنْ عَمَلِ ٱلشَّيْطَـٰنِ ۖ إِنَّهُۥ عَدُوٌّۭ مُّضِلٌّۭ مُّبِينٌۭ](https://quran.com/28/15)
-* You can't change a word in Quran
-* We have Imam of ALL Nabi (Khatam ul Nabeen wa Imam al Mursaleen)
-
-***
+## Mufti Muneer Ahmed Akhoon
 
 #### [You fulfill you promise, I'll fulfill mine promise | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/3gFCKjh8FCE)
 * __Surah Al-Baqarah 2/40 (وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
@@ -234,11 +215,26 @@
 
 ***
 
-#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them.](https://www.youtube.com/watch?v=rxeQd9gH77o)
+#### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
+1. __When Moutain was lifted__ and then Allah brought it down, but they refused again. 
+* __Surah Al-Baqarah 2/64 (ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ)__: [ثُمَّ تَوَلَّيْتُم مِّنۢ بَعْدِ ذَٰلِكَ ۖ فَلَوْلَا فَضْلُ ٱللَّهِ عَلَيْكُمْ وَرَحْمَتُهُۥ لَكُنتُم مِّنَ ٱلْخَـٰسِرِينَ](https://quran.com/2/64)
+* __Surah Al-Baqarah 2/83 (ثُمَّ تَوَلَّيْتُمْ إِلَّا قَلِيلًۭا مِّنكُمْ وَأَنتُم مُّعْرِضُونَ)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَ بَنِىٓ إِسْرَٰٓءِيلَ لَا تَعْبُدُونَ إِلَّا ٱللَّهَ وَبِٱلْوَٰلِدَيْنِ إِحْسَانًۭا وَذِى ٱلْقُرْبَىٰ وَٱلْيَتَـٰمَىٰ وَٱلْمَسَـٰكِينِ وَقُولُوا۟ لِلنَّاسِ حُسْنًۭا وَأَقِيمُوا۟ ٱلصَّلَوٰةَ وَءَاتُوا۟ ٱلزَّكَوٰةَ ثُمَّ تَوَلَّيْتُمْ إِلَّا قَلِيلًۭا مِّنكُمْ وَأَنتُم مُّعْرِضُونَ](https://quran.com/2/83)
+* __Surah Al-Araf 7/163 (Sabbath)__: [وَسْـَٔلْهُمْ عَنِ ٱلْقَرْيَةِ ٱلَّتِى كَانَتْ حَاضِرَةَ ٱلْبَحْرِ إِذْ يَعْدُونَ فِى ٱلسَّبْتِ إِذْ تَأْتِيهِمْ حِيتَانُهُمْ يَوْمَ سَبْتِهِمْ شُرَّعًۭا وَيَوْمَ لَا يَسْبِتُونَ ۙ لَا تَأْتِيهِمْ ۚ كَذَٰلِكَ نَبْلُوهُم بِمَا كَانُوا۟ يَفْسُقُونَ](https://quran.com/7/163)
+2. __Sabath__ (Catching Fish by Net)
+3. __Murder__ at the time of Prophet Musa (Cow story)
+
+***
+
+#### [70 person of Ummah of Hazrat Moosa, who wanted to see ALLAH and ALLAH, killed them | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=rxeQd9gH77o)
 * __Surah Al-Baqarah 2/55__: [وَإِذْ قُلْتُمْ يَـٰمُوسَىٰ لَن نُّؤْمِنَ لَكَ حَتَّىٰ نَرَى ٱللَّهَ جَهْرَةًۭ فَأَخَذَتْكُمُ ٱلصَّـٰعِقَةُ وَأَنتُمْ تَنظُرُونَ](https://quranwbw.com/2/55-56)
 * __Surah Al-Baqarah 2/56__: [ثُمَّ بَعَثْنَـٰكُم مِّنۢ بَعْدِ مَوْتِكُمْ لَعَلَّكُمْ تَشْكُرُونَ](https://quranwbw.com/2/55-56)
 * Who are 1,000's mentioned in another Ayat in quran ???
 * __Surah Al-Araf 7/155 (قَالَ رَبِّ لَوْ شِئْتَ أَهْلَكْتَهُم مِّن قَبْلُ وَإِيَّـٰىَ ۖ)__: [وَٱخْتَارَ مُوسَىٰ قَوْمَهُۥ سَبْعِينَ رَجُلًۭا لِّمِيقَـٰتِنَا ۖ فَلَمَّآ أَخَذَتْهُمُ ٱلرَّجْفَةُ قَالَ رَبِّ لَوْ شِئْتَ أَهْلَكْتَهُم مِّن قَبْلُ وَإِيَّـٰىَ ۖ أَتُهْلِكُنَا بِمَا فَعَلَ ٱلسُّفَهَآءُ مِنَّآ ۖ إِنْ هِىَ إِلَّا فِتْنَتُكَ تُضِلُّ بِهَا مَن تَشَآءُ وَتَهْدِى مَن تَشَآءُ ۖ أَنتَ وَلِيُّنَا فَٱغْفِرْ لَنَا وَٱرْحَمْنَا ۖ وَأَنتَ خَيْرُ ٱلْغَـٰفِرِينَ](https://quran.com/7/155)
+
+***
+
+#### [Ek Bachray Ko Lekar 70-Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
+* __Surah Al-Baqarah 2/63 (وَإِذْ أَخَذْنَا مِيثَـٰقَكُمْ وَرَفَعْنَا فَوْقَكُمُ ٱلطُّورَ)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَكُمْ وَرَفَعْنَا فَوْقَكُمُ ٱلطُّورَ خُذُوا۟ مَآ ءَاتَيْنَـٰكُم بِقُوَّةٍۢ وَٱذْكُرُوا۟ مَا فِيهِ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/63)
 
 ***
 
@@ -262,13 +258,8 @@
 
 ***
 
-#### [Ek Bachray Ko Lekar 70-Hazar Yahoodi Qatal Hoy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=L6aZCuBDdeA)
-* __Surah Al-Baqarah2/63 (وَإِذْ أَخَذْنَا مِيثَـٰقَكُمْ وَرَفَعْنَا فَوْقَكُمُ ٱلطُّورَ)__: [وَإِذْ أَخَذْنَا مِيثَـٰقَكُمْ وَرَفَعْنَا فَوْقَكُمُ ٱلطُّورَ خُذُوا۟ مَآ ءَاتَيْنَـٰكُم بِقُوَّةٍۢ وَٱذْكُرُوا۟ مَا فِيهِ لَعَلَّكُمْ تَتَّقُونَ](https://quran.com/2/63)
-
-***
-
 #### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
-* __Surah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
+* __Surah Al-Baqarah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
 * __Surah An-Nahl 16/124 (Sabbath)__: [إِنَّمَا جُعِلَ ٱلسَّبْتُ عَلَى ٱلَّذِينَ ٱخْتَلَفُوا۟ فِيهِ ۚ وَإِنَّ رَبَّكَ لَيَحْكُمُ بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/16/124)
 * Saturday is for Ibadah and no Business
 * Old people became Pigs
@@ -310,8 +301,6 @@
 
 ***
 
-## Surah Taha
-
 #### [Samri Jadugar Or Musa (A.S.) | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=1B90A6IlS-I)
 * __Surah Taha 20/85-98__: [20/85-98](https://quran.com/20/85-98)
 
@@ -328,11 +317,6 @@
 
 ***
 
-#### [Samiri, Jibreel, and modern Technology | Sahil Adeem](https://www.youtube.com/watch?v=7BEahcfFTyo)
-* TODO
-  
-***
-
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
 * __Surah Al-Baqarah 2/49__: [وَإِذْ نَجَّيْنَـٰكُم مِّنْ ءَالِ فِرْعَوْنَ يَسُومُونَكُمْ سُوٓءَ ٱلْعَذَابِ يُذَبِّحُونَ أَبْنَآءَكُمْ وَيَسْتَحْيُونَ نِسَآءَكُمْ ۚ وَفِى ذَٰلِكُم بَلَآءٌۭ مِّن رَّبِّكُمْ عَظِيمٌۭ](https://quran.com/2/49)
 * __Surah Al-Baqarah 2/50__: [وَإِذْ فَرَقْنَا بِكُمُ ٱلْبَحْرَ فَأَنجَيْنَـٰكُمْ وَأَغْرَقْنَآ ءَالَ فِرْعَوْنَ وَأَنتُمْ تَنظُرُونَ](https://quran.com/2/50)
@@ -342,3 +326,23 @@
 ***
 
 * __Surah Al-Maidah 5/51__: [۞ يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ لَا تَتَّخِذُوا۟ ٱلْيَهُودَ وَٱلنَّصَـٰرَىٰٓ أَوْلِيَآءَ... ۘ بَعْضُهُمْ أَوْلِيَآءُ بَعْضٍۢ ۚ... وَمَن يَتَوَلَّهُم مِّنكُمْ فَإِنَّهُۥ مِنْهُمْ ۗ ...إِنَّ ٱللَّهَ لَا يَهْدِى ٱلْقَوْمَ ٱلظَّـٰلِمِينَ](https://quran.com/5/51)
+
+***
+
+## Sahil Adeem 
+
+#### [Bani Israel Allah's Favourite or Most Punished | Sahil Adeem](https://www.youtube.com/shorts/n6zS1T8q-x0)
+* Made Monkeys & Swine (Sabaath)
+* Killed Prophets morning / evening
+* 6 tribes fought against 6 other tribes
+* Prophet Musa AS killed 60,000 men in 48 hrs once he came down from Tur
+* __Surah Al-Qasas 28/15 (Musa AS Killed a man)__: [وَدَخَلَ ٱلْمَدِينَةَ عَلَىٰ حِينِ غَفْلَةٍۢ مِّنْ أَهْلِهَا فَوَجَدَ فِيهَا رَجُلَيْنِ يَقْتَتِلَانِ هَـٰذَا مِن شِيعَتِهِۦ وَهَـٰذَا مِنْ عَدُوِّهِۦ ۖ فَٱسْتَغَـٰثَهُ ٱلَّذِى مِن شِيعَتِهِۦ عَلَى ٱلَّذِى مِنْ عَدُوِّهِۦ فَوَكَزَهُۥ مُوسَىٰ فَقَضَىٰ عَلَيْهِ ۖ قَالَ هَـٰذَا مِنْ عَمَلِ ٱلشَّيْطَـٰنِ ۖ إِنَّهُۥ عَدُوٌّۭ مُّضِلٌّۭ مُّبِينٌۭ](https://quran.com/28/15)
+* You can't change a word in Quran
+* We have Imam of ALL Nabi (Khatam ul Nabeen wa Imam al Mursaleen)
+
+***
+
+#### [Samiri, Jibreel, and modern Technology | Sahil Adeem](https://www.youtube.com/watch?v=7BEahcfFTyo)
+* TODO
+  
+***

@@ -8,6 +8,9 @@
 
 * These books, which form the foundation of Jewish scripture, outline the creation of the world, the stories of the patriarchs, the Exodus from Egypt, and the receiving of the law. 
 
+#### The Talmud (Tafsir)
+* The is the central, comprehensive collection of Jewish law, ethics, customs, and traditions, serving as the foundation of religious life. 
+
 ***
 
 * https://www.usccb.org/offices/new-american-bible/books-bible

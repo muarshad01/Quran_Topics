@@ -22,3 +22,15 @@
 ***
 
 * __Surah Fussilat 41/53__: [سَنُرِيهِمْ ءَايَـٰتِنَا... فِى ٱلْـَٔافَاقِ وَفِىٓ أَنفُسِهِمْ.. حَتَّىٰ يَتَبَيَّنَ لَهُمْ... أَنَّهُ ٱلْحَقُّ ۗ ....أَوَلَمْ يَكْفِ بِرَبِّكَ أَنَّهُۥ عَلَىٰ كُلِّ شَىْءٍۢ شَهِيدٌ](https://quran.com/41/53)
+
+***
+
+
+#### [Nutfa, Alaqa, Muzga](https://www.youtube.com/shorts/-tP3TZjYMzw)
+* 4 months - 120 days
+* __Surah Al-Hajj 22/5__: [](https://quranwbw.com/22/5)
+* __Surah Al-Muminum 23/12__: [](https://quran.com/23/12-14)
+* __Surah Ghafir 40/67__: [](https://quran.com/40/67)
+* __Surah Al-Qaiyaman 75/37-39__: [](https://quranwbw.com/75/37-39)
+
+***

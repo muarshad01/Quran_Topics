@@ -490,10 +490,6 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
-#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn-e-Sayyad | Abdul Salam Arif](https://www.youtube.com/watch?v=52t9dtbYYDc)
-
-***
-
 #### [Abraham Accords Connection with Dajjal | UAE Role Explained | Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
 
 ***
@@ -532,5 +528,11 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 #### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
 * Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
 * Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat
+
+***
+
+## Prof. Abdullah Bhatti
+
+#### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn-e-Sayyad | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
 
 ***

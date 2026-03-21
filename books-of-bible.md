@@ -1,6 +1,12 @@
 #### What are the 5 books of the Torah?
-AI Overview
-The Torah, or Five Books of Moses (Chumash), consists of Genesis, Exodus, Leviticus, Numbers, and Deuteronomy. These books, which form the foundation of Jewish scripture, outline the creation of the world, the stories of the patriarchs, the Exodus from Egypt, and the receiving of the law. 
+* The Torah, or Five Books of Moses (Chumash), consists of 
+1. Genesis
+2. Exodus
+3. Leviticus
+4. Numbers
+5. Deuteronomy.
+
+* These books, which form the foundation of Jewish scripture, outline the creation of the world, the stories of the patriarchs, the Exodus from Egypt, and the receiving of the law. 
 
 ***
 

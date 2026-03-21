@@ -1,5 +1,9 @@
 ## Abraham AS
 
+* Time difference between Noah and Ibrahim AS ~ 3,000 years
+
+***
+
 ### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
 
 ***

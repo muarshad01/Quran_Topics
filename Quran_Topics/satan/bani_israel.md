@@ -114,7 +114,7 @@
 
 ***
 
-#### Talut (Saul) and Jalut (Goliath)
+#### Talut (Saul) and Jalut (Goliath) - (247-252)
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/surah_al_baqarah/cow/cow-ayats-247-252.png" width="500" height="300" />
 

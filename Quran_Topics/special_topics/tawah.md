@@ -48,3 +48,7 @@
 #### ["Allah's Mercy:Greater Than Your ...](https://www.youtube.com/shorts/OWxt4YsL1Do)
 
 ***
+
+#### [Tobah Ki Azmat Aur Taseer | Dr. Israr Ahmed](https://www.tanzeem.org/books/16-tauba-ki-azmat-aur-taseer/)
+
+***

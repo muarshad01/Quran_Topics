@@ -13,8 +13,6 @@
 
 ***
 
-* https://www.usccb.org/offices/new-american-bible/books-bible
-
 #### Bible
 * The Bible is a collection of 66 (Protestant) to 73 (Catholic) sacred books divided into:
   * The Old Testament (before Jesus) and
@@ -24,6 +22,6 @@
 
 ***
 
-* Book of Isaiah
+#### Book of Isaiah
 
 ***

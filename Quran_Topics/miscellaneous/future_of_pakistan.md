@@ -1,4 +1,8 @@
 #### [What Will Be Pakistan’s Future? Major Prediction for 6202 | SSA Shah](https://www.youtube.com/watch?v=1QIxBDQp8dw)
+* In the next war, India will be more disgraced.
+* Pakistan will be winner. India will be divided into many parts.
+* Once more year...
+* Revolution versus Evolution
 
 ***
 

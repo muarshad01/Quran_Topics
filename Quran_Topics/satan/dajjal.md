@@ -490,10 +490,6 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
-#### [Abraham Accords Connection with Dajjal | UAE Role Explained | Abdul Salam Arif](https://www.youtube.com/watch?v=DiSojkj1Nfk)
-
-***
-
 #### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Abdul Salam Arif](https://www.youtube.com/watch?v=79JY4r7isvQ)
 
 ***

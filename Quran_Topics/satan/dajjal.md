@@ -483,6 +483,10 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 *** 
 
 #### [Masjid Al-Aqsa & the End of Times | Abdul Salam Arif](https://www.youtube.com/watch?v=MwIICIR7muI)
+* [Narrated Mu'adh ibn Jabal: The Prophet (ﷺ) said: The flourishing state of Jerusalem will be when Yathrib is in ruins, the ruined state of Yathrib will be when the great war comes, the outbreak of the great war will be at the conquest of Constantinople and the conquest of Constantinople when the Dajjal (Antichrist) comes forth. He (the Prophet) struck his thigh or his shoulder with his hand and said: This is as true as you are here or as you are sitting (meaning Mu'adh ibn Jabal).](https://sunnah.com/abudawud:4294) -- Sunan Abi Dawud 4294
+* Umran - Construction; Prosperity; Haikal-e-Sulaimani (Solomon's Temple)
+
+* [Narrated Zainab bint Jahsh: The Prophet (ﷺ) got up from his sleep with a flushed red face and said, "None has the right to be worshipped but Allah. Woe to the Arabs, from the Great evil that is nearly approaching them. Today a gap has been made in the wall of Gog and Magog like this." (Sufyan illustrated by this forming the number 90 or 100 with his fingers.) It was asked, "Shall we be destroyed though there are righteous people among us?" The Prophet (ﷺ) said, "Yes, if evil increased."](https://sunnah.com/bukhari:7059) -- Sahih al-Bukhari 7059
 
 ***
 

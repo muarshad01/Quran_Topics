@@ -520,12 +520,13 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 ## Dr Israr
 
 #### [Dajjal Ki Paidaish Ka Hairatangez Raaz | Dr Israr Ahmed](https://www.youtube.com/watch?v=CLAq8TxUWWg)
+* 4 hrs long...TODO
 
 ***
 
 ## Orya Maqbool Jan
 
-#### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Orya Maqbool Jan](https://www.youtube.com/watch?v=bjq5M1l002M)
+#### [Dajjal’s Arrival: Iran Israel Conflict & End-of-Time | Orya Maqbool Jan](https://www.youtube.com/watch?v=bjq5M1l002M)
 
 
 ***

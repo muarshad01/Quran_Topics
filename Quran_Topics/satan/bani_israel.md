@@ -53,7 +53,7 @@
 
 ***
 
-#### Cow
+#### Story of Cow
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/surah_al_baqarah/cow/cow-ayats-67-73.png" width="500" height="300" />
 

@@ -54,6 +54,7 @@
 ***
 
 #### Story of Cow (67-73)
+* [Bani Israel Aur Gaaye-Ka-Waqia 🐄 | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/surah_al_baqarah/cow/cow-ayats-67-73.png" width="500" height="300" />
 
@@ -80,18 +81,6 @@
   * Fadd-a-ra'tum (فَٱدَّٰرَْٰٔتُمْ) - you disputed/quarrelled among yourselves" or "you blamed one another"
 
 * __Surah Al-Baqarah 2/73__: [فَقُلْنَا ٱضْرِبُوهُ بِبَعْضِهَا ۚ... كَذَٰلِكَ يُحْىِ ٱللَّهُ ٱلْمَوْتَىٰ وَيُرِيكُمْ ءَايَـٰتِهِۦ لَعَلَّكُمْ تَعْقِلُونَ](https://quran.com/2/73)
-
-
-
-
-
-#### [Bani Israel Aur Gaaye Ka Waqia 🐄 | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=zabu6UD54T4)
-
-
-
-***
-
-
 
 ***
 

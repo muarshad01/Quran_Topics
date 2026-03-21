@@ -535,6 +535,10 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
+#### [Order of Incidents Untill Dajjal Arrival | OMJ](https://www.youtube.com/watch?v=H5P5ILSxMD0)
+
+***
+
 ## Mufti Muneer Akhoon
 
 #### [Dajjal Ka Wo Gunah Jis Ne Usay Bad-Bakht Bana Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)

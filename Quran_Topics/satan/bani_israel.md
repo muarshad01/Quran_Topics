@@ -11,8 +11,8 @@
 2. Ishaq (Issac)
 3. Yaqoob (Jacob) [Israel]
 4. Yusuf (Joseph)
-* Musa (Moses) / Haroon (Aaron) to Issa (Jesue) = 1,400 years
-* [Ayat 248] Talut (Saul) -- Dawood (David) AS -- Sulayman (Soloman) - about 100 years
+* Musa (Moses) to Issa (Jesue) = 1,400 years
+* Talut (Saul) -- Dawood (David) AS -- Sulayman (Soloman) - about 100 years
 * Issa (Jesus) to Muhammad PBUH = 500 years
 
 ***

@@ -490,12 +490,27 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
-#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Abdul Salam Arif](https://www.youtube.com/watch?v=79JY4r7isvQ)
+#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Abdul Salam Arif](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+* Dabiq and Amaq are key locations in northern Syria near the Turkish border,
 
 ***
 
-#### [Construction of Third Temple & Imam Mahdi | Iran vs Israel War Indicate WW3? | Abdul Salam Arif](https://www.youtube.com/watch?v=rhZKg2OGTZw)
+#### [Dajjal Ki Isreal Mein Entry | Imam Mahdi Kab Ain Gaye? | Abdul Salam Arif](https://www.youtube.com/watch?v=79JY4r7isvQ)
+* [Hadith-e-Jibreel](https://sunnah.com/bukhari:50) -- Sahih al-Bukhari 50
+* __Hadith (1/3, 1/3, 1/3)__: [Abu Huraira reported Allah's Messenger (ﷺ) as saying: The Last Hour would not come until the Romans would land at al-A'maq or in Dabiq. An army consisting of the best (soldiers) of the people of the earth at that time will come from Medina (to counteract them). When they will arrange themselves in ranks, the Romans would say: Do not stand between us and those (Muslims) who took prisoners from amongst us. Let us fight with them; and the Muslims would say: Nay, by Allah, we would never get aside from you and from our brethren that you may fight them. They will then fight and a third (part) of the army would run away, whom Allah will never forgive. A third (part of the army) which would be constituted of excellent martyrs in Allah's eye, would be killed and the third who would never be put to trial would win and they would be conquerors of Constantinople. And as they would be busy in distributing the spoils of war (amongst themselves) after hanging their swords by the olive trees, the Satan would cry: The Dajjal has taken your place among your family. They would then come out, but it would be of no avail. And when they would come to Syria, he would come out while they would be still preparing themselves for battle drawing up the ranks. Certainly, the time of prayer shall come and then Jesus (peace be upon him) son of Mary would descend and would lead them. When the enemy of Allah would see him, it would (disappear) just as the salt dissolves itself in water and if he (Jesus) were not to confront them at all, even then it would dissolve completely, but Allah would kill them by his hand and he would show them their blood on his lance (the lance of Jesus Christ).](https://sunnah.com/muslim:2897) -- Sahih Muslim 2897
+1. 1/3 - A third (part) of the army would run away, whom Allah will never forgive.
+2. 1/3 - Will Fight and Killed (Excellent martyrs in Allah's eye)
+3. 1/3 - Will Fight and Conquer Constantinople.
 
+#### Founder: King AbdulAzin Al-Saud
+* King Saud     (1953 - 1964)
+* King Faisal   (1964 - 1975)
+* King Khalid   (1975 - 1982)
+* King Fahd     (1982 - 2005)
+* King Abdullah (2005 - 2015)
+* King Salman   (2015 --
+* MBS
+* Ahmed bin Abdulaziz Al Saud
 ***
 
 #### [Dajjal Kab Aye Ga? | Podcast | Episode 20 (Part 2) | Abdus Salam Arif ](https://www.youtube.com/watch?v=gkZ6Y1lWJYU&t=15s)
@@ -512,6 +527,9 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 #### [Dajjal’s Arrival: Iran Israel Conflict & End Of Time | Orya Maqbool Jan](https://www.youtube.com/watch?v=bjq5M1l002M)
 
+
+***
+
 #### [Is Trump Preparing the Army of Dajjal? | Orya Maqbool Jan](https://www.youtube.com/watch?v=RYL0Lyqp7c8)
 
 ***
@@ -521,6 +539,7 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 #### [Dajjal Ka Wo Gunah Jis Ne Usay Bad-Bakht Bana Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
 
 ***
+
 #### [Dajjal-Ka Wo-Gunah Jis-Ne Usay Bad-Bakht Bana-Diya | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=Y1lmmCHB9Y4)
 * Jinnnat: Shar-e-Azam (Iblis) - refused Sajdah - Randah-e-dargah
 * Insaan: Shar-e-Azam (Dajjal) - ??? - Baad-bakhat

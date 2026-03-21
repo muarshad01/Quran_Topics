@@ -132,11 +132,6 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Situation in Middle East | Sahil Adeem](https://www.youtube.com/watch?v=F8Ste5HwVCk)
 * __Surah An-Nisa 4/74__: [۞ فَلْيُقَـٰتِلْ فِى سَبِيلِ ٱللَّهِ ...ٱلَّذِينَ يَشْرُونَ ٱلْحَيَوٰةَ ٱلدُّنْيَا بِٱلْـَٔاخِرَةِ ۚ... وَمَن يُقَـٰتِلْ فِى سَبِيلِ ٱللَّهِ... فَيُقْتَلْ أَوْ يَغْلِبْ فَسَوْفَ نُؤْتِيهِ أَجْرًا عَظِيمًۭا](https://quran.com/4/74)
 
-#### They're different
-* Bani Israel
-* Yahud (Jews)
-* Ale-e-Yaqoob 
-
 * Book: The International Jew - The World's Foremost Problem - Volume 1, 1920
 
 * Eastern river will be shutdown---no ships will float. -- Hadith
@@ -160,6 +155,11 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Book of Isaiah
 
 * 40:00 
+
+#### They're different
+* Bani Israel
+* Yahud (Jews)
+* Ale-e-Yaqoob
 
 ***
 

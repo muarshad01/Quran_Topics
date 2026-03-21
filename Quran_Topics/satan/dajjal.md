@@ -147,15 +147,19 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * 1901, ILAD Fund
 
 #### [The Gihon Spring](https://www.rothschildarchive.org/family/family_interests/walter_rothschild_and_the_balfour_declaration#:~:text=Lionel%20Walter%20Rothschild%20was%20the,establishment%20of%20a%20Jewish%20state.)
-* North of City of David Jerusalem
+* __The Gihon Spring__: North of City of David Jerusalem
 * Prophet Solomon AS hit his Asaa (stick) at the center of Temple and water sprouted out
 * Water comes directly from Jannah - Hadith
 * Currently not in __Temple Mount__
 * It is beneath __Temple Mount__, inside the __City of David Jerusalem__
 * __Temple Mount__ has (Bait ul Muqaddas(also known as Al-Aqsa), Dome-of-Rock)
+* Their original temple is not in __Temple Mount__
 
 * 20:00
 
+* Book of Isaiah
+
+* 40:00 
 
 ***
 

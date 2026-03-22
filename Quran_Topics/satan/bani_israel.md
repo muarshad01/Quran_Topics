@@ -29,6 +29,8 @@
 
 * __Surah Al-Baqarah 2/47 (Remember My favours)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَنِّى فَضَّلْتُكُمْ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/47) 
 
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/surah_al_baqarah/cow/cow-ayats-49-50.png" width="500" height="300" />
+
 * __Surah Al-Baqarah 2/49 (We delivered you from the people of Pharaoh)__: [وَإِذْ نَجَّيْنَـٰكُم مِّنْ ءَالِ فِرْعَوْنَ يَسُومُونَكُمْ سُوٓءَ ٱلْعَذَابِ يُذَبِّحُونَ أَبْنَآءَكُمْ وَيَسْتَحْيُونَ نِسَآءَكُمْ ۚ وَفِى ذَٰلِكُم بَلَآءٌۭ مِّن رَّبِّكُمْ عَظِيمٌۭ](https://quran.com/2/49) 
 
 * __Surah Al-Baqarah 2/50 (We parted the sea, rescued you)__: [وَإِذْ فَرَقْنَا بِكُمُ ٱلْبَحْرَ فَأَنجَيْنَـٰكُمْ وَأَغْرَقْنَآ ءَالَ فِرْعَوْنَ وَأَنتُمْ تَنظُرُونَ](https://quran.com/2/50) 

@@ -1,7 +1,10 @@
 #### [View Point | Imran Yaqub Khan | Exclusive Interview with SSA Shah - March 2026 | GNN](https://www.youtube.com/watch?v=gufzIJVpKRQ&t=31s)
 * Listen 18:30 on-wards ---
 * After one year, economically, we will improve a lot...
-
+* 21:00
+* In the next war, India will have way more disgrace...
+* 24:00
+* Pakistan will be winner in next war. However, will have heavy material losses. India will be divided into many parts. Near FUTURE!
 ***
 
 #### [What Will Be Pakistan’s Future? Major Prediction for 6202 | SSA Shah](https://www.youtube.com/watch?v=1QIxBDQp8dw)

@@ -1,5 +1,5 @@
 #### [View Point | Imran Yaqub Khan | Exclusive Interview with SSA Shah - March 2026 | GNN](https://www.youtube.com/watch?v=gufzIJVpKRQ&t=31s)
-* 18:30 Onwards--
+* Listen 18:30 on-wards ---
 * After one year, economically, we will improve a lot...
 
 ***

@@ -17,7 +17,13 @@
 
 ***
 
-* __Surah Al-Baqarah 2/40 (Fulfill My Covenant)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
+#### Fulfill My Covenant (Promise)
+* [You fulfill you promise, I'll fulfill mine promise | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/3gFCKjh8FCE)
+* __Surah Al-Baqarah 2/40 (Fulfill My Covenant: وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
+  * When Prophet PBUH will come, accept Him. I'll give you double reward!
+* __Surah Al-Qasas 28/54 (أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ)__: [أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ بِمَا صَبَرُوا۟ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/28/54)
+
+***
 
 * __Surah Al-Baqarah 2/44-46 (Preach Righteousness)__: [۞ أَتَأْمُرُونَ ٱلنَّاسَ بِٱلْبِرِّ وَتَنسَوْنَ أَنفُسَكُمْ وَأَنتُمْ تَتْلُونَ ٱلْكِتَـٰبَ ۚ أَفَلَا تَعْقِلُونَ...وَٱسْتَعِينُوا۟ بِٱلصَّبْرِ وَٱلصَّلَوٰةِ ۚ وَإِنَّهَا لَكَبِيرَةٌ إِلَّا عَلَى ٱلْخَـٰشِعِينَ...ٱلَّذِينَ يَظُنُّونَ أَنَّهُم مُّلَـٰقُوا۟ رَبِّهِمْ وَأَنَّهُمْ إِلَيْهِ رَٰجِعُونَ](https://quran.com/2/44-46)
 
@@ -245,13 +251,6 @@
 ***
 
 ## Mufti Muneer Ahmed Akhoon
-
-#### [You fulfill you promise, I'll fulfill mine promise | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/shorts/3gFCKjh8FCE)
-* __Surah Al-Baqarah 2/40 (وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ)__: [يَـٰبَنِىٓ إِسْرَٰٓءِيلَ ٱذْكُرُوا۟ نِعْمَتِىَ ٱلَّتِىٓ أَنْعَمْتُ عَلَيْكُمْ وَأَوْفُوا۟ بِعَهْدِىٓ أُوفِ بِعَهْدِكُمْ وَإِيَّـٰىَ فَٱرْهَبُونِ](https://quran.com/2/40) 
-  * When Prophet PBUH will come, accept Him. I'll give you double reward!
-* __Surah Al-Qasas 28/54 (أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ)__: [أُو۟لَـٰٓئِكَ يُؤْتَوْنَ أَجْرَهُم مَّرَّتَيْنِ بِمَا صَبَرُوا۟ وَيَدْرَءُونَ بِٱلْحَسَنَةِ ٱلسَّيِّئَةَ وَمِمَّا رَزَقْنَـٰهُمْ يُنفِقُونَ](https://quran.com/28/54)
-
-***
 
 #### [Bani Israel ki THREE khabasaat | Mufti Muneer Ahmed Akhoon](https://www.youtube.com/watch?v=vn_xHp2BoRM)
 1. __When Moutain was lifted__ and then Allah brought it down, but they refused again. 

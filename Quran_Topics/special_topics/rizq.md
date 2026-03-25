@@ -1,5 +1,7 @@
 * [Qur’an verses on rizq](https://myislam.org/quran-verses/rizq/)
 
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/rizq.png" width="300" height="300" />
+
 ***
 
 * __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍۢ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا... وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ... كُلٌّۭ فِى كِتَـٰبٍۢ مُّبِينٍۢ](https://quran.com/11/6)

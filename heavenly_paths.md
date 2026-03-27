@@ -24,7 +24,7 @@
 ***
 
 * __Surah Al-Muminun 23/17 (سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا ...فَوْقَكُمْ سَبْعَ طَرَآئِقَ... وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
-* Shahrah...
+  * Shahrah (شاہراہ) in Urdu refers to a highway, main road, thoroughfare, or a large, wide road.
 
 ***
 

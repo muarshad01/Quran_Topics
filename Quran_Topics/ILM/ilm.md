@@ -1,3 +1,4 @@
+* O Allah SWT, give me ilm of __Haqeeqat-e-Ashya.__ -- PUHB
 * Joo bhi Allah say miltay-hayn __KHALOOS-aur-MOHABBAT__ say, unn-kay __ILM-ka-RANG__ juda hoo-jata-hai. -- ARA
 * If you want to __ACQUIRE__-Ilm then first become __OBEDIENT-with-everyone.__ -- Ali RA
 * Ilm __LISTENING__ say hasil-hota-hai aur __SPEAKING__ say zaya-ho-jata-hai.

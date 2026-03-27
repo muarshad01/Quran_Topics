@@ -53,3 +53,7 @@
 * __Surah Nuh 71/15 (سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا)__: [أَلَمْ تَرَوْا۟ كَيْفَ خَلَقَ ٱللَّهُ... سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا](https://quran.com/71/15)
 
 ***
+
+#### [Sababa Meaning in Metaphysics | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=dYRxt2iN60c)
+
+***

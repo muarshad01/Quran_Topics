@@ -22,10 +22,6 @@
 
 ***
 
-#### [Sababa Meaning in Metaphysics | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=dYRxt2iN60c)
-
-***
-
 #### [Every Sky have a Separate Earth? | دنیا ،زمین اور ارض | Sahil Adeem](https://www.youtube.com/watch?v=EMgWDRMGwWU)
 
 ***

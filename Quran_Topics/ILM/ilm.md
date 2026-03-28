@@ -16,6 +16,10 @@
 #### Hadith
 * Man 'arafa nafsahu faqad 'arafa Rabbahu -- Hadith
 * Momin Ki Firaasat-Se-Daro Woh ALLAH-Ke-Noor Se Dekhta-Hai -- Hadith
+
+***
+
+* __Surah Fatir 35/28__: [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
    
 ***
 

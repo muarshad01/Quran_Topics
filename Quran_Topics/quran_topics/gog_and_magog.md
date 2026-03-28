@@ -97,3 +97,11 @@ Chashme-e-Muslim Dekh Le Tafseer-e-Harf-e-‘Yansiloon’
 #### [Exploring Dajjal, Yajuj Majuj and Surah Kahaf | Sahil Adeem](https://www.youtube.com/watch?v=kP8QC8KrbH0)
 
 ***
+
+#### Gog & Mogog
+* [Allah Talah Ne Hazrat Zulqarnain Ko Konsay Raastay Ataa Kiyay | Suno Pakistan | EP 306 |Suno News HD](https://www.youtube.com/watch?v=iHOVLgGu7xk) -- June 06, 2024
+* [Technology Zulqarnain Used To Imprison Yajooj Majooj | Quran Reveals Shocking Truth | Dr Abdus Salam](https://www.youtube.com/watch?v=uEv94jBSXvc) -- June 04, 2024
+* [Yajooj Majooj Kon Hain Aur Kahan Qaid Hain ? | Suno Pakistan | EP 311 | Suno News HD](https://www.youtube.com/watch?v=h2FgItmA_Sg) -- June 04, 2024
+* [Yajooj Majooj & Zulqarnain | Gog Magog living in Different Planet?](https://www.youtube.com/watch?v=krUrD_ZGa4g) -- June 04, 2024
+
+***

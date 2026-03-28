@@ -1,3 +1,7 @@
+* Main Zameen-Say-Ziada Asmaan-Kay-Rastay Jantaa-Hoon ... - Ali KAW
+
+***
+
 #### [Why is the mention of the Antichrist disappearing | Abdul Salam Arif](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
 
 * __Surah Al-Kahf 18/84 (سَبَبًا)__: [إِنَّا... مَكَّنَّا لَهُۥ فِى ٱلْأَرْضِ... وَءَاتَيْنَـٰهُ مِن كُلِّ شَىْءٍۢ... سَبَبًۭا](https://quran.com/18/84)
@@ -26,6 +30,10 @@
 
 * __Surah Al-Muminun 23/17 (سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا ...فَوْقَكُمْ سَبْعَ طَرَآئِقَ... وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
   * Shahrah (شاہراہ) in Urdu refers to a highway, main road, thoroughfare, or a large, wide road.
+
+***
+
+* __Surah Adh-Dhariyat 51/7 (ٱلْحُبُكِ)__: [وَٱلسَّمَآءِ ذَاتِ... ٱلْحُبُكِ](https://quran.com/51/7)
 
 ***
 
@@ -66,12 +74,13 @@
 * __Surah Luqman 31/29 (كُلٌّۭ يَجْرِىٓ إِلَىٰٓ أَجَلٍۢ مُّسَمًّۭى)__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ يُولِجُ ٱلَّيْلَ فِى ٱلنَّهَارِ وَيُولِجُ ٱلنَّهَارَ فِى ٱلَّيْلِ وَسَخَّرَ ٱلشَّمْسَ وَٱلْقَمَرَ... كُلٌّۭ يَجْرِىٓ إِلَىٰٓ أَجَلٍۢ مُّسَمًّۭى... وَأَنَّ ٱللَّهَ بِمَا تَعْمَلُونَ خَبِيرٌۭ](https://quran.com/31/29)
 * __Surah Az-Zumar 39/5 (كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّى)__: [خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ بِٱلْحَقِّ ۖ يُكَوِّرُ ٱلَّيْلَ عَلَى ٱلنَّهَارِ وَيُكَوِّرُ ٱلنَّهَارَ عَلَى ٱلَّيْلِ ۖ... وَسَخَّرَ ٱلشَّمْسَ وَٱلْقَمَرَ ۖ... كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّى ۗ... أَلَا هُوَ ٱلْعَزِيزُ ٱلْغَفَّـٰرُ](https://quran.com/39/5)
 
-
+#### How vast is this Universe
 * Number of galaxies = ~$2\times 10^12 = 2 \text{trillion}$
 * Astronomers estimate that the Milky Way galaxy contains between 100 billion and 400 billion stars.
 * __Milky-way Galaxy__: 100,000 light-years (Diameter)
   * 588 quadrillion Miles
   * One quadrillion miles ($10^{15}$ miles) is equal to approximately 170.11 light-years.
   * [Our Milky Way Galaxy: How Big is Space?](https://science.nasa.gov/universe/exoplanets/our-milky-way-galaxy-how-big-is-space/)
+* __Surah Fatir 35/28__: [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28) 
 
 ***

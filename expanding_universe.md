@@ -3,7 +3,7 @@
 ***
 
 #### How vast is this Universe
-* Number of galaxies = $2 \times 10^12 = 2$ trillion
+* Number of galaxies = $2 \times 10^{12} = 2$ trillion
 * Astronomers estimate that the Milky Way galaxy contains between 100 billion and 400 billion stars.
 * __Milky-way Galaxy__: 100,000 light-years (Diameter)
   * 588 quadrillion Miles

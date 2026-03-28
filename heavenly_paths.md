@@ -64,7 +64,6 @@
 ***
 
 #### [Sababa Meaning in Metaphysics | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=dYRxt2iN60c)
-[Ptolemy(https://en.wikipedia.org/wiki/Ptolemy#:~:text=Claudius%20Ptolemy%20(%2F%CB%88t%C9%92l%C9%99mi%2F%3B%20Ancient%20Greek%3A&text=better%20known%20mononymously%20as%20Ptolemy%2C,Islamic%2C%20and%20Western%20European%20science.)
 
 #### Orbit
 * __Surah Ibrahim 14/33 (دَآئِبَيْنِ)__: [وَسَخَّرَ لَكُمُ ٱلشَّمْسَ وَٱلْقَمَرَ ...دَآئِبَيْنِ... ۖ وَسَخَّرَ لَكُمُ ٱلَّيْلَ وَٱلنَّهَارَ](https://quran.com/14/33)
@@ -81,6 +80,5 @@
   * 588 quadrillion Miles
   * One quadrillion miles ($10^{15}$ miles) is equal to approximately 170.11 light-years.
   * [Our Milky Way Galaxy: How Big is Space?](https://science.nasa.gov/universe/exoplanets/our-milky-way-galaxy-how-big-is-space/)
-* __Surah Fatir 35/28__: [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28) 
 
 ***

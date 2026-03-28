@@ -1,1 +1,4 @@
 * __Surah Adh-Dhariyat 51/47__: [وَٱلسَّمَآءَ بَنَيْنَـٰهَا بِأَيْي۟دٍۢ وَإِنَّا لَمُوسِعُونَ](https://quran.com/51/47)
+
+* Number of galaxies in the observable universe = ~$2\times 10^12 = 2 \text{trillion}$
+* Astronomers estimate that the Milky Way galaxy contains between 100 billion and 400 billion stars.

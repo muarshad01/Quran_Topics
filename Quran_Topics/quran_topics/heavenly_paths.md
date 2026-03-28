@@ -1,4 +1,4 @@
-* Main Zameen-Say-Ziada Asmaan-Kay-Rastay Jantaa-Hoon ... - Ali KAW
+* Main Zameen-Say-Ziada Asmaan-Kay-Rastay Jantaa-Hoon. -- Ali KAW
 
 ***
 

@@ -224,7 +224,7 @@
 | 0. |[Big Bang](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/big_bang.md) | 06/01/2026 |
 | 1. |[Creation in Six days](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/creation_6_days.md)| 07/01/2026 |
 | 2. |[Seven Heavens & Earths](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/seven_heavens_and_earth.md)| 05/01/2026 |
-| 3. | [Heavenly Paths](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/xxx.md)| 03/27/2026 |
+| 3. | [Heavenly Paths](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/heavenly_paths.md)| 03/27/2026 |
 | 3. | [Gates in Sky](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gates_in_sky.md)| 07/01/2026 |
 | 4. | [Jannat (Paradise)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/jannat.md)| 07/01/2026 |
 | 5. | [Hoor](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/hoor.md) | 07/01/2026 |

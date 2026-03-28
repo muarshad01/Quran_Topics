@@ -67,11 +67,11 @@
 * __Surah Az-Zumar 39/5 (كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّى)__: [خَلَقَ ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضَ بِٱلْحَقِّ ۖ يُكَوِّرُ ٱلَّيْلَ عَلَى ٱلنَّهَارِ وَيُكَوِّرُ ٱلنَّهَارَ عَلَى ٱلَّيْلِ ۖ... وَسَخَّرَ ٱلشَّمْسَ وَٱلْقَمَرَ ۖ... كُلٌّۭ يَجْرِى لِأَجَلٍۢ مُّسَمًّى ۗ... أَلَا هُوَ ٱلْعَزِيزُ ٱلْغَفَّـٰرُ](https://quran.com/39/5)
 
 
-* Number of galaxies in the observable universe = ~$2\times 10^12 = 2 \text{trillion}$
+* Number of galaxies = ~$2\times 10^12 = 2 \text{trillion}$
 * Astronomers estimate that the Milky Way galaxy contains between 100 billion and 400 billion stars.
-* __Milky-way Galaxy__: 100,000 light-years (Dimenions)
+* __Milky-way Galaxy__: 100,000 light-years (Diameter)
   * 588 quadrillion Miles
-  * A quadrillion miles (miles) is a vast astronomical distance equal to approximately 170 light-years
+  * One quadrillion miles ($10^15$ miles) is equal to approximately 170.11 light-years.
   * [Our Milky Way Galaxy: How Big is Space?](https://science.nasa.gov/universe/exoplanets/our-milky-way-galaxy-how-big-is-space/)
 
 ***

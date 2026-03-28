@@ -56,5 +56,14 @@
 ***
 
 #### [Sababa Meaning in Metaphysics | Dr Abdus Salam Arif](https://www.youtube.com/watch?v=dYRxt2iN60c)
+[Ptolemy(https://en.wikipedia.org/wiki/Ptolemy#:~:text=Claudius%20Ptolemy%20(%2F%CB%88t%C9%92l%C9%99mi%2F%3B%20Ancient%20Greek%3A&text=better%20known%20mononymously%20as%20Ptolemy%2C,Islamic%2C%20and%20Western%20European%20science.)
+
+#### Orbit
+* __Surah 14/33__: []()
+* __Surah 13/2__: []()
+* __Surah 21/33__: []() 
+* __Surah YaSeen 36/40 (وَكُلٌّۭ فِى فَلَكٍۢ يَسْبَحُونَ)__: [لَا ٱلشَّمْسُ يَنۢبَغِى لَهَآ أَن تُدْرِكَ ٱلْقَمَرَ وَلَا ٱلَّيْلُ سَابِقُ ٱلنَّهَارِ ۚ... وَكُلٌّۭ فِى فَلَكٍۢ يَسْبَحُونَ](https://quran.com/36/40)
+* __Surah 31/29__: []()
+* __Surah 39/5__: []()
 
 ***

@@ -141,3 +141,8 @@
 ***
 
 https://quran.com/27/38-40
+
+***
+
+Hazrat Suleman Aur Malika Bilqees Ka Waqia |queen bilqis and hazrat Suleman | Islamic Story
+

@@ -6,6 +6,15 @@
 
 ***
 
+| Nafal Prayers ||
+|---|---|
+| Tahajjud | Night |
+| Awwabin  | After Maghrib |
+| Ishraq   | After Sun Rise|
+| Chasht   | Couple hrs before Zuhr Prayers|
+
+***
+
 #### [Story by Maulan Rumi](https://www.youtube.com/shorts/UsoMVI7LIMg)
 
 ***

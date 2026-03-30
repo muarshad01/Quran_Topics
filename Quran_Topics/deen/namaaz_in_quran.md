@@ -10,13 +10,12 @@
 
 ***
 
-#### [Kya Driving ke Dauran Namaz Ho](https://www.youtube.com/shorts/fqzCezlXyNc)
+#### [Kya Driving ke Dauran Namaz Ho Sakti Hai? | Javed Ahmed Ghamidi](https://www.youtube.com/shorts/fqzCezlXyNc)
 * __Surah Al-Baqarah 2/239 ( فَرِجَالًا أَوْ رُكْبَانًۭا ۖ)__: [فَإِنْ خِفْتُمْ فَرِجَالًا أَوْ رُكْبَانًۭا ۖ فَإِذَآ أَمِنتُمْ فَٱذْكُرُوا۟ ٱللَّهَ كَمَا عَلَّمَكُم مَّا لَمْ تَكُونُوا۟ تَعْلَمُونَ](https://quran.com/2/239)
   * __Surah 36/65 (أَيْدِيهِمْ وَتَشْهَدُ أَرْجُلُهُم)__: [ٱلْيَوْمَ نَخْتِمُ عَلَىٰٓ أَفْوَٰهِهِمْ وَتُكَلِّمُنَآ أَيْدِيهِمْ وَتَشْهَدُ أَرْجُلُهُم بِمَا كَانُوا۟ يَكْسِبُونَ](https://quran.com/36/65)
   * __Surah 36/72 (رَكُوبُهُمْ)__: [وَذَلَّلْنَـٰهَا لَهُمْ فَمِنْهَا رَكُوبُهُمْ وَمِنْهَا يَأْكُلُونَ](https://quran.com/36/72)
 
 ***
-
 
 #### [Wazu Main Her Kaam Teen Baar Kyun Kerty Hain | SSA Shah](https://www.youtube.com/watch?v=BukxMVHrPqU)
 1. Safai
@@ -28,10 +27,6 @@
 #### [REEL: How to Unburden Your Heart | SSA](https://www.youtube.com/shorts/ZzrJRS-SmwY)
 * Two rakat namaz after Isha prayers.
 
-***
-
-#### [Kya Driving ke Dauran Namaz Ho Sakti Hai? | Javed Ahmed Ghamidi](https://www.youtube.com/shorts/fqzCezlXyNc)
-* __Surah Al-Baqarah 2/239 (فَإِنْ خِفْتُمْ فَرِجَالًا أَوْ رُكْبَانًۭا ۖ)__: [فَإِنْ خِفْتُمْ فَرِجَالًا أَوْ رُكْبَانًۭا ۖ فَإِذَآ أَمِنتُمْ فَٱذْكُرُوا۟ ٱللَّهَ كَمَا عَلَّمَكُم مَّا لَمْ تَكُونُوا۟ تَعْلَمُونَ](https://quran.com/2/239)
 ***
 
 #### [Girtay hayn sajdon mayn hum...](https://www.youtube.com/shorts/30kAvMu-zgg)

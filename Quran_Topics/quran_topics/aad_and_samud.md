@@ -187,3 +187,8 @@
 ***
 
 * [Qaum-e-Aad Aur Allah Ka Azaab](https://www.youtube.com/shorts/FSzJCXMgLWA)
+
+***
+
+#### [Samud | 
+قصة سيدنا صالح وناقة الله كاملة | لماذا عقر قوم ثمود الناقة؟](https://www.youtube.com/watch?v=vc6xy5nDc20)

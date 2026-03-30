@@ -147,3 +147,7 @@ https://quran.com/27/38-40
 * [Hazrat Suleman Aur Malika Bilqees Ka Waqia |queen bilqis and hazrat Suleman | Islamic Story](https://www.youtube.com/watch?v=XDkpkxVNAhA)
 
 ***
+
+#### [Hazrat Suleman AS aur Jinnat Ka waqia | Hazrat Suleman AS ki maut | Islamic Story](https://www.youtube.com/watch?v=7Ofi_13-27c)
+
+***

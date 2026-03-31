@@ -7,9 +7,11 @@
 
 * __Surah Al-Anbya 21/95__: [وَحَرَٰمٌ عَلَىٰ قَرْيَةٍ أَهْلَكْنَـٰهَآ ...أَنَّهُمْ لَا يَرْجِعُونَ](https://quran.com/21/95)
   * This town (قَرْيَةٍ) is "Yerushalayim"
-* __Surah Al-Anbya 21/96__: [حَتَّىٰٓ... إِذَا فُتِحَتْ يَأْجُوجُ وَمَأْجُوجُ... وَهُم مِّن كُلِّ حَدَبٍۢ يَنسِلُونَ](https://quran.com/21/96)
+* __Surah Al-Anbya 21/96 (يَنسِلُونَ)__: [حَتَّىٰٓ... إِذَا فُتِحَتْ يَأْجُوجُ وَمَأْجُوجُ... وَهُم مِّن كُلِّ حَدَبٍۢ يَنسِلُونَ](https://quran.com/21/96)
   * Until ˹after˺ Gog and Magog have broken loose ˹from the barrier˺, swarming down from every hill
   * Hadab" (حَدَب) in Arabic, and particularly within the Quran, literally refers to raised ground or an elevation
+  * [they] will hasten (يَنسِلُونَ)
+  * __Surah Yaseen 36/51 (يَنسِلُونَ)__: [وَنُفِخَ فِى ٱلصُّورِ فَإِذَا هُم مِّنَ ٱلْأَجْدَاثِ إِلَىٰ رَبِّهِمْ يَنسِلُونَ](https://quran.com/36/51)
 * __Surah Al-Anbya 21/97__: [وَٱقْتَرَبَ ٱلْوَعْدُ ٱلْحَقُّ فَإِذَا هِىَ شَـٰخِصَةٌ أَبْصَـٰرُ ٱلَّذِينَ كَفَرُوا۟ يَـٰوَيْلَنَا قَدْ كُنَّا فِى غَفْلَةٍۢ مِّنْ هَـٰذَا بَلْ كُنَّا ظَـٰلِمِينَ](https://quran.com/21/97)
 
 ***

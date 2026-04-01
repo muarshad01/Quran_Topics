@@ -3,7 +3,9 @@
 
 ***
 
+* __Surah Al-Baqarah 2/210__: [هَلْ يَنظُرُونَ إِلَّآ أَن يَأْتِيَهُمُ ٱللَّهُ فِى ظُلَلٍۢ مِّنَ ٱلْغَمَامِ وَٱلْمَلَـٰٓئِكَةُ وَقُضِىَ ٱلْأَمْرُ ۚ وَإِلَى ٱللَّهِ تُرْجَعُ ٱلْأُمُورُ](https://quran.com/2/210)
 
+***
 #### [Where was GOD before Big-Bang | Prof ARA](https://www.youtube.com/watch?v=bGuEJrhQ1XI)
 * `13.8 Billion Years` ago
 * There were `huge-clouds` (moisturized gases) and there were `winds` both-above-and-below-it

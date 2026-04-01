@@ -3,6 +3,11 @@
 
 ***
 
+#### [Hidden Secrets in Name "Muhammad" | Early Life Miracles of Prophet Muhammad ﷺ | ft. Abdul Salam Arif
+](https://www.youtube.com/watch?v=-Lk-gyD2AtA)
+
+***
+
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/madina-darood-riaz-ul-jannah.png" width="500" height="500" />
 
 ***

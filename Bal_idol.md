@@ -1,3 +1,7 @@
+#### [How the Idol of Uzza Was Destroyed | Hazrat Khalid bin Waleed (RA) vs the Jinn Story By AjmiBoys](https://www.youtube.com/watch?v=extD1gzsBXY)
+
+***
+
 #### [Is Baal Behind Iran And Israel War? | Sahil Adeem](https://www.youtube.com/watch?v=YYYNgWhPvN8)
 
 ***

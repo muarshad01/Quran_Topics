@@ -1,3 +1,7 @@
+#### [Motapa Kabhi Nahi Aye Ga - Zabardast Totka | FT: Nayyar Aapa | Irfan Asghar](https://www.youtube.com/watch?v=7o6IQH7hFNo)
+
+***
+
 #### Exercises
 * https://www.youtube.com/shorts/U1wFgxByD9U (Exercise)
 * https://www.youtube.com/shorts/5YOB2UmrxZA (Exercise)

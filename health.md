@@ -2,6 +2,10 @@
 
 ***
 
+#### [Drink Yogurt With Just One Thing | Dr Sahar Chawla | GNN Studios Podcast](https://www.youtube.com/watch?v=hvlYR-KhqeM)
+
+***
+
 #### Exercises
 * https://www.youtube.com/shorts/U1wFgxByD9U (Exercise)
 * https://www.youtube.com/shorts/5YOB2UmrxZA (Exercise)

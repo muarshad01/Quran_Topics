@@ -1,3 +1,10 @@
+#### Exercises
+* https://www.youtube.com/shorts/U1wFgxByD9U (Exercise)
+* https://www.youtube.com/shorts/5YOB2UmrxZA (Exercise)
+* https://www.youtube.com/shorts/wL4g-WQ8KAE (Exercise)
+
+***
+
 #### [Hair fall say Preshan hain?? Abdullah Bhatti Totka Azmaein | Farah Iqrar](https://www.youtube.com/watch?v=BIqqZ5Zgkv8)
 
 ***

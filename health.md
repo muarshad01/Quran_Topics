@@ -5,6 +5,11 @@
 
 ***
 
+* https://www.youtube.com/watch?v=O6Jhbme5tB0 (Teeth)
+* https://www.youtube.com/watch?v=lYJDlH0CoE4 (7 Din Mein Pet Ki Charbi Kam Hone Lagegi!)
+
+***
+
 #### [Hair fall say Preshan hain?? Abdullah Bhatti Totka Azmaein | Farah Iqrar](https://www.youtube.com/watch?v=BIqqZ5Zgkv8)
 
 ***

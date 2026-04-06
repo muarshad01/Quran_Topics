@@ -1,3 +1,8 @@
+#### [Safeed Balon Se Chutkara Kese Hasil Karein? | Farah Iqrar](https://www.youtube.com/watch?v=a57G2ysxiAY)
+* Start eading AMLA
+
+***
+
 #### [Motapa Kabhi Nahi Aye Ga - Zabardast Totka | FT: Nayyar Aapa | Irfan Asghar](https://www.youtube.com/watch?v=7o6IQH7hFNo)
 
 ***

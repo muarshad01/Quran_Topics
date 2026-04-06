@@ -8,6 +8,11 @@
 * Almond oil + cocunut oil + castor oil + sharsoon oil = mix all
 * Neem leaves boil and pour water on head
 * Live: arq kasni + Arq Makoh 
+
+***
+
+#### [60 Saal Tak Bal Safed Na Hone Ka Tootka | FT: Atta Ur Rehman Siddiqui | Irfan Asghar](https://www.youtube.com/watch?v=acXd31YKgA0)
+
 ***
 
 #### [Hair fall say Preshan hain?? Abdullah Bhatti Totka Azmaein | Farah Iqrar](https://www.youtube.com/watch?v=BIqqZ5Zgkv8)

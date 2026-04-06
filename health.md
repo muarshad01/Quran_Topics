@@ -1,4 +1,8 @@
 #### [Hair fall say Preshan hain?? Abdullah Bhatti Totka Azmaein | Farah Iqrar](https://www.youtube.com/watch?v=BIqqZ5Zgkv8)
+* Amla, Reetha, Sika Kai
+* Flaxseed or linseed
+* Almond oil + cocunut oil + castor oil + sharsoon oil = mix all
+* Neem leaves boil and pour water on head
 
 ***
 

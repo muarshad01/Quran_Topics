@@ -1,3 +1,7 @@
+#### [Apke Bachon Ka Dimagh Computer Se Bhi Tez | Parhai Ki Tension Khatam | ft. Abdullah Bhatti](https://www.youtube.com/watch?v=bGAacfzLA34)
+
+***
+
 #### [Safeed Balon Se Chutkara Kese Hasil Karein? | Farah Iqrar](https://www.youtube.com/watch?v=a57G2ysxiAY)
 * Start eading AMLA
 

@@ -1,3 +1,7 @@
+#### [Ganj Pan Ka Elaj Mumkin? | Farah Iqrar](https://www.youtube.com/watch?v=s3xvG0qu0z4)
+
+***
+
 #### [Hair fall say Preshan hain?? Abdullah Bhatti Totka Azmaein | Farah Iqrar](https://www.youtube.com/watch?v=BIqqZ5Zgkv8)
 * Amla, Reetha, Sika Kai
 * Flaxseed or linseed

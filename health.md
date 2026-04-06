@@ -1,3 +1,7 @@
+#### [Drink Yogurt With Just One Thing | Dr Sahar Chawla | GNN Studios Podcast](https://www.youtube.com/watch?v=hvlYR-KhqeM)
+
+***
+
 #### [Only 1 Cup Daily and Lose Weight Fast | Weight Loss Qehwa | Naima Apa Official](https://www.youtube.com/watch?v=8Qng-9HPATw)
 
 ***

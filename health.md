@@ -119,3 +119,5 @@
 #### [Banana, Ginger & Onion: The Hidden Combo for Men’s Health (Doctors Won’t Tell You!)](https://www.youtube.com/watch?v=LOxX5T4jLWk)
 
 ***
+
+#### [How to Manage Menopause? | Menopause Ma kya khain? Diet for Menopausse | Dr Shumaila Tanveer](https://www.youtube.com/watch?v=aNTYrZUI8vQ)

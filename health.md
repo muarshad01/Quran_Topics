@@ -15,6 +15,10 @@
 
 ***
 
+#### [Irregular & Painful Periods With Weight Gain | FT- Abdullah Bhatti | Farah Iqrar](https://www.youtube.com/watch?v=XgMj2yEmkxM)
+
+***
+
 #### [Hair fall say Preshan hain?? Abdullah Bhatti Totka Azmaein | Farah Iqrar](https://www.youtube.com/watch?v=BIqqZ5Zgkv8)
 
 ***

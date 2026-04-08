@@ -2,6 +2,7 @@
 * Karachi - gateway to East
 * Karachi Port - Hub
 * Europeans will come here for work
+* Qudrat ka faisla: Pakistan ka Arooj
 
 ***
 

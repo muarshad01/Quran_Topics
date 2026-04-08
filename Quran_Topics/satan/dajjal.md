@@ -556,3 +556,5 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 #### [Dajjal Has Arrived: Sea Journey of Tamim Dari & Story Of Ibn-e-Sayyad | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=52t9dtbYYDc)
 
 ***
+
+#### [The Secret of Prophet Sulaimān (AS)’s Soundless Temple | Explained by Sahil Adeem](https://www.youtube.com/watch?v=I2_qYBGOBnU)

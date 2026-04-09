@@ -1,7 +1,4 @@
-1. - Adam AS
-    *  [Hazrat Adam AS| Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
-    *  [Wali | Allama Talib Johri](https://www.youtube.com/watch?v=oOTbwJLMq70)
-    *  [Ya Allah Meri Mushkil Ko Asaan Bana Dy | Allama Talib Johri](https://www.youtube.com/watch?v=61WdVfx933Y)
+1. - [Adam AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/adam_as.md)
 2. - [Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Idris_As_Enoch.md)
 3. - [Nuh (Noah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Nuh_AS.md)
 4. -  Hud (Heber)

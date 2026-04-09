@@ -1,4 +1,4 @@
 * __Surah Maryam 19/56__: [وَٱذْكُرْ فِى ٱلْكِتَـٰبِ إِدْرِيسَ ۚ إِنَّهُۥ كَانَ صِدِّيقًۭا نَّبِيًّۭا](https://quran.com/19/56-57)
 * __Surah Maryam 19/57 (وَرَفَعْنَـٰهُ مَكَانًا عَلِيًّا)__: [وَرَفَعْنَـٰهُ مَكَانًا عَلِيًّا](https://quran.com/19/56-57)
 * __Surah Al-ANbiyaa__: [وَإِسْمَـٰعِيلَ وَإِدْرِيسَ وَذَا ٱلْكِفْلِ ۖ كُلٌّۭ مِّنَ ٱلصَّـٰبِرِينَ](https://quran.com/21/85)
-* The book of Enoch
+* [The book of Enoch](https://ia800903.us.archive.org/25/items/TheCompleteBookOfEnochStandardEnglishVersionJayWinter/The%20Complete%20Book%20of%20Enoch%2C%20Standard%20English%20Version%20-%20Jay%20Winter.pdf)

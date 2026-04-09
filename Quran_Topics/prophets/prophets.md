@@ -7,12 +7,12 @@
     *  [Hazrat Adam AS| Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
     *  [Wali | Allama Talib Johri](https://www.youtube.com/watch?v=oOTbwJLMq70)
     *  [Ya Allah Meri Mushkil Ko Asaan Bana Dy | Allama Talib Johri](https://www.youtube.com/watch?v=61WdVfx933Y)
-2. [Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Idris_As_Enoch.md)
-3. - [Nuh (Noah)]()
-*  4 -  Hud (Heber)
-*  5 -  Saleh (Methusaleh)
-*  6 -  Lut (Lot): https://quranwbw.com/21/74
-*  7 -  [__Ibrahim (Abraham)__](https://quranwbw.com/21/69): Surah 14/52
+2. - [Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Idris_As_Enoch.md)
+3. - [Nuh (Noah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Nuh_AS.md)
+4. -  Hud (Heber)
+5. -  Saleh (Methusaleh)
+6 -  Lut (Lot): https://quranwbw.com/21/74
+7 -  [__Ibrahim (Abraham)__](https://quranwbw.com/21/69): Surah 14/52
 *  * __Surah 38 (men of strength and insight.)__: [And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.](https://quranwbw.com/38/45)
 *  8 -  [Ismail (Ishmael)](https://quranwbw.com/21/85)
 *  9 -  [Ishaq (Isaac)](https://quranwbw.com/21/72)

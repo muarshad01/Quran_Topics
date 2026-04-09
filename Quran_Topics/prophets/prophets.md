@@ -32,7 +32,7 @@
 20. -  [Ilyas (Elijah) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Ilyas_AS_Elijah.md)
 21. -  Alyasa (Elisha)
 22. -  Yunus (Jonah)
-23. -  [Zakariya (Zachariah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/zakariya.md)(https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/zakariya.md)
+23. -  [Zakariya (Zachariah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/zakariya.md)
 24. -  [Yahya (John the Baptist)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/yahya_john_the_baptist.md)
 25. -  [Issa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md)
 26. - [Muhammad PBUH](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/muhammad_pbuh.md)

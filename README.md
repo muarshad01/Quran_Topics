@@ -202,7 +202,7 @@
 | 3. | [7 - Rajab (Allah SWT Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/raja.md) | 09/01/2026 |
 | 4. | [8 - Shaban (Prophet PBUH Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/shaban.md) | 08/01/2026 |
 | 5. |[9 - Ramadan (Ummat Month)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/ramadan.md)| 08/01/2026 |
-[ [Shawwal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/shawwal.md)]
+[ [10 - Shawwal](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/shawwal.md)]
 | 6. |[12 - Dhul Hajj](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/months/dhul_hijah.md)| 08/01/2026 |
 ***
 

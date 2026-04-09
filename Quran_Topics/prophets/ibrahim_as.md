@@ -164,7 +164,7 @@
 
 ***
 
-* __Surah Al-Jaathiya 38/45 (أُو۟لِى ٱلْأَيْدِى وَٱلْأَبْصَـٰرِ)__: [وَٱذْكُرْ عِبَـٰدَنَآ إِبْرَٰهِيمَ وَإِسْحَـٰقَ وَيَعْقُوبَ ...أُو۟لِى ٱلْأَيْدِى وَٱلْأَبْصَـٰرِ](https://quran.com/38/45)
+* __Surah Al-Jaathiya 38/45 (Man of strength and insight: أُو۟لِى ٱلْأَيْدِى وَٱلْأَبْصَـٰرِ)__: [وَٱذْكُرْ عِبَـٰدَنَآ إِبْرَٰهِيمَ وَإِسْحَـٰقَ وَيَعْقُوبَ ...أُو۟لِى ٱلْأَيْدِى وَٱلْأَبْصَـٰرِ](https://quran.com/38/45)
 
 ***
 
@@ -325,8 +325,3 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 #### [Hazrat Ibrahim AS Ka Allah Par Yaqeen | Islamic Reminder | Shaykh Atif Ahmed](https://www.youtube.com/shorts/cqirjLCWKsM)
 
 ***
-
-
-
-
-* __Surah 38 (men of strength and insight.)__: [And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.](https://quranwbw.com/38/45)

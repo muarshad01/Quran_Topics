@@ -13,8 +13,7 @@
 ***
 
 12. -  [Musa (Moses)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md)
-13. -  [Harun (Aaron)]()
-* https://quranwbw.com/21/48
+13. -  [Harun (Aaron)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/harun_aaron.md)
 14. -  [Shuaib AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/shuaib_as.md)
 15. -  [Ayyub (Job)](https://quranwbw.com/21/83)
 16. -  [Dhulkifl (Ezekiel)]()

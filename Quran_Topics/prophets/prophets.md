@@ -16,8 +16,7 @@
 13. -  [Harun (Aaron)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/harun_aaron.md)
 14. -  [Shuaib AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/shuaib_as.md)
 15. -  [Ayyub (Job)](https://quranwbw.com/21/83)
-16. -  [Dhulkifl (Ezekiel)]()
-* https://quranwbw.com/21/85
+16. -  [Dhulkifl (Ezekiel)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/dhul-kifl_ezekiel.md)
 
 ***
 

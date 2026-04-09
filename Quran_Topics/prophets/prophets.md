@@ -6,8 +6,7 @@
 6. -  [Lut (Lot) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/lut_as.md)
 7. -  [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md)
 8. -  [Ismail (Ishmael)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ismail_as.md)
-9. -  [Ishaq (Isaac)]()
-* https://quranwbw.com/21/72
+9. -  [Ishaq (Isaac)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ishaq_as.md)
 10. - [Yaqub (Jacob) - Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/yaqub_jacob_Israel.md)
 11. - [Yusuf (Joseph)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/yusuf_joseph.md)
 

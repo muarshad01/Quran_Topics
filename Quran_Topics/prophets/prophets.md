@@ -7,7 +7,11 @@
     *  [Hazrat Adam AS| Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
     *  [Wali | Allama Talib Johri](https://www.youtube.com/watch?v=oOTbwJLMq70)
     *  [Ya Allah Meri Mushkil Ko Asaan Bana Dy | Allama Talib Johri](https://www.youtube.com/watch?v=61WdVfx933Y)
-*  2 - Idris (Enoch): https://quranwbw.com/21/85
+*  2 - Idris (Enoch) AS
+  * __Surah Maryam 19/56__: [وَٱذْكُرْ فِى ٱلْكِتَـٰبِ إِدْرِيسَ ۚ إِنَّهُۥ كَانَ صِدِّيقًۭا نَّبِيًّۭا](https://quran.com/19/56-57)
+  * __Surah Maryam 19/57__: [وَرَفَعْنَـٰهُ مَكَانًا عَلِيًّا](https://quran.com/19/56-57)
+  * __Surah Al-ANbiyaa__: [وَإِسْمَـٰعِيلَ وَإِدْرِيسَ وَذَا ٱلْكِفْلِ ۖ كُلٌّۭ مِّنَ ٱلصَّـٰبِرِينَ](https://quran.com/21/85)
+  * The book of Enoch
 *  3 - _Nuh (Noah)__
    *  [Nuh Alaihi Salam ki Qabar](https://www.youtube.com/watch?v=0Fu2gj8-8Rg)
    *  * __Surah Al-Israa 17/3 (عَبْدًۭا شَكُورًۭا)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3) 

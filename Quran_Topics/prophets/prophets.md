@@ -1,8 +1,3 @@
-## Nul AS
-* __Surah Al-Israa 17/3 (عَبْدًۭا شَكُورًۭا)__: [ذُرِّيَّةَ مَنْ حَمَلْنَا مَعَ نُوحٍ ۚ إِنَّهُۥ كَانَ عَبْدًۭا شَكُورًۭا](https://quran.com/17/3) 
-
-***
-
 1. - Adam AS
     *  [Hazrat Adam AS| Allama Talib Johri](https://www.youtube.com/watch?v=i73nAXbPF3M)
     *  [Wali | Allama Talib Johri](https://www.youtube.com/watch?v=oOTbwJLMq70)

@@ -26,10 +26,8 @@
 15. -  [Musa (Moses)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md)
 16. -  [Harun (Aaron)](https://quranwbw.com/21/48)
 17. -  Talut (Soul)
-18. -  [Dawud (David)](https://quranwbw.com/21/78)
-* https://quran.com/27/15
-* https://quranwbw.com/38/30
-* 19 -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
+18. -  [Dawud (David)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/dawood_david.md)
+19. -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
    * https://www.youtube.com/shorts/sMbKTNzG9KU
 20. -  [Ilyas (Elijah) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Ilyas_AS_Elijah.md)
 * 21 -  Alyasa (Elisha)

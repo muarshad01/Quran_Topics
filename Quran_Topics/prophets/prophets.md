@@ -11,8 +11,7 @@
 3. - [Nuh (Noah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Nuh_AS.md)
 4. -  Hud (Heber)
 5. -  Saleh (Methusaleh)
-6 -  [Lut (Lot)](...)
-* https://quranwbw.com/21/74
+6 -  [Lut (Lot)](https://quranwbw.com/21/74)
 7 -  [Ibrahim (Abraham) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/ibrahim_as.md)
 *  8 -  [Ismail (Ishmael)](https://quranwbw.com/21/85)
 *  9 -  [Ishaq (Isaac)](https://quranwbw.com/21/72)

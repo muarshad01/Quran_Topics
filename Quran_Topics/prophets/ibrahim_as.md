@@ -103,7 +103,9 @@
 
 * __Surah Ibrahim 14/35__: [وَإِذْ قَالَ إِبْرَٰهِيمُ رَبِّ ٱجْعَلْ هَـٰذَا ٱلْبَلَدَ ءَامِنًۭا وَٱجْنُبْنِى وَبَنِىَّ أَن نَّعْبُدَ ٱلْأَصْنَامَ](https://quran.com/14/35)
 
-***
+* __Surah Ibrahim 14/35__: [](https://quran.com/14/52)
+
+****
 
 * __Surah Al-Hijr 15/51__: [وَنَبِّئْهُمْ عَن ضَيْفِ إِبْرَٰهِيمَ](https://quran.com/15/51)
 
@@ -323,3 +325,8 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 #### [Hazrat Ibrahim AS Ka Allah Par Yaqeen | Islamic Reminder | Shaykh Atif Ahmed](https://www.youtube.com/shorts/cqirjLCWKsM)
 
 ***
+
+
+
+
+* __Surah 38 (men of strength and insight.)__: [And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.](https://quranwbw.com/38/45)

@@ -9,6 +9,10 @@
 ***
 
 * __Surah Al-Anbya 21/7__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quran.com/21/7)
-*__Surah Al-Anbya 21/76__: [And ˹remember˺ when Noah had cried out to Us earlier, so We responded to him and delivered him and his family1 from the great distress.](https://quran.com/21/76)
+* __Surah Al-Anbya 21/76__: [And ˹remember˺ when Noah had cried out to Us earlier, so We responded to him and delivered him and his family1 from the great distress.](https://quran.com/21/76)
+
+***
+
+* __Surah As-Saffat 37/109-111 (Nuh AS)__: [سَلَـٰمٌ عَلَىٰ نُوحٍۢ فِى ٱلْعَـٰلَمِينَ...إِنَّهُۥ مِنْ عِبَادِنَا ٱلْمُؤْمِنِينَ](https://quran.com/37/79-81)
 
 ***

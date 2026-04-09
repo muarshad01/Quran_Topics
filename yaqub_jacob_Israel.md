@@ -1,1 +1,1 @@
-
+* __Surah Al-Baqarah 2/133__: [Or did you witness when death came to Jacob? He asked his children, “Who will you worship after my passing?” They replied, “We will ˹continue to˺ worship your God, the God of your forefathers—Abraham, Ishmael, and Isaac—the One God. And to Him we ˹all˺ submit.”](https://quranwbw.com/2/133)

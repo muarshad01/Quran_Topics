@@ -5,3 +5,9 @@
 
 * __Surah Al-Anam 6/85__: [وَزَكَرِيَّا وَيَحْيَىٰ وَعِيسَىٰ وَإِلْيَاسَ ۖ كُلٌّۭ مِّنَ ٱلصَّـٰلِحِينَ](https://quran.com/6/85)
 * __Surah As-Saffat 37/123-132__: [](https://quran.com/37/123-132)
+
+***
+
+#### [History of Hazrat Ilyas and jezebel | Mallika Isabel aur Hazrat Ilyas Ka Waqia | Prophet Stories](https://www.youtube.com/watch?v=D0JcfydoekU)
+
+***

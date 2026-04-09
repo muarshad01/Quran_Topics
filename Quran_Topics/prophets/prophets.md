@@ -55,6 +55,9 @@
     * [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
     * [Shan-e-Risalat | Allama Talib Johri](https://www.youtube.com/watch?v=JGeKW928Lyg)
     * [Waqya e Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
+
+* [Uzair (Ezra) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/uzair_as.md)
+
 ***
 
 ## Hazrat Ali AS

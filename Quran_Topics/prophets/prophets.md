@@ -24,13 +24,13 @@
    * __Surah Yusuf 12/21__: [وَقَالَ ٱلَّذِى ٱشْتَرَىٰهُ مِن مِّصْرَ لِٱمْرَأَتِهِۦٓ... أَكْرِمِى مَثْوَىٰهُ عَسَىٰٓ أَن يَنفَعَنَآ أَوْ نَتَّخِذَهُۥ وَلَدًۭا ۚ ...وَكَذَٰلِكَ مَكَّنَّا لِيُوسُفَ فِى ٱلْأَرْضِ وَلِنُعَلِّمَهُۥ مِن تَأْوِيلِ ٱلْأَحَادِيثِ ۚ.... وَٱللَّهُ غَالِبٌ عَلَىٰٓ أَمْرِهِۦ... وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَعْلَمُونَ](https://quran.com/12/21)
 
 ***
-* 13 -  [Ayyub (Job)](https://quranwbw.com/21/83)
-* 14 -  [Dhulkifl (Ezekiel)](https://quranwbw.com/21/85)
-* 15 -  [Musa (Moses)](https://quranwbw.com/21/48)
-   * [Maqam Nabi Musa (AS) | حضرت موسیٰ علیہ السلام | Mufti Abdul Wahab](https://www.youtube.com/watch?v=TJl6uhoAKaI)
-* 16 -  [Harun (Aaron)](https://quranwbw.com/21/48)
-* 17 -  Talut (Soul)
-* 18 -  [Dawud (David)](https://quranwbw.com/21/78)
+
+13. -  [Ayyub (Job)](https://quranwbw.com/21/83)
+14. -  [Dhulkifl (Ezekiel)](https://quranwbw.com/21/85)
+15. -  [Musa (Moses)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md)
+16. -  [Harun (Aaron)](https://quranwbw.com/21/48)
+17. -  Talut (Soul)
+18. -  [Dawud (David)](https://quranwbw.com/21/78)
 * https://quran.com/27/15
 * https://quranwbw.com/38/30
 * 19 -  [Sulayman (Solomon)](https://quranwbw.com/21/78)

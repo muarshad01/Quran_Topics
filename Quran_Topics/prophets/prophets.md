@@ -13,9 +13,6 @@
 10. - [Yaqub (Jacob) - Israel](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/yaqub_jacob_Israel.md)
 11. - [Yusuf (Joseph)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/yusuf_joseph.md)
 12. -  [Shuaib AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/shuaib_as.md)
-
-***
-
 13. -  [Ayyub (Job)](https://quranwbw.com/21/83)
 14. -  [Dhulkifl (Ezekiel)](https://quranwbw.com/21/85)
 15. -  [Musa (Moses)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/musa_as.md)

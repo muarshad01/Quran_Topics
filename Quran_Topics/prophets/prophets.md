@@ -42,7 +42,6 @@
 * 19 -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
    * https://www.youtube.com/shorts/sMbKTNzG9KU
 20. -  [Ilyas (Elijah) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Ilyas_AS_Elijah.md)
-   * [History of Hazrat Ilyas and jezebel | Mallika Isabel aur Hazrat Ilyas Ka Waqia | Prophet Stories](https://www.youtube.com/watch?v=D0JcfydoekU)
 * 21 -  Alyasa (Elisha)
 * 22 -  Yunus (Jonah)
 * 23 -  [Zakariya (Zachariah)](https://quranwbw.com/21/89)

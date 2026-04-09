@@ -30,21 +30,21 @@
 19. -  [Sulayman (Solomon)](https://quranwbw.com/21/78)
    * https://www.youtube.com/shorts/sMbKTNzG9KU
 20. -  [Ilyas (Elijah) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Ilyas_AS_Elijah.md)
-* 21 -  Alyasa (Elisha)
-* 22 -  Yunus (Jonah)
-* 23 -  [Zakariya (Zachariah)](https://quranwbw.com/21/89)
+21. -  Alyasa (Elisha)
+22. -  Yunus (Jonah)
+23. -  [Zakariya (Zachariah)](https://quranwbw.com/21/89)
    * __Surah Maryam 19/4 (Zakaria AS Dua)__: [saying, “My Lord! Surely my bones have become brittle, and grey hair has spread across my head, but I have never been disappointed in my prayer to You, my Lord!
 * 24 -  Yahya (John the Baptist)](https://quran.com/19/4)
 * __Surah Al-Imran Ayat 3/39 (Yahya (John) AS)__: [So the angels called out to him while he stood praying in the sanctuary, “Allah gives you good news of ˹the birth of˺ John who will confirm the Word of Allah and will be a great leader, chaste, and a prophet among the righteous.”](https://quranwbw.com/3/39)
 * __Surah Maryam 19/12-15 (Yahya AS)__: [يَـٰيَحْيَىٰ خُذِ ٱلْكِتَـٰبَ بِقُوَّةٍۢ ۖ وَءَاتَيْنَـٰهُ ٱلْحُكْمَ صَبِيًّۭا...وَحَنَانًۭا مِّن لَّدُنَّا وَزَكَوٰةًۭ ۖ وَكَانَ تَقِيًّۭا...وَبَرًّۢا بِوَٰلِدَيْهِ وَلَمْ يَكُن جَبَّارًا عَصِيًّۭا...وَسَلَـٰمٌ عَلَيْهِ يَوْمَ وُلِدَ وَيَوْمَ يَمُوتُ وَيَوْمَ يُبْعَثُ حَيًّۭا](https://quran.com/19/12-15)
 * 25 -  [Issa (Jesus) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/issa_as.md)
-* 26 -  __Muhammad PBUH__: Surah 47
+26. -  __Muhammad PBUH__: Surah 47
     * [Inside Roza-e-Rasool](https://www.youtube.com/shorts/Q1BHAT6nmDo)
     * [Moqam-e-Muhammad PBUH - part 2 | Allama Talib Johri](https://www.youtube.com/watch?v=QWw9uu054L0)
     * [Shan-e-Risalat | Allama Talib Johri](https://www.youtube.com/watch?v=JGeKW928Lyg)
     * [Waqya e Meraj | Allama Talib Johri](https://www.youtube.com/watch?v=kuIXOMbKWN4)
 
-* [Uzair (Ezra) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/uzair_as.md)
+27. - [Uzair (Ezra) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/uzair_as.md)
 
 ***
 

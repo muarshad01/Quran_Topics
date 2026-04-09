@@ -36,21 +36,15 @@
 
 ***
 
-## Hazrat Ali AS
-* [ALI (A S) ka Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=TdKKgfM6NSE)
-* [4 imam aur 12 imam mein fark | Allama Talib Johri](https://www.youtube.com/watch?v=PJluYdeRJY8)
+***
 
+* [Yusha ibn Nun (Joshua)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/yusha_bin_nun_joshua.md)
 
 ***
 
-* [Hazrat Yusha bin Nun (Joshua))](https://www.youtube.com/shorts/q6E1V6ot5h0)
-* Bin Fraheem, Bin Yusuf, Bin Yaqoob,  Bin Ishaq, Abraham
-* In Islam, it is also believed that Yusha bin Nun (Joshua) was the "attendant" of Moses mentioned in the Quran before Moses meets Khidr.
-
-https://quranwbw.com/31/12
-
-### Khidir
-https://quranwbw.com/18/65
+* __Surah Al-Kahf 18/65 (Khidir AS)__: [فَوَجَدَا عَبْدًۭا مِّنْ عِبَادِنَآ ءَاتَيْنَـٰهُ رَحْمَةًۭ مِّنْ عِندِنَا وَعَلَّمْنَـٰهُ مِن لَّدُنَّا عِلْمًۭا](https://quran.com/18/65)
+* __Surah 31/12 (وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ)__: [وَلَقَدْ ءَاتَيْنَا لُقْمَـٰنَ ٱلْحِكْمَةَ ...أَنِ ٱشْكُرْ لِلَّهِ ۚ وَمَن يَشْكُرْ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ ۖ وَمَن كَفَرَ فَإِنَّ ٱللَّهَ غَنِىٌّ حَمِيدٌۭ](https://quran.com/31/12)
+* __Surah Saad 38/48__: [وَٱذْكُرْ إِسْمَـٰعِيلَ وَٱلْيَسَعَ وَذَا ٱلْكِفْلِ ۖ وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ](https://quran.com/38/48)
 
 ***
 
@@ -58,5 +52,3 @@ https://quranwbw.com/18/65
 > * __Surah An-Najm 53/10__: [فَأَوْحَىٰٓ إِلَىٰ عَبْدِهِۦ مَآ أَوْحَىٰ](https://quran.com/53/10)
 
 ***
-
-* __Surah Saad 38/48__: [وَٱذْكُرْ إِسْمَـٰعِيلَ وَٱلْيَسَعَ وَذَا ٱلْكِفْلِ ۖ وَكُلٌّۭ مِّنَ ٱلْأَخْيَارِ](https://quran.com/38/48)

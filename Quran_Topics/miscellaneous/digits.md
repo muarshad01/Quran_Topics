@@ -391,14 +391,20 @@
 * Chatt-phar-kar milna
 * ===
 * 28:00
-* 7 - [7,16,25] - Intelligent; wahmi; illusion; sensitivty; depression; anxiety
-* Very weak marriage box; hang-shaadi
+* [7 - [7,16,25]](https://www.youtube.com/shorts/jD_De54CKek)
+* Ilhami, Rohani,
+* - Intelligent; wahmi; illusion; sensitivty; depression; anxiety
+* Very weak marriage box; hung-shaadi
 * Quaid-e-Azam
 * Depression: Ashwaganda
 * ===
 * 35:00
 * [8 - [8,17,26]](https://www.youtube.com/shorts/yTWCqSXkOC0)
-* Takhat ya Takhta; dictatorship;
+* Shahid H. Bokhari/Safia Noor Ilyas
+* Takhat ya Takhta;
+* Dictatorship;
+* Self;
+* Apni zaat-ka-gharoor;
 * ===
 * 40:00
 * 9 - [9,18,27] - Ghusay-ki-intaha

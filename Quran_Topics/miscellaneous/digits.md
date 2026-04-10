@@ -379,12 +379,14 @@
 * Ya Salaamu, Ya Mominu, Ya Allahu - 500x
 * ===
 * 19:00 
-* 5 - [5,14,23]
+* [5 - [5,14,23]](https://www.youtube.com/shorts/jgI-0AuTJcs)
 * Irfan-ul-Haq: August 14, 1946
-* Warrior; Go abroad (hijrat); Yar Baaz
 * Imran Khan: October 5, 1952
-* Ya Hayyu Ya Qayyum, Ya Latifu - 500x
-* Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
+* Most trusted friends
+* Pardasi group
+* Warrior; Go abroad (hijrat); Yar Baaz
+* Ya-Hayyu Ya-Qayyum, Ya Latifu - 500x
+* Ya-Allahu, Ya-Wakeelu, Ya-Naseeru - 500x
 * ===
 * 22:00
 * [6 - [6,15,24]](https://www.youtube.com/shorts/8UM6d8PZk5g)

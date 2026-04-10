@@ -397,7 +397,7 @@
 * Depression: Ashwaganda
 * ===
 * 35:00
-* 8 - [8,17,26]
+* [8 - [8,17,26]](https://www.youtube.com/shorts/yTWCqSXkOC0)
 * Takhat ya Takhta; dictatorship;
 * ===
 * 40:00

@@ -353,22 +353,30 @@
 ***
 
 #### [Unlock Your Hidden Personality Traits | Abdullah Bhatti](https://www.youtube.com/watch?v=U1e52diM2DM)
-* 1 - [1,10,19,28]
-* Full of talent; cholesterol; blood thickness
-* Ya Hayyu Ya Qayyum, Ya Latifu - 500x
-* Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
+* [1 - [1,10,19,28]](https://www.youtube.com/shorts/uRhscVdi6kQ)
+* Most powerful number;
+* Full of talent; har fun mula; hardworking; intelligent; complete
+* Both talent and muqaddar
+* Cholesterol; Blood thickness
+* Day: Sunday
+* Stone: Pukhraj
+* Flower: 
+* Ya-Hayyu Ya-Qayyum, Ya-Latifu - 500x
+* Ya-Allahu, Ya-Wakeelu, Ya-Naseeru - 500x
 * ===
 * 8:00
-* 2 - [2,11,20,29]
-* Art; Stomach, musches
-* Ya Azizu, Ya Salaamu - 300x
-* Ya Zaljal Wal Ikram - 300x
+* [2 - [2,11,20,29]](https://www.youtube.com/shorts/amdkqJ-zZO4)
+* Shahrukh Khan, Ahmed Nadeem Qasmi
+* Artist; Stomach, musches
+* Ya-Azizu, Ya-Salaamu - 300x
+* Ya-Zaljal Wal-Ikram - 300x
 * ===
 * [3 - [3,12,21,30]](https://www.youtube.com/shorts/zW-fEd7wQKM)
 * Syed Sarfaraz Shah: 12 June 1944
+* Benazir Bhutto; Waseek Akram; Javed Miandad
 * Business; creativity; allergy
-* Ya Razzaqu, Ya Basitu, Ya Fathu - 500x
-* Ya Ghaniu, Ya Mughniu - 500x
+* Ya-Razzaqu, Ya-Basitu, Ya-Fathu - 500x
+* Ya-Ghaniu, Ya-Mughniu - 500x
 * ===
 * 16:00
 * [4 - [4,13,22,31]](https://www.youtube.com/shorts/RdterUJg1Tk)

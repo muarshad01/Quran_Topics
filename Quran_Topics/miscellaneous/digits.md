@@ -387,7 +387,7 @@
 * Ya Allahu, Ya Wakeelu, Ya Naseeru - 500x
 * ===
 * 22:00
-* 6 - [6,15,24]
+* [6 - [6,15,24]](https://www.youtube.com/shorts/8UM6d8PZk5g)
 * Chatt-phar-kar milna
 * ===
 * 28:00

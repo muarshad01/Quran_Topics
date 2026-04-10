@@ -364,19 +364,21 @@
 * Ya Azizu, Ya Salaamu - 300x
 * Ya Zaljal Wal Ikram - 300x
 * ===
-* 3 - [3,12,21,30]
-* Business; creativity; allergy
+* [3 - [3,12,21,30]](https://www.youtube.com/shorts/zW-fEd7wQKM)
 * Syed Sarfaraz Shah: 12 June 1944
+* Business; creativity; allergy
 * Ya Razzaqu, Ya Basitu, Ya Fathu - 500x
 * Ya Ghaniu, Ya Mughniu - 500x
 * ===
 * 16:00
-* 4 - [4,13,22,31]
-* Idabi; Takhleeqi; Sohurat; kamyabi-aur-Nakami parallel
+* [4 - [4,13,22,31]](https://www.youtube.com/shorts/RdterUJg1Tk)
+* Shulah Joo
+* Struggle struggle...every thing in 2nd attempt!
+* Creativity: Idabi; Takhleeqi; Sohurat; kamyabi-aur-Nakami parallel
 * Sufi
-* Ya Hayya, Ya Qayyum, Ya Latif - 500x
-* Ya Raqeebu, Ya Hafeezu - 500x
-* Ya Salaamu, Ya Mominu, Ya Allahu - 500x
+* Ya-Hayya, Ya-Qayyum, Ya-Latif - 500x
+* Ya-Raqeebu, Ya-Hafeezu - 500x
+* Ya-Salaamu, Ya-Mominu, Ya-Allahu - 500x
 * ===
 * 19:00 
 * [5 - [5,14,23]](https://www.youtube.com/shorts/jgI-0AuTJcs)

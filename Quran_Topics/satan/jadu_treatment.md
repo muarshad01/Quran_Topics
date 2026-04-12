@@ -233,6 +233,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+#### [Kala Jadu Ka Jarr Se Khatma | 10 Nishaniyan Pehchanein | 3 Din Mein jadu Khatm | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=8UL2LvvaWJo)
+* TODO
+
+***
+
 #### [Nasl-dar-Nasl Chalne-Wale Jadu-Ka Mukammal-Khatma | Abdullah Bhatti](https://www.youtube.com/watch?v=eMmW4hyTO4k)
 * 10:00
 * [La Latifu, Ya Aleemu, Ya Khabeeru] - Recite 300-time (Before sleeping for 2/3 nights for Istikhara)

@@ -1,3 +1,7 @@
+#### [Kala Jadu Ka Jarr Se Khatma | 10 Nishaniyan Pehchanein | 3 Din Mein jadu Khatm | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=8UL2LvvaWJo)
+* TODO
+
+***
 
 #### [Ghar Paithe Khud Apne Uper Jadu Ka Tor Karen | Pir Azmat Nawaz Wazifa - Patriata Shareef Wazaif](https://www.youtube.com/watch?v=pqkhWuEQVbc)
 
@@ -230,11 +234,6 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Jaadu-Karne-Waly-Ki-Pehchan Khud Karen | Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
 * __Surah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
 * 5-or-7 nights recite 11-or-41 times and then sleep
-
-***
-
-#### [Kala Jadu Ka Jarr Se Khatma | 10 Nishaniyan Pehchanein | 3 Din Mein jadu Khatm | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=8UL2LvvaWJo)
-* TODO
 
 ***
 

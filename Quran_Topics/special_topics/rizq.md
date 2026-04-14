@@ -1,3 +1,7 @@
+### [Surah Talaq 65/2-3](https://www.youtube.com/shorts/eWFYkNGWFCg)
+
+***
+
 * [Qur’an verses on rizq](https://myislam.org/quran-verses/rizq/)
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/rizq.png" width="300" height="300" />

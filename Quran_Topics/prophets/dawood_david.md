@@ -1,3 +1,7 @@
+#### [Hazrat Dawood Ka Waiqa | Prophet Dawud Story | The King Of Jerusalem ‎| Nur verse](https://www.youtube.com/watch?v=tCKUMIOKsY8)
+
+***
+
 #### [David In Quran - 16 Ayats](https://www.thelastdialogue.org/article/the-topic-david-mentioned-in-quran/)
 
 * __Surah Al-Baqarah 2/251 (جَالُوتَ وَءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ وَٱلْحِكْمَةَ وَعَلَّمَهُۥ مِمَّا يَشَآءُ ۗ)__: [فَهَزَمُوهُم ...بِإِذْنِ ٱللَّهِ ...وَقَتَلَ دَاوُۥدُ جَالُوتَ ...وَءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ وَٱلْحِكْمَةَ وَعَلَّمَهُۥ... مِمَّا يَشَآءُ ۗ... وَلَوْلَا دَفْعُ ٱللَّهِ ٱلنَّاسَ بَعْضَهُم بِبَعْضٍۢ لَّفَسَدَتِ ٱلْأَرْضُ وَلَـٰكِنَّ ٱللَّهَ ذُو فَضْلٍ عَلَى ٱلْعَـٰلَمِينَ](https://quran.com/2/251)

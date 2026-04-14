@@ -2,6 +2,11 @@
 
 ***
 
+### [Tooth Pain Removal](https://www.youtube.com/shorts/3mPGFc9wUQ4)
+* Loang + Garlic
+
+***
+
 #### [Ganj Pan Ka Elaj Mumkin? | Farah Iqrar](https://www.youtube.com/watch?v=s3xvG0qu0z4)
 
 ***

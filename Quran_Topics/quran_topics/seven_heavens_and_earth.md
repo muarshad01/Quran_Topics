@@ -49,5 +49,6 @@
 * __Protrusive__, or more accurately, __the oscillatory movement of Earth’s inner core__, involves the solid inner core shifting back and forth by a few kilometers every six years. This movement is distinct from the surface, driven by differences in rotation speed between the core and mantle, and influences the length of the day and magnetic fields. 
 
 * Ostrich eggs, oval shape
+* Geo-Physics
 
 ***

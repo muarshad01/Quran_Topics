@@ -1,3 +1,10 @@
+#### Sample High-Fiber Low-Carb Meal Idea
+* Breakfast: Scrambled eggs with spinach, avocado, and chia seeds.
+* Lunch: Salad with leafy greens, chicken, mixed nuts, and olive oil dressing.
+* Dinner: Baked salmon with roasted asparagus and broccoli. 
+
+***
+
 #### [4 Best Seeds To Reduce Inflammation & Lose Weight Fast](https://www.youtube.com/watch?v=-vg5SjkayaU)
 
 ***

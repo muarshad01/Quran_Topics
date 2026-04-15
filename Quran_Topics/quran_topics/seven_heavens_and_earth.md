@@ -46,5 +46,5 @@
 #### [Narrated Quran's Miracle | Abdul Salam Arif](https://www.youtube.com/watch?v=0VnZP_o12J8)
 * __Surah Ar-Rad 13/41 (أَنَّا نَأْتِى ٱلْأَرْضَ نَنقُصُهَا مِنْ أَطْرَافِهَا)__: [أَوَلَمْ يَرَوْا۟ ...أَنَّا نَأْتِى ٱلْأَرْضَ نَنقُصُهَا مِنْ أَطْرَافِهَا ۚ... وَٱللَّهُ يَحْكُمُ لَا مُعَقِّبَ لِحُكْمِهِۦ ۚ وَهُوَ سَرِيعُ ٱلْحِسَابِ](https://quran.com/13/41)
 * __Surah Al-Anbya 21/44 (أَنَّا نَأْتِى ٱلْأَرْضَ نَنقُصُهَا مِنْ أَطْرَافِهَا)__: [بَلْ مَتَّعْنَا هَـٰٓؤُلَآءِ وَءَابَآءَهُمْ حَتَّىٰ طَالَ عَلَيْهِمُ ٱلْعُمُرُ ۗ أَفَلَا يَرَوْنَ ...أَنَّا نَأْتِى ٱلْأَرْضَ نَنقُصُهَا مِنْ أَطْرَافِهَآ ۚ... أَفَهُمُ ٱلْغَـٰلِبُونَ](https://quran.com/21/44)
-
+* __Protrusive__, or more accurately, __the oscillatory movement of Earth’s inner core__, involves the solid inner core shifting back and forth by a few kilometers every six years. This movement is distinct from the surface, driven by differences in rotation speed between the core and mantle, and influences the length of the day and magnetic fields. 
 ***

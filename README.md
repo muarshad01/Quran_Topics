@@ -234,6 +234,7 @@
 | 8. | [Water](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/water.md) | 07/01/2026 |
 | 9. | [Fish](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/fish.md) | 07/01/2026 |
 | 10. | [Plants](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/plants.md) | 07/01/2026 |
+| 11. | [Moon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/moon.md) | 05/01/2026 |
 | 11. | [Stars](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/miscellaneous/stars.md) | 05/01/2026 |
 | 12. | [East and West](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/east_and_west.md) | 07/01/2026 |
 | 13. | [Types of Clay (Teen, Turab, Salsal)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/teen_turab_salsal.md) | 18/01/2026 | 

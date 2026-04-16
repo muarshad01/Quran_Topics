@@ -13,6 +13,8 @@
 | Ishraq   | After Sun Rise|
 | Chasht   | Couple hrs before Zuhr Prayers|
 
+* [Nafal Namaz](https://www.youtube.com/shorts/ESKy_yBm5q8)
+
 ***
 
 #### [Story by Maulan Rumi](https://www.youtube.com/shorts/UsoMVI7LIMg)

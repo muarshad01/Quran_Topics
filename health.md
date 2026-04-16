@@ -11,6 +11,7 @@
 
 ### [Tooth Pain Removal](https://www.youtube.com/shorts/3mPGFc9wUQ4)
 * Loang + Garlic
+* [7-Second Trick Fastest Tooth Pain Relief Ever - Most Effective & Natural Remedy](https://www.youtube.com/watch?v=a7cn8mz7zLI)
 
 ***
 

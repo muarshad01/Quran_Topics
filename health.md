@@ -1,7 +1,7 @@
 #### Sample High-Fiber Low-Carb Meal Idea
-* Breakfast: Scrambled eggs with spinach, avocado, and chia seeds.
-* Lunch: Salad with leafy greens, chicken, mixed nuts, and olive oil dressing.
-* Dinner: Baked salmon with roasted asparagus and broccoli. 
+* __Breakfast__: Scrambled eggs with spinach, avocado, and chia seeds.
+* __Lunch__: Salad with leafy greens, chicken, mixed nuts, and olive oil dressing.
+* __Dinner__: Baked salmon with roasted asparagus and broccoli. 
 
 ***
 

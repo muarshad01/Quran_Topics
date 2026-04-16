@@ -1,3 +1,7 @@
+#### [Global Power Shift: Pakistan To Become Superpower | SSA Shah](https://www.youtube.com/watch?v=aPB-FOd111g)
+
+***
+
 #### [Sufi Barkat Prediction Came True, What Will Happened In 2026? Sarfraz Ahmad | Suno Round Up | EP 272](https://www.youtube.com/watch?v=cmxvvSWhP3g)
 * Karachi - gateway to East
 * Karachi Port - Hub

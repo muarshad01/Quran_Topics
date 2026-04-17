@@ -1,3 +1,7 @@
+#### [Pakistan Becoming a Global Power | Faith, Prayer, Success Interview of SSA Shah](https://www.youtube.com/watch?v=OrCUKMiygGc)
+
+***
+
 #### [Global Power Shift: Pakistan To Become Superpower  (Apr 2026)| SSA Shah](https://www.youtube.com/watch?v=aPB-FOd111g)
 * __This is just the satart...Pakistan has to achieve great heights...its just the beginning...__
   * Matter of only a few months now

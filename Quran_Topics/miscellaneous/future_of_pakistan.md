@@ -1,5 +1,5 @@
 #### [Global Power Shift: Pakistan To Become Superpower  (Apr 2026)| SSA Shah](https://www.youtube.com/watch?v=aPB-FOd111g)
-* $$\textcolor{red}{This is just the start...Pakistan has to achieve great heights...its just beginning...}$$
+* $\color{red}{This is just the start...Pakistan has to achieve great heights...its just beginning...}$
 * Perhaps not long-term peace...
 * Muslim UN
 * Is will be very soon Zaleel-o-Khawar...

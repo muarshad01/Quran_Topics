@@ -1,3 +1,10 @@
+#### [Abdullah Bhatti ](https://www.youtube.com/shorts/mdgDpuwN5cI)
+* Surah Yunu 81 (11 time)
+* Ya Raqeebu, Ya Hafeezu
+* Ya Salaamu Ya Mominu Ya Allahu
+
+***
+
 #### [Kala Jadu Ka Jarr Se Khatma | 10 Nishaniyan Pehchanein | 3 Din Mein jadu Khatm | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=8UL2LvvaWJo)
 * TODO
 

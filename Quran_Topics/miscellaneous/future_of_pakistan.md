@@ -1,3 +1,7 @@
+#### [Sufi Barkat Ali prediction about the future of Pakistan | SSA Shah](https://www.youtube.com/watch?v=3yOrOmEPWPo)
+
+***
+
 #### [Zabardast With Wasi Shah | Sarfraz Shah (April 2026)](https://www.youtube.com/watch?v=ZBia1cYQsIc)
 
 ***

@@ -1,3 +1,7 @@
+#### [Khatarnaak Guilty Ka Raaz Aur 7 Din Ka Amal | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=J4veQfSyg0M)
+
+***
+
 #### Sample High-Fiber Low-Carb Meal Idea
 * __Breakfast__: Scrambled eggs with spinach, avocado, and chia seeds.
 * __Lunch__: Salad with leafy greens, chicken, mixed nuts, and olive oil dressing.

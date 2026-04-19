@@ -1,3 +1,9 @@
+#### [Who Is Jealous of You? Black Magic Signs at Home or Office | ft. Abdullah Bhatti](https://www.youtube.com/watch?v=2um-YLR5X0M)
+* Ya Latifu, Ya Aleemu, Ya Khabeera (3-Tasbeeh 3-nights)
+* __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+
+***
+
 #### [Abdullah Bhatti ](https://www.youtube.com/shorts/mdgDpuwN5cI)
 * Surah Yunu 81 (11 time)
 * Ya Raqeebu, Ya Hafeezu

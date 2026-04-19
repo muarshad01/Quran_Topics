@@ -1,3 +1,10 @@
+#### Autism
+* [Abdullah Bhatti](https://www.youtube.com/shorts/FfzaaY-vPTA)
+  * __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
+  * 351-time
+
+***
+
 #### [Khatarnaak Guilty Ka Raaz Aur 7 Din Ka Amal | FT: Professor Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=J4veQfSyg0M)
 
 ***

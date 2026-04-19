@@ -1,3 +1,7 @@
+#### [Abdullah Bhatti](https://www.youtube.com/shorts/dhDXrEolGbU)
+* Kalonji - surah yunus ayat 81
+***
+
 #### Autism
 * [Abdullah Bhatti](https://www.youtube.com/shorts/FfzaaY-vPTA)
   * __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)

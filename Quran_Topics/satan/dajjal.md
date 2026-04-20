@@ -198,6 +198,8 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 #### [Crypto, Credit Cards & Dajjal: Hidden Signs?  (Apr 2026) | Abdul Salam Arif](https://www.youtube.com/watch?v=qrll1F1Nb34)
 * Ilah versus Rubb
   * Ilah: whose Law you follow
+  * Rubb: Who gives finance
+* Prophet PBUH systes has zero inflation. Intrinsic value!
 
 ***
 

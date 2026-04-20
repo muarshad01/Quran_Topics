@@ -195,8 +195,9 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ***
 
 ## Abdul Salam Arif
-
-* [Crypto, Credit Cards & Dajjal: Hidden Signs? | Abdul Salam Arif](https://www.youtube.com/watch?v=qrll1F1Nb34)
+#### [Crypto, Credit Cards & Dajjal: Hidden Signs?  (Apr 2026) | Abdul Salam Arif](https://www.youtube.com/watch?v=qrll1F1Nb34)
+* Ilah versus Rubb
+  * Ilah: whose Law you follow
 
 ***
 

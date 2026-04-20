@@ -200,6 +200,7 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
   * Ilah: whose Law you follow
   * Rubb: Who gives finance
 * Prophet PBUH systes has zero inflation. Intrinsic value!
+* __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ ...وَلَـٰكِن رَّسُولَ ٱللَّهِ وَخَاتَمَ ٱلنَّبِيِّـۧنَ ۗ... وَكَانَ ٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمًۭا](https://quran.com/33/40)
 
 ***
 

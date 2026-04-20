@@ -202,7 +202,12 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 * Prophet PBUH systes has zero inflation. Intrinsic value!
 * __Surah Al-Ahzab 33/40__: [مَّا كَانَ مُحَمَّدٌ أَبَآ أَحَدٍۢ مِّن رِّجَالِكُمْ ...وَلَـٰكِن رَّسُولَ ٱللَّهِ وَخَاتَمَ ٱلنَّبِيِّـۧنَ ۗ... وَكَانَ ٱللَّهُ بِكُلِّ شَىْءٍ عَلِيمًۭا](https://quran.com/33/40)
 * Dhul-Qarnayn (Arabic: ذُو ٱلْقَرْنَيْن) - The one who lives in two times/spaces!!
-
+```
+Kisi Yakjai Se Ab Ehd-e-Ghulami Kar Lo
+Millat-e-Ahmad (S.A.W.) Ko Maqami Kar Lo!
+Go, seek some constant mistress now, to her a new bond sign,
+Muhammad’s universal creed to narrow bounds confine!
+```
 ***
 
 #### [Dajjal 3 Questions | Relation Between Dajjal Island & Pakistan? | Dr. Abdus Salam](https://www.youtube.com/watch?v=CKl7GFSJPXQ)

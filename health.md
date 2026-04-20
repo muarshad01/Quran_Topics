@@ -1,3 +1,12 @@
+#### [Anxiety, Depression - Abdullah Bhatti](https://www.youtube.com/shorts/nK2Rs1mTvzc)
+1. Ya Salaamu, Ya Mominu, Ya Allahu
+2. Ya Raqeebu, Ya Hafeezu
+3. La Hawla Wa La Quwata Illah Billah
+4. Darood Sharif
+5. Barri Tree Leaves!!!
+
+***
+
 #### [Abdullah Bhatti](https://www.youtube.com/shorts/dhDXrEolGbU)
 * Kalonji - surah yunus ayat 81
 ***

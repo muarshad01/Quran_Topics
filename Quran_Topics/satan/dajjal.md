@@ -205,9 +205,16 @@ Ibn Sayyad (Saf ibn Sayyad) was a figure during Prophet Muhammad's time suspecte
 ```
 Kisi Yakjai Se Ab Ehd-e-Ghulami Kar Lo
 Millat-e-Ahmad (S.A.W.) Ko Maqami Kar Lo!
+
 Go, seek some constant mistress now, to her a new bond sign,
 Muhammad’s universal creed to narrow bounds confine!
 ```
+
+* __Surah At-Tawbah 9/33__: [هُوَ ٱلَّذِىٓ أَرْسَلَ رَسُولَهُۥ بِٱلْهُدَىٰ وَدِينِ ٱلْحَقِّ لِيُظْهِرَهُۥ عَلَى ٱلدِّينِ كُلِّهِۦ... وَلَوْ كَرِهَ ٱلْمُشْرِكُونَ](https://quran.com/9/33)
+* __Surah Al-Fath 48/28__: [هُوَ ٱلَّذِىٓ أَرْسَلَ رَسُولَهُۥ بِٱلْهُدَىٰ وَدِينِ ٱلْحَقِّ لِيُظْهِرَهُۥ عَلَى ٱلدِّينِ كُلِّهِۦ ۚ... وَكَفَىٰ بِٱللَّهِ شَهِيدًۭا](https://quran.com/48/28)
+* __Surah As-Saf 61/9__: [هُوَ ٱلَّذِىٓ أَرْسَلَ رَسُولَهُۥ بِٱلْهُدَىٰ وَدِينِ ٱلْحَقِّ لِيُظْهِرَهُۥ عَلَى ٱلدِّينِ كُلِّهِۦ... وَلَوْ كَرِهَ ٱلْمُشْرِكُونَ](https://quran.com/61/9)
+
+
 ***
 
 #### [Dajjal 3 Questions | Relation Between Dajjal Island & Pakistan? | Dr. Abdus Salam](https://www.youtube.com/watch?v=CKl7GFSJPXQ)

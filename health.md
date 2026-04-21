@@ -3,7 +3,7 @@
 * Flaxseed (1/2 tea spoon at breakfast)
 * Aloe Veera
 * __Almond oil + cocunut oil + castor oil + sharsoon oil = mix all__
-* Neem leaves boil and pour water on head
+* __Neem leaves boil and pour water on head__
 * Liver: arq kasni + Arq Makoh 
 
 ***

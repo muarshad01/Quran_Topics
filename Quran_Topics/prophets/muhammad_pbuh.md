@@ -1,3 +1,7 @@
+* [Favourite Darood Sharif | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=fmQsIjwFTbc)
+
+***
+
 #### [Roza-e-Rasool Par Hazri Ka Maqbra | Irfan-ul-Haq](https://www.youtube.com/watch?v=md3KdXqYJIE))
 * TODO
 

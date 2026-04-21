@@ -4,7 +4,7 @@
 * Aloe Veera
 * __Almond oil + cocunut oil + castor oil + sharsoon oil = mix all__
 * __Neem leaves boil and pour water on head__
-* Liver: arq kasni + Arq Makoh 
+* Liver: Arq kasni + Arq Makoh (First Ayat of Surah Hadid 101 times)
 
 ***
 

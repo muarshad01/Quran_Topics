@@ -7,6 +7,7 @@
 * __FAQEER__ par lazim hai, woh Rabb ki Zameen par chal kar, cheezon ka mushahida karay. --H. Bakhtiar Kaka
 * __FAQEER__ par __LAZIM__ hai, woh khalq-e-khuda say __DOAR__-rahey aur __KAM-say-KAM__ loogaon say mail-jool rakhay. -- Hazrat Bakhtiyar Kaki
 * __FAQEER__ kabhi mudai-nahi-bantaa. Kabhi kisi-ki-shakayat nahi-karta.
+* __FAQEER__ ki shaan hai keh uskay-dukh kabhi dikahi-nahay deyn-geh.
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * __THINK__ in SOLITUDE.
 * __FOCUS__ on `Ghor-o-Fikr`

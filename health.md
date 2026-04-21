@@ -1,3 +1,10 @@
+#### [Safeed Balon Se Chutkara Kese Hasil Karein? | Farah Iqrar](https://www.youtube.com/watch?v=a57G2ysxiAY)
+* Amla...
+* Cancer got cured: Amla juice, Neem leaves, Guave leaves, Paan leves
+* Harar murabba (Chebulic myrobalan or black myrobalan is known in Hindi as Harad (हरड़) or Harra (हर्रा))
+
+***
+
 #### [How To Force Your Body To Melt Visceral Fat With Zero Cortisol](https://www.youtube.com/watch?v=CZlFXbYLr7w)
 
 ***

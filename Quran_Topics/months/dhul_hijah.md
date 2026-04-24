@@ -1,4 +1,8 @@
 #### [Zilhaj ke Amaal | Zilhaj ke pehle 10 din ke Amaal | Ch Rukhsar Latif](https://www.youtube.com/watch?v=aeGVMIl0Zq8)
+* Surah Muzzamil
+* Surah Kausar
+* Surah Tariq
+* Surah Fatiha
 
 ***
 

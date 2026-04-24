@@ -1,3 +1,7 @@
+#### [Zilhaj ke Amaal | Zilhaj ke pehle 10 din ke Amaal | Ch Rukhsar Latif](https://www.youtube.com/watch?v=aeGVMIl0Zq8)
+
+***
+
 #### [The Special Worship of the 10 Nights of Dhul-Hijjah | !ذی الحجہ کی 10 راتوں کا خاص عمل | SSA Shah](https://www.youtube.com/watch?v=oSxRHyrvrbo)
 
 ***

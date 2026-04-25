@@ -1,3 +1,8 @@
+#### [Puri Dunya Kay Faislay Pakistan Karay Ga (Apr 2026)| SSA Shah](https://www.youtube.com/watch?v=gAgknYWva_s)
+* Syed Abdul Latif Kazmi Qadiri, often referred to as Bari Imam or Bari Sarkar (1617 – 1705)
+
+***
+
 #### [Sufi Barkat Ali prediction about the future of Pakistan | Sufi Barkat Ali](https://www.youtube.com/watch?v=gaxdz-Lrw_0)
 
 ***

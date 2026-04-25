@@ -1,5 +1,9 @@
 #### [Puri Dunya Kay Faislay Pakistan Karay Ga (Apr 2026)| SSA Shah](https://www.youtube.com/watch?v=gAgknYWva_s)
 * Syed Abdul Latif Kazmi Qadiri, often referred to as Bari Imam or Bari Sarkar (1617 – 1705)
+* __Surah At-Talq 65/3__: [إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ... قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا](https://quran.com/65/3)
+ * Evolution (Allah SWT) versus Revulotion
+ * Big Ship Speed versus Small Boat Speed - Momention
+   
 
 ***
 

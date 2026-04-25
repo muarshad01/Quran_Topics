@@ -278,15 +278,6 @@
 
 ***
 
-#### [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
-* __Surah Al-Baqarah 2/65 (ٱلسَّبْتِ...كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ٱلسَّبْتِ فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
-* __Surah An-Nahl 16/124 (Sabbath)__: [إِنَّمَا جُعِلَ ٱلسَّبْتُ عَلَى ٱلَّذِينَ ٱخْتَلَفُوا۟ فِيهِ ۚ وَإِنَّ رَبَّكَ لَيَحْكُمُ بَيْنَهُمْ يَوْمَ ٱلْقِيَـٰمَةِ فِيمَا كَانُوا۟ فِيهِ يَخْتَلِفُونَ](https://quran.com/16/124)
-* Saturday is for Ibadah and no Business
-* Old people became Pigs
-* Young people became Monkeys
-
-***
-
 #### [Bani Israel Ke Jhootay Daaway | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=VZVbog51giU)
 * __Surah Al-Baqarah 2/91__: [وَإِذَا قِيلَ لَهُمْ ءَامِنُوا۟ بِمَآ أَنزَلَ ٱللَّهُ قَالُوا۟ نُؤْمِنُ بِمَآ أُنزِلَ عَلَيْنَا وَيَكْفُرُونَ بِمَا وَرَآءَهُۥ وَهُوَ ٱلْحَقُّ مُصَدِّقًۭا لِّمَا مَعَهُمْ ۗ قُلْ فَلِمَ تَقْتُلُونَ أَنۢبِيَآءَ ٱللَّهِ مِن قَبْلُ إِن كُنتُم مُّؤْمِنِينَ](https://quran.com/2/91)
 * __Surah Al-Jumuah 62/6__: [قُلْ يَـٰٓأَيُّهَا ٱلَّذِينَ هَادُوٓا۟ إِن زَعَمْتُمْ أَنَّكُمْ أَوْلِيَآءُ لِلَّهِ مِن دُونِ ٱلنَّاسِ فَتَمَنَّوُا۟ ٱلْمَوْتَ إِن كُنتُمْ صَـٰدِقِينَ](https://quran.com/62/6)
@@ -351,6 +342,11 @@
 ***
 
 ## Sabbath Ayats
+
+* [Hazrat Dawood AS Aur Mulk Sham Kay Machry | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=J9kc3Nj617U)
+  * Saturday is for Ibadah and no Business
+  * Old people became Pigs
+  * Young people became Monkeys
 
 * __Surah Al-Baqarah 2/65 (Sabbath)__: [وَلَقَدْ عَلِمْتُمُ ٱلَّذِينَ ٱعْتَدَوْا۟ مِنكُمْ فِى ..ٱلسَّبْتِ... فَقُلْنَا لَهُمْ كُونُوا۟ قِرَدَةً خَـٰسِـِٔينَ](https://quran.com/2/65)
 

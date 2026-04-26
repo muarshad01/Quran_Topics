@@ -26,6 +26,7 @@
 * People will respect you when you will first respect yourself...
 * Stop having approval of people...
 * Become your own hero
+* Make solitude your TEACHER
 * 
 
 ***

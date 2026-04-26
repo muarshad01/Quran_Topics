@@ -20,6 +20,10 @@
 ***
 
 * [Tanhai Ko Apni Taaqat Bana Lo | 5 Raaz Jo Zindagi Badal Dein | Wasif Ali Wasif](https://www.youtube.com/watch?v=Un0JLGZaeQI)
+* Tanhai mayn khud ko talaash karna
+* Joo khud say mil gaya, woh kabi tanha nahi hota
+* Apni qadar banao, dastayabi kam karo
+* Loag apki qadar tab kartay hayn, jab aap khub apni qadar kartay hayn 
 
 ***
 

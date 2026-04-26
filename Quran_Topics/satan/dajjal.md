@@ -583,4 +583,12 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
+* [The Island of Dajjal: Iblees k Takht ka Muqam | Signs of End Times | Ft. Dr.Muhammad Hammad Lakhvi](https://www.youtube.com/watch?v=FWxlG_wijBY)
+
+***
 #### [The Secret of Prophet Sulaimān (AS)’s Soundless Temple | Explained by Sahil Adeem](https://www.youtube.com/watch?v=I2_qYBGOBnU)
+
+***
+
+
+

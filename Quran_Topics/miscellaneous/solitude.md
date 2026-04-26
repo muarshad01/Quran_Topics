@@ -19,6 +19,10 @@
 
 ***
 
+* [Tanhai Ko Apni Taaqat Bana Lo | 5 Raaz Jo Zindagi Badal Dein | Wasif Ali Wasif](https://www.youtube.com/watch?v=Un0JLGZaeQI)
+
+***
+
 #### [](https://www.youtube.com/shorts/3mKd3MZTvh4)
 * Ibadah has 10 parts:
 1. 9-parts are silence

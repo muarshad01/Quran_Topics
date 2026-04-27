@@ -1,4 +1,8 @@
-#### [Puri Dunya Kay Faislay Pakistan Karay Ga (Apr 2026)| SSA Shah](https://www.youtube.com/watch?v=gAgknYWva_s)
+#### [Khatarnak Surat e Haal - Pakistan Ka Bara Imtehan (Apr 2026) | SSA Shah](https://www.youtube.com/watch?v=9x0h940LwG0)
+
+***
+
+#### [Puri Dunya Kay Faislay Pakistan Karay Ga (Apr 2026) | SSA Shah](https://www.youtube.com/watch?v=gAgknYWva_s)
 * Syed Abdul Latif Kazmi Qadiri, often referred to as Bari Imam or Bari Sarkar (1617 – 1705)
 Shaikh Abdul Haq Muhaddis Dehlvi (1551–1642)
 Sufi Muhammad Barkat Ali Ludhianvi (1911- 1997)

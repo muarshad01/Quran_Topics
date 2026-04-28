@@ -1,3 +1,7 @@
+#### [Iran vs Superpowers - America Iran Ke Samne Bebas | SSA Shah](https://www.youtube.com/watch?v=H2gaQk8Uf34)
+
+***
+
 #### [Khatarnak Surat e Haal - Pakistan Ka Bara Imtehan (Apr 2026) | SSA Shah](https://www.youtube.com/watch?v=9x0h940LwG0)
 
 ***

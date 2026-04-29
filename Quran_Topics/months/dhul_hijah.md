@@ -1,3 +1,7 @@
+#### [Transform Your Life in First 10 Days of Dhul Hijjah | Special Surah Muzammil Amal | Ch Rukhsar Latif](https://www.youtube.com/watch?v=6I16-ytVW4o)
+
+***
+
 #### [Zilhaj ke Amaal | Zilhaj ke pehle 10 din ke Amaal | Ch Rukhsar Latif](https://www.youtube.com/watch?v=aeGVMIl0Zq8)
 * Surah Muzzamil
 * Surah Kausar

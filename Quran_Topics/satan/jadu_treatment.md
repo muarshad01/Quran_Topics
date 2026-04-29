@@ -3,7 +3,7 @@
 2. Ya-Raqeebu Ya-Hafeezu - 5 tasbeeh
 3. Ya-Jabbaru Ya-Qaharru - 5 tasbeeh
 4. Ya-Muzillyu Ya-Mumitu - 5 tasbeeh
-5. * __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)  
+5. * __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)  - 5 tasbeeh
    
 ***
 

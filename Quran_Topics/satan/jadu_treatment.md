@@ -1,3 +1,7 @@
+#### [Your Black Magic Enemy Will Beg Forgiveness! | Dharam Nath’s Shocking Defeat | Abdullah Bhatti](https://www.youtube.com/watch?v=zzLP-RVfRlg)
+
+***
+
 #### [ Tasbeeh for Protectoin | Abdullah Bhatti](https://www.youtube.com/shorts/SSjDucoXhbI)
 
 ***

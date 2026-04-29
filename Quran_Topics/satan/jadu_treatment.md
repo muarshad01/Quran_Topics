@@ -1,5 +1,5 @@
 #### [Your Black Magic Enemy Will Beg Forgiveness! | Dharam Nath’s Shocking Defeat | Abdullah Bhatti](https://www.youtube.com/watch?v=zzLP-RVfRlg)
-1. Surah Yaseen - 7 Mubeen - Every Mubeen 11 time! (7 days after Isha!)
+1. Surah Yaseen - 7 Mubeen - Repeat every Mubeen 11 time (after Isha for 7 days!)
 2. Ya-Raqeebu Ya-Hafeezu - 5 tasbeeh
 3. Ya-Jabbaru Ya-Qaharru - 5 tasbeeh
 4. Ya-Muzillyu Ya-Mumitu - 5 tasbeeh

@@ -1,5 +1,10 @@
 #### [Your Black Magic Enemy Will Beg Forgiveness! | Dharam Nath’s Shocking Defeat | Abdullah Bhatti](https://www.youtube.com/watch?v=zzLP-RVfRlg)
-
+1. Surah Yaseen - 7 Mubeen - Every Mubeen 11 time! (7 days after Isha!)
+2. Ya-Raqeebu Ya-Hafeezu - 5 tasbeeh
+3. Ya-Jabbaru Ya-Qaharru - 5 tasbeeh
+4. Ya-Muzillyu Ya-Mumitu - 5 tasbeeh
+5. * __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)  
+   
 ***
 
 #### [ Tasbeeh for Protectoin | Abdullah Bhatti](https://www.youtube.com/shorts/SSjDucoXhbI)

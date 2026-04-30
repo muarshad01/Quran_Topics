@@ -1,3 +1,7 @@
+* [ Why No Sajda | Allama Talib Juhri](https://www.youtube.com/shorts/hmUBHzC0LIA)
+
+***
+
 #### Argument
 
 * __Surah Al-Baqarah 2/30-39__: [](https://quran.com/2/30-39)
@@ -7,5 +11,9 @@
 * __Surah Hijar 15/32-44__: [](https://quran.com/15/32-44)
 
 * __Surah Taha 20/120-121__: [](https://quran.com/20/120-121)
+
+***
+
+* __Surah Sad 38/75 (أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ)__: [قَالَ يَـٰٓإِبْلِيسُ مَا مَنَعَكَ أَن تَسْجُدَ لِمَا خَلَقْتُ بِيَدَىَّ ۖ ...أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ](https://quran.com/38/75)
 
 ***

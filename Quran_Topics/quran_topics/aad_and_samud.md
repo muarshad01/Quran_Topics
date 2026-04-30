@@ -192,3 +192,13 @@
 
 #### [Samud | 
 قصة سيدنا صالح وناقة الله كاملة | لماذا عقر قوم ثمود الناقة؟](https://www.youtube.com/watch?v=vc6xy5nDc20)
+
+
+***
+
+#### Hamstrung
+* __Surah __: [](https://quran.com/7/77)
+* __Surah __: [](https://quran.com/11/65)
+* __Surah __: [](https://quran.com/26/157)
+
+*** 

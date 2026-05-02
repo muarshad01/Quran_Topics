@@ -1,3 +1,7 @@
+#### [Powerful Dhul Hijjah Wazifa | Allah’s 2 Beautiful Names | Special Amal On Knife | Ch. Rukhsar Latif](https://www.youtube.com/watch?v=639t2XlBw80)
+
+***
+
 #### [Transform Your Life in First 10 Days of Dhul Hijjah | Special Surah Muzammil Amal | Ch Rukhsar Latif](https://www.youtube.com/watch?v=6I16-ytVW4o&t=130s)
 
 ***

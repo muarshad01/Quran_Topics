@@ -8,6 +8,11 @@
 
 ***
 
+#### [ 7- Mubee| Abdullah Bhatti](https://www.youtube.com/shorts/nR2qYc_lWeM)
+* For Dushman, At ALL 7 Mubeen, repeat Mubeen 11-time.
+
+***
+
 #### [Remember Allah In Hard Time..| Prof ARA](https://www.youtube.com/watch?v=qpV8dowbTjE)
 
 ***

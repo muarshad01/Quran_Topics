@@ -32,6 +32,7 @@
 
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/surah_al_baqarah/cow/cow-ayats-49-50.png" width="500" height="300" />
 
+***
 
 #### [Firon K Murgo Ne Azan Kyu Na Di? | Ajeeb Qissa | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=SFqnDwO1cOA)
 * __Surah Al-Baqarah 2/49 (We delivered you from the people of Pharaoh)__: [وَإِذْ نَجَّيْنَـٰكُم مِّنْ ءَالِ فِرْعَوْنَ يَسُومُونَكُمْ سُوٓءَ ٱلْعَذَابِ يُذَبِّحُونَ أَبْنَآءَكُمْ وَيَسْتَحْيُونَ نِسَآءَكُمْ ۚ وَفِى ذَٰلِكُم بَلَآءٌۭ مِّن رَّبِّكُمْ عَظِيمٌۭ](https://quran.com/2/49) 
@@ -40,7 +41,6 @@
 * __Surah Al-Baqarah 2/51 (We appointed 40-nights for Moses)__: [وَإِذْ وَٰعَدْنَا مُوسَىٰٓ أَرْبَعِينَ لَيْلَةًۭ ثُمَّ ٱتَّخَذْتُمُ ٱلْعِجْلَ مِنۢ بَعْدِهِۦ وَأَنتُمْ ظَـٰلِمُونَ](https://quran.com/2/51) 
 * __Surah Al-Baqarah 2/52__: [ثُمَّ عَفَوْنَا عَنكُم مِّنۢ بَعْدِ ذَٰلِكَ لَعَلَّكُمْ تَشْكُرُونَ](https://quran.com/2/52) 
 * __Surah Ash Shuara 26/62__: [قَالَ كَلَّآ ۖ إِنَّ مَعِىَ رَبِّى سَيَهْدِينِ](https://quran.com/26/62)
-
 
 ***
 

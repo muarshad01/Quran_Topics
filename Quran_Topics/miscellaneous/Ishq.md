@@ -16,8 +16,7 @@
 #### [Bang-e-dara: 59 | Tere Ishq Ki Intaha Chahta Hun | علامہ اقبال | Allama Iqbal ](https://www.youtube.com/watch?v=GJxRzi48FJM)
 
 <p align="center">
-<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/iqbal/terey-ishq-ki-intaha.png
-" width="300" height="300" />
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/iqbal/terey-ishq-ki-intaha.png" width="300" height="600" />
 </p>
 
 ***

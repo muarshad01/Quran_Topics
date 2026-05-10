@@ -13,6 +13,10 @@
 
 ***
 
+#### [Bang-e-dara: 59 | Tere Ishq Ki Intaha Chahta Hun | علامہ اقبال | Allama Iqbal ](https://www.youtube.com/watch?v=GJxRzi48FJM)
+
+***
+
 #### [Girtay hayn sajdon mayh hum...| Allama Iqbal](https://www.youtube.com/shorts/30kAvMu-zgg)
 
 ***

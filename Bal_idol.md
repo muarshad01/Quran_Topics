@@ -1,3 +1,7 @@
+#### [IHazrat Khizr & Final Signs | Dr. Shahid Masood Series](https://www.youtube.com/watch?v=9krNAywYzWY)
+
+***
+
 #### [How the Idol of Uzza Was Destroyed | Hazrat Khalid bin Waleed (RA) vs the Jinn Story By AjmiBoys](https://www.youtube.com/watch?v=extD1gzsBXY)
 
 ***

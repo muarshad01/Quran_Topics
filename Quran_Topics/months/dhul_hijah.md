@@ -1,4 +1,6 @@
 #### [10 Powerful Dhul Hijjah Wazaif & Hidden Secrets | Surah Yaseen Zakat | Abdullah Bhatti](https://www.youtube.com/watch?v=vM451MXojEo)
+* quran.com/36 - 41-time - 10 days
+* quran.com/36/58
 
 ***
 

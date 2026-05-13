@@ -1,5 +1,11 @@
 The conversation between Allah and Satan (Iblis) regarding his refusal to prostrate to Adam is a major theme repeated in the Quran to emphasize human testing and arrogance. Scholars note this narrative, including the dialogue and subsequent expulsion of Iblis, occurs at least seven times in different Surahs: 2, 7, 15, 17, 18, 20, and 38.
 
+***
+
+* [ | Allama Talib Johri](https://www.youtube.com/shorts/hmUBHzC0LIA)
+
+***
+
 Key Surahs Listing the Conversation:
 * __Surah Al-Baqarah 2/30–39__: The initial command and refusal.
 * __Surah Al-Araf 7/11–18__: Iblis claims superiority (fire vs. clay) and vows to mislead humanity.

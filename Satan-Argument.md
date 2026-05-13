@@ -3,6 +3,8 @@ The conversation between Allah and Satan (Iblis) regarding his refusal to prostr
 ***
 
 * [ | Allama Talib Johri](https://www.youtube.com/shorts/hmUBHzC0LIA)
+* Superior versus Inferior
+* You acceopt my Tauheed but you refuse my Justice
 
 ***
 

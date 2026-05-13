@@ -590,5 +590,10 @@ __Surah Ali-Imran 3/75 (Dinar- Gold Coin (بِدِينَارٍۢ))__: [۞ وَم
 
 ***
 
+#### [Dajjal 400 Saal Pehle Azad Ho Chuka Hai | Yajooj Majooj Ka Lashkar 😱| Khalid Mehmood Abbasi](https://www.youtube.com/watch?v=_ZdLtD7MMgQ)
 
+***
 
+#### [Dajjal ke Teen Zamanay – Kya Aakhri Zamana Qareeb Hai? | Khalid Mehmood Abbasi](https://www.youtube.com/watch?v=nfsTUV335qs)
+
+***

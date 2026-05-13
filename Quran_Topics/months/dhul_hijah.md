@@ -1,3 +1,7 @@
+#### [10 Powerful Dhul Hijjah Wazaif & Hidden Secrets | Surah Yaseen Zakat | Abdullah Bhatti](https://www.youtube.com/watch?v=vM451MXojEo)
+
+***
+
 #### [ | Abdullah Bhatti](https://www.youtube.com/shorts/V8xQkqFdKDo)
 
 ***

@@ -160,6 +160,10 @@
 2. Ya-Ghaffru
 3. Ya-Ghafooru
 
+* [Clouds (ٱلْغَمَامَ)](quran.com/2/57)
+* [Rain (as mercy): غَيْث (Ghayth)](quran.com/57/20)
+
+
 ***
 
 #### [Alphabet “FAA - 20”](https://www.youtube.com/watch?v=kNcY6c5p47Q)

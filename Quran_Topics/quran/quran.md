@@ -7,6 +7,13 @@
 
 ***
 
+#### Quran is Noor
+* __Surah At-Taghuban 64/8__: [وَرَسُولِهِۦ وَٱلنُّورِ ٱلَّذِىٓ أَنزَلْنَا ۚ](https://quran.com/64/8)
+* __Surah Al-Araf 7/157__: [وَٱتَّبَعُوا۟ ٱلنُّورَ ٱلَّذِىٓ أُنزِلَ مَعَهُۥٓ ۙ](https://quran.com/64/8)
+
+***
+
+
 #### [The Easiest Path to Allah | رب تک پہنچنے کا سب سے آسان راستہ](https://www.youtube.com/watch?v=5Ud5gxc2MIM)
 * Malik ibn Anas (711–795), also known as Imam Malik, was a Muslim scholar, jurist, muhaddith.
 

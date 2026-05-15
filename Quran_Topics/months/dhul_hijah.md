@@ -1,3 +1,8 @@
+#### [Don’t Miss These Deeds in the First 10 Days of Dhul Hijjah | ذی الحجہ کی 10 راتوں کا خاص عمل
+| SSA Shah](https://www.youtube.com/watch?v=0KnIQ0mWT08)
+
+***
+
 #### [10 Powerful Dhul Hijjah Wazaif & Hidden Secrets | Surah Yaseen Zakat | Abdullah Bhatti](https://www.youtube.com/watch?v=vM451MXojEo)
 * quran.com/36 - 41-time - 10 days
 * quran.com/36/58

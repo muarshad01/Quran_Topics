@@ -1,3 +1,7 @@
+#### [Special Gift of the First 10 Days of Dhul Hijjah | Wealth, Black Magic, Jinn & Evil Eye Solution](https://www.youtube.com/watch?v=Qz5sfe0SGBs)
+
+***
+
 #### [Powerful Dhul Hijjah Wazifa | Allah’s 2 Beautiful Names | Special Amal On Knife | Ch. Rukhsar Latif](https://www.youtube.com/watch?v=639t2XlBw80)
 
 ***

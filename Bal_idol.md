@@ -1,5 +1,8 @@
 #### [Mehmood Ghaznavi? Truth vs Propaganda EXPOSED | Somnath Temple Reality & Illuminati Secrets | Qbdul Rahman Arif](https://www.youtube.com/watch?v=6QvJJHr4N9g)
 * __Surah An-Najm 53/19-20__: [أَفَرَءَيْتُمُ ٱللَّـٰتَ وَٱلْعُزَّىٰ...وَمَنَوٰةَ ٱلثَّالِثَةَ ٱلْأُخْرَىٰٓ](https://quran.com/53/19-20)
+* Latt
+* Munat - (Sanskirkat langauge: Muqadas (Sacrad) - "Soo")
+
 ***
 
 #### [IHazrat Khizr & Final Signs | Dr. Shahid Masood Series](https://www.youtube.com/watch?v=9krNAywYzWY)

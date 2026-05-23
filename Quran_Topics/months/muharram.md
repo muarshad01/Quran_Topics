@@ -18,9 +18,9 @@
 
 #### [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
 * Sons:
+  * Imaam Zin ul Abadeen
   * Ali Akbar (Bharchi in the chest) [18-27] years
   * Ali Asghar (6 months old; Arrow in the heart)
-  * Qasim
 * Brother Abbas:
   * Hands were cut
 * Carried 72 dead bodies
@@ -268,3 +268,6 @@
 * Ali bin Hussain (Zain ul-Abadeen)
 
 ***
+
+
+Imam Muhammad al-Baqir was also at Karbala and 3 years old then  and taken captive at that time.

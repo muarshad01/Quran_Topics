@@ -77,20 +77,30 @@
  2. - Hasan ibn Ali
  3. - Husayn ibn Ali
  4. - [Ali ibn Husayn (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
+    - Sahafia Sajjadia - read these duaa's with translation
  5. - [Muhammad al-Baqir](https://www.youtube.com/shorts/Q0CGKBWWXHI)
+    - Muhammad bin Ali al-Baqir is title
  6. - [Jafar al-Sadiq](https://www.youtube.com/shorts/zYJCFrAXpYY)
+    - Imam Jaffar bin Muhammad al-Sadiq
  7. - [Musa al-Kadhim - 7th](https://www.youtube.com/shorts/gjpRjkI8pf4)
+    - Muhas ibn Jaffar - al-Kadim
  8. - Ali al-Rida
+    - Ali bin Musa 
  9. - [Muhammad al-Taqi (also known as al-Jawad) - 9th]
+    - Muhammad ibn Ali 
 10. - [Ali al-Hadi (also known as al-Naqi)]
+    - Ali bin Muhammaed (al-Naqi ...pure...8 years old imam)  
 11. - Hasan al-Askari
+    - Hassan bi Ali
 12. - Muhammad al-Mahdi (also known as al-Qaim)
+    - Muhamad bin Hassan
+
+***
 
 #### [Mazar Mubarak Hazrat Fatima...Imam Hassan...Imam Zain Ul Abadein....Imam Baqir](https://www.youtube.com/shorts/VP17EaFegs0)
 
 * https://www.youtube.com/shorts/GdvWMbYDRT8
 
-***
 ***
 
 #### [Khwaja Muin al-Din Chishti RA Ko 4 Advices | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=7eCwQ3Y_UNA)

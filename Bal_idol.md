@@ -1,3 +1,7 @@
+#### [Mehmood Ghaznavi? Truth vs Propaganda EXPOSED | Somnath Temple Reality & Illuminati Secrets | Qbdul Rahman Arif](https://www.youtube.com/watch?v=6QvJJHr4N9g)
+
+***
+
 #### [IHazrat Khizr & Final Signs | Dr. Shahid Masood Series](https://www.youtube.com/watch?v=9krNAywYzWY)
 
 ***

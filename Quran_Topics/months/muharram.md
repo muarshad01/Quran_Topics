@@ -121,13 +121,13 @@
 * `Hazrat Hassan RA` family was martryred by `Banu Abbas` (Chacha kay batay)
     * [Guldasta Ahl-e-Bayt by Molana Tariq Jameel](https://www.amazon.com/Guldasta-Bayt-Molana-Tariq-Jameel/dp/B0F9LMW6WQ)
     * 18 Pootay Pootayan was confined to a closed room and suffocated by `Abu Jaffar Mansour`.
-    * Marka-e-
+    * Marka-e-Harra
 * Father: `Hazrat Ali RA` was martyred ibn-Muljam
 * `Zaynab bint Ali` was the daughter of `Ali ibn Abi-Talib`
 
 *** 
 
-### [Sahib-e-Amar - by Syed Sarfraz Shah](https://www.youtube.com/watch?v=0VvlyDXYcek)
+### [Sahib-e-Amar - SSA](https://www.youtube.com/watch?v=0VvlyDXYcek)
 * Hazrat Hassa RA says:
 1. Iron
 2. Fire

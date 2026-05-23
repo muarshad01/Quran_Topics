@@ -18,11 +18,12 @@
 
 #### [Sabr of Imam Hussain AS](https://www.youtube.com/shorts/j-B8tFs8-sE)
 * Sons:
-  * Imaam Zin ul Abadeen
+  * Imaam Zin ul Abadeen (bed ridden due to illnes)
   * Ali Akbar (Bharchi in the chest) [18-27] years
   * Ali Asghar (6 months old; Arrow in the heart)
-* Brother Abbas:
+* Hazrat Abbas was brother of Hussain:
   * Hands were cut
+  * Faught war of Safeen (Bloddiest war)
 * Carried 72 dead bodies
 * 33 wounds of daggers, 34 wounds of swords
 

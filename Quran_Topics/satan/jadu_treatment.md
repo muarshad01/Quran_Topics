@@ -29,8 +29,8 @@
 3. Photons
 
 #### Creation of Jinn
-* __Surah Al-Hijr 15/27 (نَّارِ ٱلسَّمُومِ)__: [وَٱلْجَآنَّ خَلَقْنَـٰهُ مِن قَبْلُ مِن نَّارِ ٱلسَّمُومِ](https://quran.com/15/27)
-* __Surah Al-Hijr 55/15 (مِن مَّارِجٍۢ مِّن نَّارٍۢ)__: [وَخَلَقَ ٱلْجَآنَّ مِن مَّارِجٍۢ مِّن نَّارٍۢ](https://quran.com/55/15)
+* __Surah Al-Hijr 15/27 ( نَّارِ ٱلسَّمُومِ)__: [وَٱلْجَآنَّ خَلَقْنَـٰهُ مِن قَبْلُ مِن...  نَّارِ ٱلسَّمُومِ](https://quran.com/15/27)
+* __Surah Al-Hijr 55/15 (مِن مَّارِجٍۢ مِّن نَّارٍۢ)__: [وَخَلَقَ ٱلْجَآنَّ... مِن مَّارِجٍۢ مِّن نَّارٍۢ](https://quran.com/55/15)
    * Smokeless fire (مَّارِجٍۢ [plasma])
    * Which is blue-color gaseous (نَّارِ ٱلسَّمُومِ)
       * __Plasma__: Often called the 4-th state of matter (Solid, Liquid, Gas). It is superheaded ionized gas. It is formed when a gas is heated to extreme temperatures, its atom loses electors left positively charged ions.

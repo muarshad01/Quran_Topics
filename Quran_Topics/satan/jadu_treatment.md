@@ -11,6 +11,12 @@
    
 ***
 
+#### [Black Magic DNA and Cancer | Haqeeqat ya Sirf Waham? | Abdul Salam Arif](https://www.youtube.com/watch?v=n6I5T6RR6OU)
+*
+
+***
+
+
 #### [ Tasbeeh for Protectoin | Abdullah Bhatti](https://www.youtube.com/shorts/SSjDucoXhbI)
 
 ***

@@ -16,8 +16,8 @@
 * Dr. Sufiyan
 
 #### Electromagnetic Spectrum
-* In this world we can see only 0.003%
-* Remating 99.997%, we can't see.
+* In this world, we can see only 0.003%
+* The remaning 99.997%, we can't see.
 * We live in 3D
 
 #### Our Body

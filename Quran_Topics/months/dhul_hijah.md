@@ -1,5 +1,4 @@
-#### [Don’t Miss These Deeds in the First 10 Days of Dhul Hijjah | ذی الحجہ کی 10 راتوں کا خاص عمل
-| SSA Shah](https://www.youtube.com/watch?v=0KnIQ0mWT08)
+#### [Don’t Miss These Deeds in the First 10 Days of Dhul Hijjah | ذی الحجہ کی 10 راتوں کا خاص عمل | SSA Shah](https://www.youtube.com/watch?v=0KnIQ0mWT08)
 
 ***
 

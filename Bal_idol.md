@@ -6,7 +6,9 @@
 * __Surah Al-Araf 7/193__: [](https://quran.com/7/193)
 * __Surah Al-Araf 7/194__: [](https://quran.com/7/194)
 * __Surah Al-Araf 7/195__: [](https://quran.com/7/195)
-* __Surah Al-Araf 7/195__: [](https://quran.com/7/196)
+* __Surah Al-Araf 7/196__: [](https://quran.com/7/196)
+* __Surah Al-Araf 7/197__: [](https://quran.com/7/197)
+* __Surah Al-Araf 7/198__: [](https://quran.com/7/198)
 
 ***
 

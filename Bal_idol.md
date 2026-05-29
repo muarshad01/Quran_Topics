@@ -1,3 +1,19 @@
+
+***
+
+* __Surah Al-Araf 7/191__: [أَيُشْرِكُونَ مَا لَا يَخْلُقُ شَيْـًۭٔا وَهُمْ يُخْلَقُونَ](https://quran.com/7/191)
+* __Surah Al-Araf 7/192__: [](https://quran.com/7/192)
+* __Surah Al-Araf 7/193__: [](https://quran.com/7/193)
+* __Surah Al-Araf 7/194__: [](https://quran.com/7/194)
+* __Surah Al-Araf 7/195__: [](https://quran.com/7/195)
+
+***
+
+* __Surah Yaseen 36/23__: [](https://quran.com/36/23)
+* __Surah Yaseen 36/75__: [](https://quran.com/36/75)
+
+***
+
 #### [Mehmood Ghaznavi? Truth vs Propaganda EXPOSED | Somnath Temple Reality & Illuminati Secrets | Qbdul Rahman Arif](https://www.youtube.com/watch?v=6QvJJHr4N9g)
 * __Surah An-Najm 53/19-20__: [أَفَرَءَيْتُمُ ٱللَّـٰتَ وَٱلْعُزَّىٰ...وَمَنَوٰةَ ٱلثَّالِثَةَ ٱلْأُخْرَىٰٓ](https://quran.com/53/19-20)
 * Latt

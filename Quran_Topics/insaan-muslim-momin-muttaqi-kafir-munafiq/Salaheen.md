@@ -1,3 +1,7 @@
+* __Surah Al-Araf 7/196 (وَهُوَ يَتَوَلَّى ٱلصَّـٰلِحِينَ)__: [إِنَّ وَلِـِّۧىَ ٱللَّهُ ٱلَّذِى نَزَّلَ ٱلْكِتَـٰبَ ۖ... وَهُوَ يَتَوَلَّى ٱلصَّـٰلِحِينَ](https://quran.com/7/196)
+
+***
+
 #### [(29) Chapter: The invocation of the Prophet (saws) "O Allah! The Highest Companion" (اللَّهُمَّ الرَّفِيقَ الأَعْلَى ‏"‏‏.‏)](https://sunnah.com/bukhari:6348)-- Sahih al-Bukhari 6348
 
 ***

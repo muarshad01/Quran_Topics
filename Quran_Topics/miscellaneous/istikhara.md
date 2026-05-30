@@ -1,3 +1,7 @@
+#### [Ya Allemu - 2100 time - 7 Days](https://www.youtube.com/shorts/832bSd8dh-M)
+
+***
+
 #### [Istikhara ka khas wazifa | Istikhara | Ch Rukhsar Latif](https://www.youtube.com/watch?v=_sR5-HUk9YA)
 * "Qum bi iznillah" (قم باذن اللہ) is an Arabic phrase meaning "Rise by the permission/will of Allah". 41 days - 
 * Ya Allemu - 700 time - 3 days

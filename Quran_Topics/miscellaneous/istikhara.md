@@ -1,3 +1,9 @@
+#### [Quick Istikhar | Abdullah Bhatti](https://www.youtube.com/shorts/JFQ7UsK5jTk)
+* La Latifu, Ya Aleemu, Ya Khabeera (یا لطیف یا علیم یا خبی)
+* __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+
+***
+
 #### [Ya Allemu - 2100 time - 7 Days](https://www.youtube.com/shorts/832bSd8dh-M)
 
 ***

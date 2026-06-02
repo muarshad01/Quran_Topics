@@ -1,3 +1,7 @@
+#### [Black Magic Secrets & Protection | How Sorcerers Enter Homes & Cure  (May 2026)| Abdullah Bhatti](https://www.youtube.com/watch?v=79U-BXyaCRk)
+
+***
+
 * https://www.youtube.com/watch?v=GQRubYyS1VA
 
 ***

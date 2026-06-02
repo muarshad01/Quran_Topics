@@ -1,4 +1,5 @@
 #### [Black Magic Secrets & Protection | How Sorcerers Enter Homes & Cure  (May 2026)| Abdullah Bhatti](https://www.youtube.com/watch?v=79U-BXyaCRk)
+Ya Latifu, Ya Aleemu, Ya Kahbeeru - 300-time, 3, 7, or 11 days
 
 ***
 

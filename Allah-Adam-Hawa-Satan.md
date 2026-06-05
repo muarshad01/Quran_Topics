@@ -46,7 +46,19 @@
 
 ***
 
-* __Surah Hijar 15/32-44__: [](https://quran.com/15/32-44)
+* __Surah Al-Hijr 15/32__: [قَالَ يَـٰٓإِبْلِيسُ مَا لَكَ أَلَّا تَكُونَ مَعَ ٱلسَّـٰجِدِينَ](https://quran.com/15/32)
+* __Surah Al-Hijr 15/33__: [](https://quran.com/15/33)
+* __Surah Al-Hijr 15/34__: [](https://quran.com/15/34)
+* __Surah Al-Hijr 15/35__: [](https://quran.com/15/35)
+* __Surah Al-Hijr 15/36__: [](https://quran.com/15/36)
+* __Surah Al-Hijr 15/37__: [](https://quran.com/15/37)
+* __Surah Al-Hijr 15/38__: [](https://quran.com/15/38)
+* __Surah Al-Hijr 15/39__: [](https://quran.com/15/39)
+* __Surah Al-Hijr 15/40__: [](https://quran.com/15/40)
+* __Surah Al-Hijr 15/41__: [](https://quran.com/15/41)
+* __Surah Al-Hijr 15/42__: [](https://quran.com/15/42)
+* __Surah Al-Hijr 15/43__: [](https://quran.com/15/43)
+* __Surah Al-Hijr 15/44__: [](https://quran.com/15/44)
 
 ***
 

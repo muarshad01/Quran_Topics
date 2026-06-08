@@ -1,4 +1,5 @@
 * [ Why No Sajda | Allama Talib Juhri](https://www.youtube.com/shorts/hmUBHzC0LIA)
+* [What Is RUH (Soul)? | Xaryab Haschmi](https://www.youtube.com/shorts/6qe8cDIIh-U)
 
 ***
 
@@ -83,6 +84,7 @@
 
 ***
 
+* __Surah Sad 38/72__ [فَإِذَا سَوَّيْتُهُۥ... وَنَفَخْتُ فِيهِ مِن رُّوحِى... فَقَعُوا۟ لَهُۥ سَـٰجِدِينَ](https://quran.com/38/72)
 * __Surah Sad 38/75 (أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ)__: [قَالَ يَـٰٓإِبْلِيسُ مَا مَنَعَكَ أَن تَسْجُدَ ...لِمَا خَلَقْتُ بِيَدَىَّ ۖ ...أَسْتَكْبَرْتَ أَمْ كُنتَ مِنَ ٱلْعَالِينَ](https://quran.com/38/75)
 
 ***

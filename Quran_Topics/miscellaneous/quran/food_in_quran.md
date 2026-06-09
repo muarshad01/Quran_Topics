@@ -1,3 +1,7 @@
+#### [20 Sunnah Meals The Prophet Ate That Heal You Instantly](https://www.youtube.com/watch?v=IB7UJ4bfDss)
+
+***
+
 #### [20 Quranic Foods That Will Heal You Instantly](https://www.youtube.com/watch?v=xDRsSHB5B3o)
 
 ***

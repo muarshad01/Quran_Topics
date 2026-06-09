@@ -1,3 +1,7 @@
+#### [20 Quranic Foods That Will Heal You Instantly](https://www.youtube.com/watch?v=xDRsSHB5B3o)
+
+***
+
 #### [Food in Quran](https://www.youtube.com/shorts/NoDQr_f2H4Q)
 * __Surah Al-Bakarah 2/15__: [Cow]()
 

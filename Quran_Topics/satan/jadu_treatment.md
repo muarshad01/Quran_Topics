@@ -1,3 +1,7 @@
+#### [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Ft. Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
+
+***
+
 #### [Black Magic Secrets & Protection | How Sorcerers Enter Homes & Cure  (May 2026)| Abdullah Bhatti](https://www.youtube.com/watch?v=79U-BXyaCRk)
 Ya Latifu, Ya Aleemu, Ya Kahbeeru - 300-time, 3, 7, or 11 days
 

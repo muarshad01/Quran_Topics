@@ -2,6 +2,10 @@
 
 ***
 
+#### [Blessings of Wazaif | How to Use Wazaif Correctly | Special Muharram Practices | Ch. Rukhsar Latif](https://www.youtube.com/watch?v=bI7Qo3HM9DI)
+
+***
+
 #### [Hazrat Hussain (RA) Ks Sabar | SSA Shah](https://www.youtube.com/shorts/0s-gMoG1lvs)
 * Yehi woh loag hayn, jinhayn apnay-Rabb-par puri-tarah __BHAROOSA__-hai.
 

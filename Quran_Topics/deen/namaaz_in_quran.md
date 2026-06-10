@@ -17,6 +17,10 @@
 
 ***
 
+#### [Wrong Concept of Salah | Namaz Ka Ghalat Tasawur (June 2026) | Abdul Salam Arif](https://www.youtube.com/watch?v=YltdoytJvAE)
+
+***
+
 #### [Story by Maulan Rumi](https://www.youtube.com/shorts/UsoMVI7LIMg)
 
 ***

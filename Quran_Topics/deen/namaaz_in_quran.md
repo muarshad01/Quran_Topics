@@ -19,10 +19,20 @@
 
 #### [Wrong Concept of Salah | Namaz Ka Ghalat Tasawur (June 2026) | Abdul Salam Arif](https://www.youtube.com/watch?v=YltdoytJvAE)
 * __Surah Al-Baqarah 2/238__: [حَـٰفِظُوا۟ عَلَى ٱلصَّلَوَٰتِ... وَٱلصَّلَوٰةِ ٱلْوُسْطَىٰ... وَقُومُوا۟ لِلَّهِ قَـٰنِتِينَ](https://quran.com/2/238)
+* Protect you System (حَـٰفِظُوا۟ عَلَى ٱلصَّلَوَٰتِ)
+#### 5-Spheres of Human Life (Lifestyle)
+1. Aitqadi System (Religion, Mazhab) - Mazhab sirf Deen (System) ka aik Juz Hai
+2. Moral System (Ikhlaqi Nizaam)
+3. Social System (Mosharashat Nizam)
+4. Financial System (Muaashai Nizam)
+5. Practical (Rules and Laws to implement)
+* Deen is the composition of above FIVE things (Lifestyle).`
+
 #### 3-stages of Life:
 1. Chilhood
 2. Youtfulness (Prime of life)
 3. Old Age
+* Devotee of Allah SWT (قَـٰنِتِينَ)
 
 ***
 

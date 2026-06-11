@@ -74,6 +74,10 @@
 ***
 
 #### [Inter Universal Journey of Prophet Muhammad (PBUH) (June 2026) | ft Abdul Salam Arif](https://www.youtube.com/watch?v=k-DuoTK6kY8)
+* __Surah An-Najm 51/1__: [وَٱلنَّجْمِ إِذَا هَوَىٰ](https://quran.com/53)
+* Google Question: what happens when a star is collapsed or broken?
 
 ***
+
+
 

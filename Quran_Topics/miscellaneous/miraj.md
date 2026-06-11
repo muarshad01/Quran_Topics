@@ -70,3 +70,10 @@
 ***
 
 #### [Shab-e-Miraj Ki Khusosi Ibadat Aur Fazila | Prof Abdullah Bhatti](https://www.youtube.com/shorts/lmIE4RYnjTk)
+
+***
+
+#### [Inter Universal Journey of Prophet Muhammad (PBUH) (June 2026) | ft Abdul Salam Arif](https://www.youtube.com/watch?v=k-DuoTK6kY8)
+
+***
+

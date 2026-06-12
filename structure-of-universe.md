@@ -9,10 +9,10 @@
 
 ***
 
-## [Inter Universal Journey of Prophet Muhammad (PBUH) (June 2026) | ft Abdul Salam Arif](https://www.youtube.com/watch?v=k-DuoTK6kY8)
+### [Inter Universal Journey of Prophet Muhammad (PBUH) (June 2026) | ft Abdul Salam Arif](https://www.youtube.com/watch?v=k-DuoTK6kY8)
 * __Surah An-Najm 53/1__: [وَٱلنَّجْمِ إِذَا هَوَىٰ](https://quran.com/53)
 
-###  * Sky-7 is Sidrat al-Muntaha
+####  * Sky-7 is Sidrat al-Muntaha
 * __Surah An-Najm 53/14__: [عِندَ سِدْرَةِ ٱلْمُنتَهَىٰ](https://quran.com/53/14)
 * __Surah An-Najm 53/15__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ ١٥](https://quran.com/53/15)
 
@@ -26,7 +26,7 @@
 
 ***
 
-### Seven
+#### Seven
 * __Surah Al-Mulk 67/3 (Seven Heavens: سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا)__: [ٱلَّذِى خَلَقَ... سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا ۖ... مَّا تَرَىٰ فِى خَلْقِ ٱلرَّحْمَـٰنِ مِن تَفَـٰوُتٍۢ ۖ ...فَٱرْجِعِ ٱلْبَصَرَ هَلْ تَرَىٰ مِن فُطُورٍۢ](https://quran.com/67/3)
 * __Surah At-Talaq 65/12 (Seven Heavens & Earths: سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ)__: [ٱللَّهُ ٱلَّذِى خَلَقَ... سَبْعَ سَمَـٰوَٰتٍۢ وَمِنَ ٱلْأَرْضِ مِثْلَهُنَّ... يَتَنَزَّلُ ٱلْأَمْرُ بَيْنَهُنَّ... لِتَعْلَمُوٓا۟ أَنَّ ٱللَّهَ عَلَىٰ كُلِّ شَىْءٍۢ قَدِيرٌۭ... وَأَنَّ ٱللَّهَ قَدْ أَحَاطَ بِكُلِّ شَىْءٍ عِلْمًۢا](https://quran.com/65/12)
 * __Surah Al-Muminun 23/17 (Seven Paths Above: سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا فَوْقَكُمْ ...سَبْعَ طَرَآئِقَ... وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)

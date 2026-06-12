@@ -7,11 +7,15 @@
 * __Surah An-Najm 53/14__: [عِندَ سِدْرَةِ ٱلْمُنتَهَىٰ](https://quran.com/53/14)
 * __Surah An-Najm 53/15__: [عِندَهَا جَنَّةُ ٱلْمَأْوَىٰٓ ١٥](https://quran.com/53/15)
 
-##### An Einstein-Rosen bridge (also known as a Wormhole (Al-Maarij)) 
+***
+
+##### Einstein-Rosen bridge (Wormhole) -- Al-Maarij ("The Ascending Stairways")
 * is a hypothetical topological shortcut through spacetime theorized by Albert Einstein and physicist Nathan Rosen in 1935.
-* __Surah Al-Maarij (Stairways) 70/3__: [مِّنَ ٱللَّهِ ذِى ٱلْمَعَارِجِ ](https://quran.com/70)
-* __Surah Al-Maarij70/4__: [تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/4)
+* __Surah Al-Maarij 70/3 (The Lord of the Ways of Ascent)__: [مِّنَ ٱللَّهِ ...ذِى ٱلْمَعَارِجِ ](https://quran.com/70)
+* __Surah Al-Maarij 70/4__: [تَعْرُجُ ٱلْمَلَـٰٓئِكَةُ وَٱلرُّوحُ إِلَيْهِ فِى يَوْمٍۢ كَانَ مِقْدَارُهُۥ خَمْسِينَ أَلْفَ سَنَةٍۢ](https://quran.com/70/4)
   * angels and the spirit ascend to God in a day that measures 50,000 years.
+
+***
 
 #### Seven
 * __Surah Al-Mulk 67/3__: [ٱلَّذِى خَلَقَ سَبْعَ سَمَـٰوَٰتٍۢ طِبَاقًۭا ۖ... مَّا تَرَىٰ فِى خَلْقِ ٱلرَّحْمَـٰنِ مِن تَفَـٰوُتٍۢ ۖ ...فَٱرْجِعِ ٱلْبَصَرَ هَلْ تَرَىٰ مِن فُطُورٍۢ](https://quran.com/67/3)

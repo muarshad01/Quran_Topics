@@ -1,4 +1,4 @@
-### [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
+## [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
 * Water & Araq-e-Gulab Water
 * __Surah At-Tariq 86__ - 111-time
 * __Surah Shams 91__ - 41-time
@@ -34,6 +34,23 @@
 * Surah At-Tariq - 3-time
 * Surah As-Shams - 3-time
 * Surah Falak & Nass - 3 time 
+
+***
+
+## [Beri Ke Patton Se Ghusal Sunnat Tareeqa Nazar-e-Bad, Jadu, Jinn aur Bandish Ka Ilaj | Abdullah Bhatti - (Apr 2026)](https://www.youtube.com/watch?v=IqLNh4M5-8Q)
+* Shower
+* Dead people are given shower with Cide leaves
+* Parkinson
+* Any La-Ilaj disease, Cancer, etc
+* Depression, Negative thoughts
+* Also drink this water
+
+#### 1-3 days (best once a week!)
+* Boil in water...drink water...also take shower...
+* __Surah Yunus 10/81__ - 11-time
+* __Surah Yunus 2/285-286__ - 11-time
+* __Surah Al-Mominoon 23/115-118__ - Last 4 Ayats, 11-time
+* Surah Falak & Nass - 11-time
 
 ***
 

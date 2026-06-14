@@ -277,3 +277,9 @@
 
 
 Imam Muhammad al-Baqir was also at Karbala and 3 years old then  and taken captive at that time.
+
+***
+
+#### [10 Special Days of Muharram | Powerful Surah Al-Kawthar Wazifa for Wealth, Spirituality & Blessings - (June 2026)](https://www.youtube.com/watch?v=XuEeHOKfe0g)
+
+***

@@ -1,20 +1,39 @@
-#### [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
+### [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
+* Water & Araq-e-Gulab Water
 * __Surah At-Tariq 86__ - 111-time
 * __Surah Shams 91__ - 41-time
 * __Surah Al-Mominoon 23/115-118__ - Last 4 Ayats, 11-time
 * __Surah Yunus 10/81__ - 11-time
-* Surah Falaq & Surah Naas - 11-time
-* Araq-e-Gulab
-* Ya Raqeeba, Ya Hafeezu
-* Ya Salaamu, Ya Mominu, Ya Allahu
-* Last 2-Ayats of Surah Baqarah
-##### Ceder Tree Leaves
-##### Shower
-* Surah Taha, Surah..., Surah
-##### Kalongi Oil
-* 
+* __Surah Falaq__ - 11-time
+* __Surah Naas__ - 11-time
 
 ***
+
+* Ya Raqeeba, Ya Hafeezu - 1300-time
+* Ya Salaamu, Ya Mominu, Ya Allahu - 500-time
+* Ya Maliku, Ya Qadoosu - 500-time
+* __Surah Baqarah 2/285-286__: Last 2-Ayats - 11-time
+
+#### Ceder Tree Leaves
+* Shower...
+
+#### Araq-e-Gulab
+* Surah Yunus, Surah Taha, Surah Al-Araf, 2/285-286 (11-time) - 1-time
+* Shower with this water on three different days
+
+#### Mustard Oil
+* 1 pao sarsoon ka tail
+* Surah Kafiroon with Bismillah 1,000 time. At max in 1 Go!!!
+* Malish on Jism on three time and take shower
+
+#### Kalonji Oil (3-7 days; apply on forehead)
+* Surah Fatiha - 1 or 3-time
+* Surah Yunus 10/81 - 11-time
+* 2/285-286 - 11-time
+* 2/255 - Aytul Kurshi - 3-time
+* Surah At-Tariq - 3-time
+* Surah As-Shams - 3-time
+* Surah Falak & Nass - 3 time 
 
 ***
 

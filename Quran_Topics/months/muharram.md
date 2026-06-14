@@ -289,3 +289,9 @@ Imam Muhammad al-Baqir was also at Karbala and 3 years old then  and taken capti
 * 2-Nafal hadya to ahl-e-bayt daily
 
 ***
+
+#### [Surah Yaseen Ki Fazilat (June 2026) | Surah Yaseen ki Zakat | Muharam Ke Amaal | Ch Rukhsar Latif](https://www.youtube.com/watch?v=F8vAsfVHLn4)
+* __Surah Yaseen 36__: [](https://quran.com/36)
+* 7-Mubeen; Everny Mubeen recite Surah xx 11-time
+
+***

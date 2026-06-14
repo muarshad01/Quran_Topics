@@ -1,3 +1,7 @@
+#### [Powerful Quranic Wazifa to Clean House & Mind from Evil Jinn, Negative Energy & Shaytan - (June 2026)](https://www.youtube.com/watch?v=I4ILzawOg3I)
+
+***
+
 ## [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
 * Water & Araq-e-Gulab Water
 * __Surah At-Tariq 86__ - 111-time

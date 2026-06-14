@@ -1,8 +1,8 @@
 #### [Powerful Quranic Wazifa to Remove Bandish | Marriage, Job & Business Obstacles | Abdullah Bhatti - (June 2026)](https://www.youtube.com/watch?v=AcZk2qlPfaE)
-* Surah Tariq 86 - 111-time
-* Surah Shams 91 - 41-time
-* [Surah Mominoon - Last 4 Ayats](https://quran.com/23/115-118) - 11-time
-* [Surah Yunus - Ayat 81](https://quran.com/10/81) - 11-time
+* __Surah At-Tariq 86__ - 111-time
+* __Surah Shams 91__ - 41-time
+* __Surah Al-Mominoon 23/115-118__ - Last 4 Ayats, 11-time
+* __Surah Yunus 10/81__ - 11-time
 * Surah Falaq & Surah Naas - 11-time
 * Araq-e-Gulab
 * Ya Raqeeba, Ya Hafeezu
@@ -13,6 +13,7 @@
 * Surah Taha, Surah..., Surah
 ##### Kalongi Oil
 * 
+
 ***
 
 ***

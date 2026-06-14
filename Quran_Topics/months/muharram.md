@@ -282,4 +282,10 @@ Imam Muhammad al-Baqir was also at Karbala and 3 years old then  and taken capti
 
 #### [10 Special Days of Muharram | Powerful Surah Al-Kawthar Wazifa for Wealth, Spirituality & Blessings - (June 2026)](https://www.youtube.com/watch?v=XuEeHOKfe0g)
 
+* __Surah Al-Kawthar 108__: [](https://quran.com/108) 
+* **1st way**: 120-time daily for 10 days with 11-time darood-sharif awal akhir
+* **2nd way**: 313-time 10-days daily for 10 days
+* **3rd way**: 1,000-time daily
+* 2-Nafal hadya to ahl-e-bayt daily
+
 ***

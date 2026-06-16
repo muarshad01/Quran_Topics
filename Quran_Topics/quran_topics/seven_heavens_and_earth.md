@@ -4,6 +4,12 @@
 
 ***
 
+<p align="center">
+<img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/seven-heaven-earth.png" width="300" height="500" />
+</p>
+
+
+
 #### As-Samawat (السَّمَاوَات) and Al-Ard (الْأَرْض) 
 * Arabic terms that mean "the heavens" and "the earth".
 * __Surah Fussilat 41/12 (Seven Heavens in two Days: سَبْعَ سَمَـٰوَاتٍۢ فِى يَوْمَيْنِ)__: [فَقَضَىٰهُنَّ ...سَبْعَ سَمَـٰوَاتٍۢ فِى يَوْمَيْنِ ...وَأَوْحَىٰ فِى كُلِّ سَمَآءٍ أَمْرَهَا ۚ... وَزَيَّنَّا ٱلسَّمَآءَ ٱلدُّنْيَا بِمَصَـٰبِيحَ وَحِفْظًۭا ۚ... ذَٰلِكَ تَقْدِيرُ ٱلْعَزِيزِ ٱلْعَلِيمِ](https://quran.com/41/12)

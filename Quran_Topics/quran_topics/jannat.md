@@ -96,3 +96,14 @@ nor a human heart can ever think of.' " -- Sahih al-Bukhari 7498
 
 ## Hell
 * __Surah Al-Araf 7/179__: [وَلَقَدْ ذَرَأْنَا لِجَهَنَّمَ كَثِيرًۭا مِّنَ ٱلْجِنِّ وَٱلْإِنسِ ۖ لَهُمْ قُلُوبٌۭ لَّا يَفْقَهُونَ بِهَا وَلَهُمْ أَعْيُنٌۭ لَّا يُبْصِرُونَ بِهَا وَلَهُمْ ءَاذَانٌۭ لَّا يَسْمَعُونَ بِهَآ ۚ أُو۟لَـٰٓئِكَ كَٱلْأَنْعَـٰمِ بَلْ هُمْ أَضَلُّ ۚ أُو۟لَـٰٓئِكَ هُمُ ٱلْغَـٰفِلُونَ](https://quran.com/7/179)
+
+***
+
+#### Hadith (Paradise and Hell)
+* [It was narrated from Abu Hurairah that the Messenger of Allah said:
+"When Allah created Paradise and Hell, He sent Jibril, peace be upon him, to Paradise and said: 'Look at it and at what I have prepared for its people in it.' He looked at it, then he came back and said: 'By Your Glory, no one will hear of it but he will enter it.' So He commanded that it be surrounded by hardships and said: 'Go and look at it and at what I have prepared for its people in it.' He looked at it and saw that it had been surrounded with hardships. He (Jibril) said: 'By Your Glory, I fear that no one will enter it.' He (Allah) said: 'Go and look at the Fire and at what I have prepared for its people in it.' So he looked at it and parts of it were piled upon other parts. He came back and said: 'By Your Glory, no one will enter it.' So He commanded that it be surrounded with pleasures and said: 'Go and look at it.' So he looked at it and saw that it was surrounded with pleasures. He came back and said: 'By Your Glory, I fear that no one will be saved from it and all will enter it.'"](https://sunnah.com/nasai:3763) -- Sunan an-Nasa'i 3763
+* Angel Jibraeel was ordered
+ * Go and see Paradise (Who wouldn't wish to come here; Go an see its path; too tempting)
+ * Go and see Hell (Who wouldn't wish to avoid this; Go and see its path)
+
+***

@@ -1,4 +1,4 @@
-## Al-Ardh, Dunia, and Zameen
+## Al-Ardh, Dunia, and ~~Zameen~~
 * `Al-Ardh` and `Dunya` are mentioned in Quran
 * `Zameen (Earth)` is this planet -- not mentioned in Quran
 

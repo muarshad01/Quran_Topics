@@ -108,6 +108,15 @@
 ****
 
 * __Surah Al-Hijr 15/51__: [وَنَبِّئْهُمْ عَن ضَيْفِ إِبْرَٰهِيمَ](https://quran.com/15/51)
+* __Surah Al-Hijr 15/52__: [](https://quran.com/15/52)
+* __Surah Al-Hijr 15/53__: [](https://quran.com/15/53)
+* __Surah Al-Hijr 15/54__: [](https://quran.com/15/54)
+* __Surah Al-Hijr 15/55__: [](https://quran.com/15/55)
+* __Surah Al-Hijr 15/56__: [](https://quran.com/15/56)
+* __Surah Al-Hijr 15/57__: [](https://quran.com/15/57)
+* __Surah Al-Hijr 15/58__: [](https://quran.com/15/58)
+* __Surah Al-Hijr 15/59__: [](https://quran.com/15/59)
+* __Surah Al-Hijr 15/60__: [](https://quran.com/15/60)
 
 ***
 

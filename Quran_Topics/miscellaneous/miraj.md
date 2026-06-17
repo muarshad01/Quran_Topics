@@ -100,5 +100,7 @@
 #### [Why Ru’yat-e-Bari Ta’ala Is Disputed? | Islamic Scholarly Debate Explained ft Abdul Salam Arif](https://www.youtube.com/watch?v=7-nVsekLp1k)
 * __Surah Al-Anam 6/103__: [لَّا تُدْرِكُهُ ٱلْأَبْصَـٰرُ وَهُوَ يُدْرِكُ ٱلْأَبْصَـٰرَ ۖ وَهُوَ ٱللَّطِيفُ ٱلْخَبِيرُ](https://quran.com/6/103)
 
+* Banu Umayyah
+* Deoband, Barelvi, and Nadwatul Ulama
 
 ***

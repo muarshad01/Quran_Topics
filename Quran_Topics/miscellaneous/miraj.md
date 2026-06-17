@@ -96,3 +96,9 @@
 * Black Hole (شِدَادًۭا)
 
 ***
+
+#### [Why Ru’yat-e-Bari Ta’ala Is Disputed? | Islamic Scholarly Debate Explained ft Abdul Salam Arif](https://www.youtube.com/watch?v=7-nVsekLp1k)
+
+
+
+***

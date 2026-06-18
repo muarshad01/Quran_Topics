@@ -108,3 +108,10 @@
 * 10:00:00
 
 ***
+
+#### [Part 2 | Black Holes Aur Safar-e-Miraj | Surah Asr | Dark Energy | Quantum physics and Multiverse](https://www.youtube.com/watch?v=Cxfrg7XAMm0)
+
+
+***
+
+

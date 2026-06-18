@@ -21,6 +21,7 @@
 ***
 
 #### [Part 1 | Black Holes Aur Safar e Miraj | Surah Najam | Dark Energy | Quantum physics and Multiverse](https://www.youtube.com/watch?v=IrZIDFQ7bVo)
+* __Surah An-Najm 53/1__: [وَٱلنَّجْمِ إِذَا هَوَىٰ](https://quran.com/53/1)
 
 ***
 

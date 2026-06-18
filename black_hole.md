@@ -2,6 +2,7 @@
 
 * **Sagittarius A (Sgr A) is the supermassive black hole** located exactly at the center of our Milky Way galaxy. Positioned about 26,000 light-years from Earth in the direction of the Sagittarius constellation, it has a mass of about 4 million times that of our Sun
 * Black hole speed (63 million miles per hour)
+* 1,000 spind per second
 * Sun reloves around Galaxy (255 million years one cycle)
 
 ***

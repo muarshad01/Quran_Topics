@@ -20,8 +20,12 @@
 
 ***
 
-#### [Part 2 | Black Holes Aur Safar-e-Miraj | Surah Asr | Dark Energy | Quantum physics and Multiverse](https://www.youtube.com/watch?v=Cxfrg7XAMm0)
+#### [Part 1 | Black Holes Aur Safar e Miraj | Surah Najam | Dark Energy | Quantum physics and Multiverse](https://www.youtube.com/watch?v=IrZIDFQ7bVo)
 
+***
+
+#### [Part 2 | Black Holes Aur Safar-e-Miraj | Surah Asr | Dark Energy | Quantum physics and Multiverse](https://www.youtube.com/watch?v=Cxfrg7XAMm0)
+* When a star fall, black hole is formed.
 
 ***
 

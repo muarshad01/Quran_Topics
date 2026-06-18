@@ -94,5 +94,6 @@
 
 #### [HUBUK: Aasmano kai Rastay Quran and Science | Dr Sufyan](https://www.youtube.com/watch?v=dEs4VnXaRKU)
 * __Surah Adh-Dhariyat 51/7__: [وَٱلسَّمَآءِ ذَاتِ ٱلْحُبُكِ](https://quran.com/51/7)
+* [Scientists simulate ‘baby’ wormhole without rupturing space and time](https://www.theguardian.com/science/2022/dec/01/scientists-simulate-baby-wormhole-without-rupturing-space-and-time)
 
 ***

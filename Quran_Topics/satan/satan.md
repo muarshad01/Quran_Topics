@@ -2,6 +2,11 @@
 
 ***
 
+#### [Satan | SSA Shah](https://www.youtube.com/shorts/vsdfuuuWyvQ)
+* Satan could read Loh-e-Mehfuz
+
+***
+
 #### [Shaitan Se Bachao | SSA Shah](https://www.youtube.com/watch?v=vpjMXsA778c)
 * Ziada-say-ziada Bismillah parha-karo
 * __Bismillahir Rahmanir Raheem (Arabic: 'بِسْمِ ٱللهِ ٱلرَّحْمَٰنِ ٱلرَّحِيْمِ)__

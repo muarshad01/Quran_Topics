@@ -1,1 +1,5 @@
-
+#### They are explicitly named and discussed in four specific chapters of the Quran 
+* __Surah Ash-Shu'ara (26:176 - 191)__ Verse 176: "The companions of the Wood denied the messengers".This is the most detailed passage. It outlines their rejection of Prophet Shu'ayb, their dishonest financial practices (e.g., cheating on scales and weights), and their destruction by the "punishment of a day of overwhelming shadow".
+* __Surah Al-Hijr (15:78)Verse 78__: "And the companions of the Wood were indeed wrongdoers".The Quran states that because of their sins, Allah took retribution against them, and their destroyed settlements serve as a clear warning to those who pass by on their travels.
+* __Surah Sad (38:13)__ Verse 13: "...and [the people of] Thamud, and the people of Lot, and the companions of the Wood - those are the factions."This verse categorizes them as among the disbelieving and rebellious communities that previously rejected their messengers.
+* __Surah Qaf (50:14)__ Verse 14: "And the residents of the Forest and the people of Tubba'. Each rejected the messengers, so My warning was fulfilled".This passage highlights their ultimate doom as a consequence of denying the truth.

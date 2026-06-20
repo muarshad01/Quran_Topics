@@ -1,3 +1,7 @@
+* __Surah Al-Hijr 15/98__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَكُن مِّنَ ٱلسَّـٰجِدِينَ](https://quran.com/15/98)
+
+***
+
 #### [Impact of Tasbeeh on brain | Prof. ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 
 ***

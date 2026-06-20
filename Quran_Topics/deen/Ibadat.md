@@ -163,3 +163,5 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 * After bandagi, you're not a `part-time Muslim`
 
 ***
+
+* __Surah Al-Hijr 15/99__: [وَٱعْبُدْ رَبَّكَ حَتَّىٰ يَأْتِيَكَ ٱلْيَقِينُ](https://quran.com/15/99)

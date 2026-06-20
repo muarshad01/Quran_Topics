@@ -42,3 +42,5 @@ Some interpretations also highlight "Al-Kitab al-Mubeen" in other surahs, such a
 * __Surah Yaseen 36/77 (خَصِيمٌۭ مُّبِينٌۭ)__: [أَوَلَمْ يَرَ ٱلْإِنسَـٰنُ أَنَّا خَلَقْنَـٰهُ مِن نُّطْفَةٍۢ فَإِذَا هُوَ خَصِيمٌۭ مُّبِينٌۭ](https://quran.com/36/77)
 
 ***
+
+* __Surah Al-Hijr 15/79__: [فَٱنتَقَمْنَا مِنْهُمْ وَإِنَّهُمَا... لَبِإِمَامٍۢ مُّبِينٍۢ](https://quran.com/15/79)

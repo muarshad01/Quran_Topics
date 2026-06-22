@@ -3,7 +3,7 @@
 ***
 
 #### [Why is the mention of the Antichrist disappearing | Abdul Salam Arif](https://www.youtube.com/watch?v=mOu_O1HCnLQ)
-
+**Trial of Power**: Finally, the story of Dhul-Qarnayn focuses on power, justice, and the pursuit-of-goodness. (Verses 83 – 98)
 * __Surah Al-Kahf 18/84 (سَبَبًا)__: [إِنَّا... مَكَّنَّا لَهُۥ فِى ٱلْأَرْضِ... وَءَاتَيْنَـٰهُ مِن كُلِّ شَىْءٍۢ... سَبَبًۭا](https://quran.com/18/84)
 * __Surah Al-Kahf 18/85 (سَبَبًا)__: [فَأَتْبَعَ... سَبَبًا](https://quran.com/18/85)
 * __Surah Al-Kahf 18/89 (سَبَبًا)__: [ثُمَّ أَتْبَعَ ...سَبَبًا](https://quran.com/18/89)

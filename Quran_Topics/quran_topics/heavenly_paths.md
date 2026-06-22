@@ -26,13 +26,10 @@
   * The pathways (ٱلْأَسْبَـٰبَ)
 * __Surah Ghafir 40/37 (أَسْبَـٰبَ)__: [أَسْبَـٰبَ ٱلسَّمَـٰوَٰتِ... فَأَطَّلِعَ إِلَىٰٓ إِلَـٰهِ مُوسَىٰ وَإِنِّى لَأَظُنُّهُۥ كَـٰذِبًۭا ۚ وَكَذَٰلِكَ زُيِّنَ لِفِرْعَوْنَ سُوٓءُ عَمَلِهِۦ وَصُدَّ عَنِ ٱلسَّبِيلِ ۚ وَمَا كَيْدُ فِرْعَوْنَ إِلَّا فِى تَبَابٍۢ](https://quran.com/40/37)
   * The ways (أَسْبَـٰبَ)
+
 *** 
 
-#### Black Hole
-* __Surah Yusuf 12/48 (سَبْعًۭا شِدَادًۭا)__: [وَبَنَيْنَا فَوْقَكُمْ... سَبْعًۭا شِدَادًۭا](https://quran.com/78/12)
-  * Black Hole...which pulls everything (E=mc^2; enery, matter, light) into itself.
-
-***
+## Taraiq
 
 #### Highways
 * __Surah Al-Muminun 23/17 (سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا ...فَوْقَكُمْ سَبْعَ طَرَآئِقَ... وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
@@ -42,7 +39,19 @@
 
 ***
 
+## Shedad
+
+#### Black Hole
+* __Surah Yusuf 12/48 (سَبْعًۭا شِدَادًۭا)__: [وَبَنَيْنَا فَوْقَكُمْ... سَبْعًۭا شِدَادًۭا](https://quran.com/78/12)
+  * Black Hole...which pulls everything (E=mc^2; enery, matter, light) into itself.
+
+***
+
+
+## Hubuk
+#### [HUBUK: Aasmano kai Rastay Quran and Science | Dr Sufyan](https://www.youtube.com/watch?v=dEs4VnXaRKU)
 * __Surah Adh-Dhariyat 51/7 (ٱلْحُبُكِ)__: [وَٱلسَّمَآءِ ذَاتِ... ٱلْحُبُكِ](https://quran.com/51/7)
+* [Scientists simulate ‘baby’ wormhole without rupturing space and time](https://www.theguardian.com/science/2022/dec/01/scientists-simulate-baby-wormhole-without-rupturing-space-and-time)
 
 ***
 
@@ -97,11 +106,5 @@
 * __Surah Inam 6/35 (نَفَقًۭا فِى ٱلْأَرْضِ أَوْ سُلَّمًۭا فِى ٱلسَّمَآءِ)__: [وَإِن كَانَ كَبُرَ عَلَيْكَ إِعْرَاضُهُمْ ...فَإِنِ ٱسْتَطَعْتَ أَن تَبْتَغِىَ نَفَقًۭا فِى ٱلْأَرْضِ أَوْ سُلَّمًۭا فِى ٱلسَّمَآءِ... فَتَأْتِيَهُم بِـَٔايَةٍۢ ۚ... وَلَوْ شَآءَ ٱللَّهُ لَجَمَعَهُمْ عَلَى ٱلْهُدَىٰ ۚ فَلَا تَكُونَنَّ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/6/35)
   * If you find their denial unbearable, then build—if you can—a tunnel through the earth or stairs to the sky to bring them a ˹more compelling˺ sign. Had Allah so willed, He could have guided them all. So do not be one of those ignorant ˹of this fact˺.
   * __Surah At-Tur 52/38 (أَمْ لَهُمْ سُلَّمٌۭ يَسْتَمِعُونَ فِيهِ ۖ)__: [أَمْ لَهُمْ سُلَّمٌۭ يَسْتَمِعُونَ فِيهِ ۖ فَلْيَأْتِ مُسْتَمِعُهُم بِسُلْطَـٰنٍۢ مُّبِينٍ](https://quran.com/52/38)
-
-***
-
-#### [HUBUK: Aasmano kai Rastay Quran and Science | Dr Sufyan](https://www.youtube.com/watch?v=dEs4VnXaRKU)
-* __Surah Adh-Dhariyat 51/7__: [وَٱلسَّمَآءِ ذَاتِ ٱلْحُبُكِ](https://quran.com/51/7)
-* [Scientists simulate ‘baby’ wormhole without rupturing space and time](https://www.theguardian.com/science/2022/dec/01/scientists-simulate-baby-wormhole-without-rupturing-space-and-time)
 
 ***

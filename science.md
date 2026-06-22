@@ -8,8 +8,8 @@
 
 #### How vast is this Universe
 * Number of galaxies = $2 \times 10^{12} = 2$ trillion
-* Astronomers estimate that the Milky Way galaxy contains between 100 billion and 400 billion stars.
 * __Milky-way Galaxy__: 100,000 light-years (Diameter)
+* contains between 100 billion and 400 billion stars.
   * 588 quadrillion Miles
   * One quadrillion miles ($10^{15}$ miles) is equal to approximately 170.11 light-years.
   * [Our Milky Way Galaxy: How Big is Space?](https://science.nasa.gov/universe/exoplanets/our-milky-way-galaxy-how-big-is-space/)

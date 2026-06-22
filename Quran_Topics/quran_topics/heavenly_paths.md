@@ -49,9 +49,18 @@
 
 
 ## Hubuk
+
 #### [HUBUK: Aasmano kai Rastay Quran and Science | Dr Sufyan](https://www.youtube.com/watch?v=dEs4VnXaRKU)
 * __Surah Adh-Dhariyat 51/7 (ٱلْحُبُكِ)__: [وَٱلسَّمَآءِ ذَاتِ... ٱلْحُبُكِ](https://quran.com/51/7)
 * [Scientists simulate ‘baby’ wormhole without rupturing space and time](https://www.theguardian.com/science/2022/dec/01/scientists-simulate-baby-wormhole-without-rupturing-space-and-time)
+
+***
+
+## Stairways (سُلَّمٌۭ)
+
+* __Surah Inam 6/35 (نَفَقًۭا فِى ٱلْأَرْضِ أَوْ سُلَّمًۭا فِى ٱلسَّمَآءِ)__: [وَإِن كَانَ كَبُرَ عَلَيْكَ إِعْرَاضُهُمْ ...فَإِنِ ٱسْتَطَعْتَ أَن تَبْتَغِىَ نَفَقًۭا فِى ٱلْأَرْضِ أَوْ سُلَّمًۭا فِى ٱلسَّمَآءِ... فَتَأْتِيَهُم بِـَٔايَةٍۢ ۚ... وَلَوْ شَآءَ ٱللَّهُ لَجَمَعَهُمْ عَلَى ٱلْهُدَىٰ ۚ فَلَا تَكُونَنَّ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/6/35)
+  * If you find their denial unbearable, then build—if you can — a tunnel through the earth or stairs to the sky to bring them a ˹more compelling˺ sign. Had Allah so willed, He could have guided them all. So do not be one of those ignorant ˹of this fact˺.
+* __Surah At-Tur 52/38 (أَمْ لَهُمْ سُلَّمٌۭ يَسْتَمِعُونَ فِيهِ ۖ)__: [أَمْ لَهُمْ سُلَّمٌۭ يَسْتَمِعُونَ فِيهِ ۖ فَلْيَأْتِ مُسْتَمِعُهُم بِسُلْطَـٰنٍۢ مُّبِينٍ](https://quran.com/52/38)
 
 ***
 
@@ -98,13 +107,5 @@
   * 588 quadrillion Miles
   * One quadrillion miles ($10^{15}$ miles) is equal to approximately 170.11 light-years.
   * [Our Milky Way Galaxy: How Big is Space?](https://science.nasa.gov/universe/exoplanets/our-milky-way-galaxy-how-big-is-space/)
-
-***
-
-#### Stairways (سُلَّمٌۭ)
-
-* __Surah Inam 6/35 (نَفَقًۭا فِى ٱلْأَرْضِ أَوْ سُلَّمًۭا فِى ٱلسَّمَآءِ)__: [وَإِن كَانَ كَبُرَ عَلَيْكَ إِعْرَاضُهُمْ ...فَإِنِ ٱسْتَطَعْتَ أَن تَبْتَغِىَ نَفَقًۭا فِى ٱلْأَرْضِ أَوْ سُلَّمًۭا فِى ٱلسَّمَآءِ... فَتَأْتِيَهُم بِـَٔايَةٍۢ ۚ... وَلَوْ شَآءَ ٱللَّهُ لَجَمَعَهُمْ عَلَى ٱلْهُدَىٰ ۚ فَلَا تَكُونَنَّ مِنَ ٱلْجَـٰهِلِينَ](https://quran.com/6/35)
-  * If you find their denial unbearable, then build—if you can — a tunnel through the earth or stairs to the sky to bring them a ˹more compelling˺ sign. Had Allah so willed, He could have guided them all. So do not be one of those ignorant ˹of this fact˺.
-* __Surah At-Tur 52/38 (أَمْ لَهُمْ سُلَّمٌۭ يَسْتَمِعُونَ فِيهِ ۖ)__: [أَمْ لَهُمْ سُلَّمٌۭ يَسْتَمِعُونَ فِيهِ ۖ فَلْيَأْتِ مُسْتَمِعُهُم بِسُلْطَـٰنٍۢ مُّبِينٍ](https://quran.com/52/38)
 
 ***

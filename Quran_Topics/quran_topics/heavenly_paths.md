@@ -26,14 +26,17 @@
   * The ways (أَسْبَـٰبَ)
 *** 
 
+#### Black Hole
 * __Surah Yusuf 12/48 (سَبْعًۭا شِدَادًۭا)__: [وَبَنَيْنَا فَوْقَكُمْ... سَبْعًۭا شِدَادًۭا](https://quran.com/78/12)
-* Black Hole...which pulls into itself.
+  * Black Hole...which pulls everything (E=mc^2; enery, matter, light) into itself.
 
 ***
 
+#### Highways
 * __Surah Al-Muminun 23/17 (سَبْعَ طَرَآئِقَ)__: [وَلَقَدْ خَلَقْنَا ...فَوْقَكُمْ سَبْعَ طَرَآئِقَ... وَمَا كُنَّا عَنِ ٱلْخَلْقِ غَـٰفِلِينَ](https://quran.com/23/17)
   * Shahrah (شاہراہ) in Urdu refers to a highway, main road, thoroughfare, or a large, wide road.
 * __Surah Taha 20/77__: [وَلَقَدْ أَوْحَيْنَآ إِلَىٰ مُوسَىٰٓ أَنْ أَسْرِ بِعِبَادِى فَٱضْرِبْ لَهُمْ طَرِيقًۭا فِى ٱلْبَحْرِ يَبَسًۭا لَّا تَخَـٰفُ دَرَكًۭا وَلَا تَخْشَىٰ](https://quran.com/20/77)
+  * A path (طَرِيقًۭا)
 
 ***
 

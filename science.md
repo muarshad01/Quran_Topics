@@ -1,4 +1,7 @@
 
+* [Black Holes 101 | National Geographic](https://www.youtube.com/watch?v=kOEDG3j1bjs)
+* [Black Holes Explained – From Birth to Death](https://www.youtube.com/watch?v=e-P5IFTqB98)
+
 * Dark Matter
 * Dark Engery
 * Event Horizon

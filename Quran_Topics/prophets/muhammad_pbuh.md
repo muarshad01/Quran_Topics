@@ -7,8 +7,7 @@
 
 ***
 
-#### [Hidden Secrets in Name "Muhammad" | Early Life Miracles of Prophet Muhammad ﷺ | ft. Abdul Salam Arif
-](https://www.youtube.com/watch?v=-Lk-gyD2AtA)
+#### [Hidden Secrets in Name "Muhammad" | Early Life Miracles of Prophet Muhammad ﷺ | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=-Lk-gyD2AtA)
 
 ***
 
@@ -52,6 +51,11 @@
 * Sab-say-ziada sadqah dainay-wali
 
 ***
+
+* __Surah Saba 34/28 ( كَآفَّةًۭ لِّلنَّاسِ)__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا كَآفَّةًۭ لِّلنَّاسِ بَشِيرًۭا وَنَذِيرًۭا وَلَـٰكِنَّ أَكْثَرَ ٱلنَّاسِ لَا يَعْلَمُونَ](https://quran.com/34/28)
+
+***
+
 
 #### [Zairat Rasool Allah ka | Prof Abdullah Bhatti](https://www.youtube.com/shorts/2ob60kc4lBs)
 * 3rd-Kalma & Saurah Kausar (108) -  after Isha

@@ -39,6 +39,10 @@
 
 *** 
 
+* __Surah Saba 34/10 (وَلَقَدْ ءَاتَيْنَا دَاوُۥدَ مِنَّا فَضْلًۭا ۖ)__: [۞ وَلَقَدْ ءَاتَيْنَا دَاوُۥدَ مِنَّا فَضْلًۭا ۖ... يَـٰجِبَالُ أَوِّبِى مَعَهُۥ وَٱلطَّيْرَ ۖ وَأَلَنَّا لَهُ ٱلْحَدِيدَ](https://quran.com/34/10)
+
+***
+
 #### [Allah Ke Fazal Ya Raazi Hone Ki Nishaniyan | SSA Shah](https://www.youtube.com/watch?v=ghe-XUb2Vkg)
 * Behaviour Attitudes with others.
 * What you can do for other.

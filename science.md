@@ -3,6 +3,7 @@
 * The one that comes at Night (وَٱلطَّارِقِ)
 * A Star (ٱلنَّجْمُ)
 * The one that Pierces, Penetrates (ٱلثَّاقِبُ)
+* Pulsar (A neutron star; a dead star that, even after its death, keeps spinning.)
 
 ***
 

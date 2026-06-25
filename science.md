@@ -7,13 +7,18 @@
 
 ***
 
-* [Black Holes 101 | National Geographic](https://www.youtube.com/watch?v=kOEDG3j1bjs)
-* [Black Holes Explained – From Birth to Death](https://www.youtube.com/watch?v=e-P5IFTqB98)
+## Black Hole
 
+#### [Black Holes 101 | National Geographic](https://www.youtube.com/watch?v=kOEDG3j1bjs)
 * Dark Matter
 * Dark Engery
-* Event Horizon
-* Black Hole
+* Event Horizon (The Boundry of a black hole)
+* Singularity (Infinitely small, infinitely dense point, where space, time, and laws of physics no longer apply.)
+* Our Galaxy: Milky way (Saggatarias A block hole)
+
+***
+
+#### [Black Holes Explained – From Birth to Death](https://www.youtube.com/watch?v=e-P5IFTqB98)
 
 ***
 

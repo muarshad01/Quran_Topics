@@ -188,6 +188,7 @@
 | 3. | [Habeel and Kabeel (5/27-31)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/habeel_kabeel.md) | 09/01/2026 |
 | 4. | [Gog and Magog](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/gog_and_magog.md) | 09/01/2026 |
 | 5. | [Aad and Samud](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/aad_and_samud.md) | 09/01/2026 |
+|xxx . | [Sabaa](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/Sabaa.md) |24/06/2026 |
 | 6.| [Qaroon](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/qaroon.md) | 16/01/2026 |
 | 7.| [Haman](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/quran_topics/haman.md) | 16/01/2026 |
 

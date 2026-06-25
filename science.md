@@ -1,3 +1,7 @@
+* [Did the Quran Describe Pulsar Stars 1400 Years Ago? | Surah At-Tariq Mystery](https://www.youtube.com/watch?v=uYNv5TYLudA)
+* __Surah At-Tariq 86/1-3__: [وَٱلسَّمَآءِ وَٱلطَّارِقِ...وَمَآ أَدْرَىٰكَ مَا ٱلطَّارِقُ...ٱلنَّجْمُ ٱلثَّاقِبُ](https://quran.com/86/1-3)
+
+***
 
 * [Black Holes 101 | National Geographic](https://www.youtube.com/watch?v=kOEDG3j1bjs)
 * [Black Holes Explained – From Birth to Death](https://www.youtube.com/watch?v=e-P5IFTqB98)

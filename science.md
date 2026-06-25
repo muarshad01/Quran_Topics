@@ -19,6 +19,8 @@
 ***
 
 #### [Black Holes Explained – From Birth to Death](https://www.youtube.com/watch?v=e-P5IFTqB98)
+* The star implodes
+* Supernova
 
 ***
 

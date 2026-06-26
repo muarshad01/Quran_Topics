@@ -305,6 +305,11 @@ Imam Muhammad al-Baqir was also at Karbala and 3 years old then  and taken capti
 
 ***
 
-* [Karamaat of the family of Prophet PBUH | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=iAaGtuMlqII)
+#### [Karamaat of the family of Prophet PBUH | Professor Ahmad Rafique Akhtar](https://www.youtube.com/watch?v=iAaGtuMlqII)
 
 *** 
+
+#### [Qazi Shurae Of Kufa A Black Spot On Face Of Muslim Ummah (June 2026) | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=XYB5TAwipTM)
+
+
+***

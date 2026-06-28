@@ -329,6 +329,7 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 ***
 
 #### [Nauman Ali Khan](https://www.youtube.com/shorts/7KxfWDupIrI)
+* Build the Kabba
 
 ***
 
@@ -350,5 +351,7 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 ***
 
 #### [Hazrat Ibrahim AS Ka Allah Par Yaqeen | Islamic Reminder | Shaykh Atif Ahmed](https://www.youtube.com/shorts/cqirjLCWKsM)
+* __Surah Ale-Imran 3/173 (حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ)__: [ٱلَّذِينَ قَالَ لَهُمُ ٱلنَّاسُ إِنَّ ٱلنَّاسَ قَدْ جَمَعُوا۟ لَكُمْ فَٱخْشَوْهُمْ فَزَادَهُمْ إِيمَـٰنًۭا وَقَالُوا۟ حَسْبُنَا ٱللَّهُ وَنِعْمَ ٱلْوَكِيلُ](https://quran.com/3/173)
+* __Surah Al-Anbiya 21/69__: [قُلْنَا يَـٰنَارُ كُونِى بَرْدًۭا وَسَلَـٰمًا عَلَىٰٓ إِبْرَٰهِيمَ ](https://quran.com/21/69)
 
 ***

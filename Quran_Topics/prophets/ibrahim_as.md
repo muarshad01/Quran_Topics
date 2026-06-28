@@ -4,6 +4,10 @@
 
 ***
 
+### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
+
+***
+
 ### [Qur’an verses on Prophet Ibrahim](https://myislam.org/quran-verses/prophet-ibrahim/)
 
 ***
@@ -343,10 +347,6 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 ***
 
 ### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
-
-***
-
-### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
 
 ***
 

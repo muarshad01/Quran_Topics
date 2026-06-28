@@ -157,7 +157,7 @@
 * __Yeh-Rohaniat-mayn bohot-tezi say aadmi-ko agay lay-jaadi-hai__
 * Insaan-kay dil-say dunya-ki-mohabbat nikalnay lagti-hai
 * Rabb-par-Taqwa bharnay lagta-hai
-* Bala-ka-BHAROOSA paidao-hota-hai iss-say Rabb-Tallah-par
+* **Bala-ka-BHAROOSA** paidao-hota-hai iss-say Rabb-Tallah-par
 * Wasail-say-hi bay-nayaz ho-jaata-hai
 * Allah-Tallah kay QAREEB ho-jaata-hai
 

@@ -45,8 +45,8 @@
 * __Surah Al-Baqarah 2/136__: [قُولُوٓا۟ ءَامَنَّا بِٱللَّهِ وَمَآ أُنزِلَ إِلَيْنَا وَمَآ أُنزِلَ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطِ وَمَآ أُوتِىَ مُوسَىٰ وَعِيسَىٰ وَمَآ أُوتِىَ ٱلنَّبِيُّونَ مِن رَّبِّهِمْ لَا نُفَرِّقُ بَيْنَ أَحَدٍۢ مِّنْهُمْ وَنَحْنُ لَهُۥ مُسْلِمُونَ](https://quran.com/2/136)
 
 * __Surah Al-Baqarah 2/140__: [أَمْ تَقُولُونَ إِنَّ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ وَإِسْحَـٰقَ وَيَعْقُوبَ وَٱلْأَسْبَاطَ كَانُوا۟ هُودًا أَوْ نَصَـٰرَىٰ ۗ قُلْ ءَأَنتُمْ أَعْلَمُ أَمِ ٱللَّهُ ۗ وَمَنْ أَظْلَمُ مِمَّن كَتَمَ شَهَـٰدَةً عِندَهُۥ مِنَ ٱللَّهِ ۗ وَمَا ٱللَّهُ بِغَـٰفِلٍ عَمَّا تَعْمَلُونَ](https://quran.com/2/140)
-* Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
-* Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
+  * Yes, the term `Yahudi`, meaning Jewish or Jew in Hebrew, is derived from the name `Yehuda`, which is the Hebrew name for `Judah (son of Jacob)`.
+  * Judah was, according to the `Book of Genesis`, the fourth-of-the-six-sons of Jacob and Leah and the founder of the Tribe-of-Judah of the Israelites.
 
 * __Surah Al-Baqarah 2/258__: [أَلَمْ تَرَ إِلَى ٱلَّذِى حَآجَّ إِبْرَٰهِـۧمَ فِى رَبِّهِۦٓ أَنْ ءَاتَىٰهُ ٱللَّهُ ٱلْمُلْكَ إِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّىَ ٱلَّذِى يُحْىِۦ وَيُمِيتُ قَالَ أَنَا۠ أُحْىِۦ وَأُمِيتُ ۖ قَالَ إِبْرَٰهِـۧمُ فَإِنَّ ٱللَّهَ يَأْتِى بِٱلشَّمْسِ مِنَ ٱلْمَشْرِقِ فَأْتِ بِهَا مِنَ ٱلْمَغْرِبِ فَبُهِتَ ٱلَّذِى كَفَرَ ۗ وَٱللَّهُ لَا يَهْدِى ٱلْقَوْمَ ٱلظَّـٰلِمِينَ](https://quran.com/2/258)
   * More broadly, the word بهت (bahata) is the root of "Fabuhita" and it signifies to be bewildered, stunned, or dumbfounded. 

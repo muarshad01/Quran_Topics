@@ -20,10 +20,10 @@
 ***
 
 * __Surah Al-Baqarah 2/124__: [۞ وَإِذِ ٱبْتَلَىٰٓ إِبْرَٰهِـۧمَ رَبُّهُۥ بِكَلِمَـٰتٍۢ... فَأَتَمَّهُنَّ ۖ... قَالَ إِنِّى جَاعِلُكَ لِلنَّاسِ إِمَامًۭا ۖ... قَالَ وَمِن ذُرِّيَّتِى ۖ... قَالَ لَا يَنَالُ عَهْدِى ٱلظَّـٰلِمِينَ](https://quran.com/2/124)
-* In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them".
-1. It is a combination of the conjunction "fa" (ف), meaning "and",
-2. and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed",
-3. with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
+  * In Arabic, "fa-atammahunna" (فَأَتَمَّهُنَّ) translates to "and he fulfilled them".
+  * It is a combination of the conjunction "fa" (ف), meaning "and",
+  * and the verb "atamma" (أَتَمَّ), meaning "he fulfilled" or "he completed",
+  * with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
 
 * __Surah Al-Baqarah 2/125__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ مَثَابَةًۭ لِّلنَّاسِ وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ ](https://quran.com/2/125)
 * The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering

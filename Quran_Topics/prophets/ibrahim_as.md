@@ -346,7 +346,7 @@ O Granter of refuge, O Granter of refuge, O Granter of refuge.
 
 ***
 
-### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
+#### [Ibrahim In Quran](https://www.thelastdialogue.org/article/the-word-or-topic-ibrahim-mentioned-in-quran/)
 
 ***
 

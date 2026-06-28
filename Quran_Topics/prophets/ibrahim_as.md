@@ -1,6 +1,6 @@
 ## Abraham AS
 
-* Time difference between Noah and Ibrahim AS ~ 3,000 years
+* Time difference between Nuh (Noah) and Ibrahim (Abraham) AS ~ **3,000 years???**
 
 ***
 

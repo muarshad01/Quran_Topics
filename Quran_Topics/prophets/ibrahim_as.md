@@ -26,7 +26,7 @@
   * with the suffix "hunna" (هُنَّ), which is a feminine-plural pronoun referring to the words or commands that were fulfilled. 
 
 * __Surah Al-Baqarah 2/125 (مَثَابَةًۭ لِّلنَّاسِ)__: [وَإِذْ جَعَلْنَا ٱلْبَيْتَ ...مَثَابَةًۭ لِّلنَّاسِ ...وَأَمْنًۭا وَٱتَّخِذُوا۟ مِن مَّقَامِ إِبْرَٰهِـۧمَ مُصَلًّۭى ۖ وَعَهِدْنَآ إِلَىٰٓ إِبْرَٰهِـۧمَ وَإِسْمَـٰعِيلَ أَن طَهِّرَا بَيْتِىَ لِلطَّآئِفِينَ وَٱلْعَـٰكِفِينَ وَٱلرُّكَّعِ ٱلسُّجُودِ ](https://quran.com/2/125)
- * The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering
+  * The word "mathabatan" (مثابة) in Arabic generally translates to a place of return, a resort, or a place of gathering
 
 * __Surah Al-Baqarah 2/126__: [وَإِذْ قَالَ إِبْرَٰهِـۧمُ رَبِّ ٱجْعَلْ هَـٰذَا بَلَدًا ءَامِنًۭا وَٱرْزُقْ أَهْلَهُۥ مِنَ ٱلثَّمَرَٰتِ مَنْ ءَامَنَ مِنْهُم بِٱللَّهِ وَٱلْيَوْمِ ٱلْـَٔاخِرِ ۖ قَالَ وَمَن كَفَرَ فَأُمَتِّعُهُۥ قَلِيلًۭا ثُمَّ أَضْطَرُّهُۥٓ إِلَىٰ عَذَابِ ٱلنَّارِ ۖ وَبِئْسَ ٱلْمَصِيرُ](https://quran.com/2/126)
   

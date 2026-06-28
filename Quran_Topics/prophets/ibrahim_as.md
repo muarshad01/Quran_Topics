@@ -5,6 +5,13 @@
 ***
 
 ### [Journey of Ibrahim AS - @MSMajadari](https://www.youtube.com/shorts/_mZCW8VDuHI)
+* Birth: Iraq (Babul)
+* Moved to Turkey / Syria Border area along with Loot AS and wife Sara, too.
+* Then moved to Palestine
+* Then moved to Egypt, where the King gave Hajra to Ibrahim and Sara.
+* Moved back to Palestine.
+* Ist son (Ismail AS) was born at 87 years of age in Palestine.
+* Left his son/wife at Makkah and went back.
 
 ***
 

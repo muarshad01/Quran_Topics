@@ -7,6 +7,14 @@
 
 ***
 
+* __Surah Az-Zukhruf 43/4__: [وَإِنَّهُۥ فِىٓ أُمِّ ٱلْكِتَـٰبِ لَدَيْنَا... لَعَلِىٌّ حَكِيمٌ](https://quran.com/43/4)
+  * "And indeed it is, in the Mother of the Book with Us, [is] highly esteemed, rich in wisdom."
+  * The Mother of the Book (أُمِّ الْكِتَابِ): This refers to the original, preserved heavenly record (**Al-Lauh Al-Mahfuz**).
+  * Highly esteemed (لَعَلِيٌّ): The Quran holds a highly honored, exalted status.
+  * Rich in wisdom (حَكِيمٌ): The message is filled with perfect wisdom and clarity.
+
+***
+
 #### Ponder Updon
 * __Surah Saad 38/29 ( لِّيَدَّبَّرُوٓا۟ ءَايَـٰتِهِ)__: [كِتَـٰبٌ أَنزَلْنَـٰهُ إِلَيْكَ مُبَـٰرَكٌۭ... لِّيَدَّبَّرُوٓا۟ ءَايَـٰتِهِۦ... وَلِيَتَذَكَّرَ أُو۟لُوا۟ ٱلْأَلْبَـٰبِ](https://quran.com/38/29)
 

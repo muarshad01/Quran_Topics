@@ -124,7 +124,7 @@
 
 ***
 
-#### Number - 11=29=2+9=11 
+#### Number - 11 = 29=2+9=11 
 * __Allah (11)__: `2 + 9 = 11 ~ 1 (Creator) AND 1 (Creation)`
    * Creator: `Allah SWT`
    * Creation: `Prophet Muhammad PBUH`
@@ -182,7 +182,7 @@
 
 ***
 
-## Number - 19=1+9=10=1+0=1
+## Number - 19 = 1+9=10=1+0=1
 * __Surah An-Naml 27/19__: [وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
 
 #### “Bismillah Ar-Rahman Ar-Rahim” (بِسْمِ ٱللَّٰهِ ٱلرَّحْمَٰنِ ٱلرَّحِيمِ)
@@ -223,7 +223,9 @@
    * 19 verses
    * 19 chapter from end of book
 * __Surah An Nasr 110__: [19 words - The LAST revelation](https://quran.com/110)
-* [SCIENTISTS STUNNED: Quran's Code 19 Defies Mathematics (1 in TRILLIONS!)](https://www.youtube.com/watch?v=CAlVn-t97XM)
+
+#### [SCIENTISTS STUNNED: Quran's Code 19 Defies Mathematics (1 in TRILLIONS!)](https://www.youtube.com/watch?v=CAlVn-t97XM)
+
 #### [The Miracle of Number 19 in The Quran | Dr. Shabir Ally](https://www.youtube.com/watch?v=UmNgibcL3N0)
 
 ***

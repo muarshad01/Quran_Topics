@@ -184,21 +184,47 @@
 
 ## Number - 19=1+9=10=1+0=1
 * __Surah An-Naml 27/19__: [وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
+
 #### “Bismillah Ar-Rahman Ar-Rahim” (بِسْمِ ٱللَّٰهِ ٱلرَّحْمَٰنِ ٱلرَّحِيمِ)
 * __Surah Al-Fatihah 01/01__: [بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/1/1)
    * `19` - Number of letters (Haroof) in `Bismillahir Rahmanir Raheem`
-#### Number of Surahs 114
+
+#### Number of Surahs - 114
 * `114 = 19 x 6` - Number of universe formation
-#### 
-* __Surah At-Tawbah 09__:[NO - Bisimillah](https://quran.com/27/29)
-* __Surah An-Naml 27/30__:[TWICE - Bisimillah](https://quran.com/27/30)
+
+#### 9 - 27 = 19
+* __Surah At-Tawbah 09 (NO - Bisimillah)__: []()
+* __Surah An-Naml 27/30 (Twice Bisimillah)__: [إِنَّهُۥ مِن سُلَيْمَـٰنَ وَإِنَّهُۥ بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/27/30)
+
 #### 19 Angels
 * __Surah Al-Muddaththir 74/30__: [عَلَيْهَا تِسْعَةَ عَشَرَ](https://quran.com/74/30)
+   * 19 Angels guarding Hell
+* __Surah Al-Muddaththir 74/31__: [](https://quran.com/74/30)
+   * 57 Words = 19 x 3 
+
+#### Latter Qaf
+
+#### Surah 42
+* __Surah Ash-Shuraa42__: [](https://quran.com/42)
+* letter Qaf appers 57 times = 19 x 3
+
+#### Surah 50
+* __Surah Qaf 50__: [](https://quran.com/50)
+* letter Qaf appers 57 times = 19 x 3
+
+#### Surah 72
+* __Surah Al-Jinn 72__: [](https://quran.com/72)
+* 285 Words = 19 x 15
+
 #### First/Last Revelation
-* __Surah Al Alaq 96/1-5__: [19 words - The famous FIRST relelation](https://quran.com/96/1-5)
+* __Surah Al-Alaq 96/1-5__: [19 words - The famous FIRST relelation](https://quran.com/96/1-5)
+   * 19 words
+   * 76 letters = 19 x 4
+   * 19 verses
+   * 19 chapter from end of book
 * __Surah An Nasr 110__: [19 words - The LAST revelation](https://quran.com/110)
 * [SCIENTISTS STUNNED: Quran's Code 19 Defies Mathematics (1 in TRILLIONS!)](https://www.youtube.com/watch?v=CAlVn-t97XM)
-* [The Miracle of Number 19 in The Quran | Dr. Shabir Ally](https://www.youtube.com/watch?v=UmNgibcL3N0)
+#### [The Miracle of Number 19 in The Quran | Dr. Shabir Ally](https://www.youtube.com/watch?v=UmNgibcL3N0)
 
 ***
 

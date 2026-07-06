@@ -182,14 +182,19 @@
 
 ***
 
-#### Number - 19=1+9=10=1+0=1
+## Number - 19=1+9=10=1+0=1
 * __Surah An-Naml 27/19__: [وَأَدْخِلْنِى بِرَحْمَتِكَ فِى عِبَادِكَ ٱلصَّـٰلِحِينَ](https://quran.com/27/19)
-* __Surah Fatiha 01/01__:[First Verse of Quran](https://quran.com/1/1)
+#### “Bismillah Ar-Rahman Ar-Rahim” (بِسْمِ ٱللَّٰهِ ٱلرَّحْمَٰنِ ٱلرَّحِيمِ)
+* __Surah Al-Fatihah 01/01__: [بِسْمِ ٱللَّهِ ٱلرَّحْمَـٰنِ ٱلرَّحِيمِ](https://quran.com/1/1)
    * `19` - Number of letters (Haroof) in `Bismillahir Rahmanir Raheem`
+#### Number of Surahs 114
 * `114 = 19 x 6` - Number of universe formation
-* __Surah Tawba 09__:[NO - Bisimillah](https://quran.com/27/29)
-* __Surah An Naml 27/30__:[TWICE - Bisimillah](https://quran.com/27/30)
+#### 
+* __Surah At-Tawbah 09__:[NO - Bisimillah](https://quran.com/27/29)
+* __Surah An-Naml 27/30__:[TWICE - Bisimillah](https://quran.com/27/30)
+#### 19 Angels
 * __Surah Al-Muddaththir 74/30__: [عَلَيْهَا تِسْعَةَ عَشَرَ](https://quran.com/74/30)
+#### First/Last Revelation
 * __Surah Al Alaq 96/1-5__: [19 words - The famous FIRST relelation](https://quran.com/96/1-5)
 * __Surah An Nasr 110__: [19 words - The LAST revelation](https://quran.com/110)
 * [SCIENTISTS STUNNED: Quran's Code 19 Defies Mathematics (1 in TRILLIONS!)](https://www.youtube.com/watch?v=CAlVn-t97XM)

@@ -9,3 +9,7 @@
 #### [Insaan Ki Rooh Main Allah Ka Noor Kab Aata Hai? | Prof Abdullah Bhatti | Irfan Asghar](https://www.youtube.com/watch?v=IvkzWUR23xg)
 
 ***
+
+#### [Allah Nay Apni Rooh Sirf Insan mein Phonki, Ye Sharaf Sirf Insan K Pass Kyun Hai?? | Irfan-ul-Haq](https://www.youtube.com/watch?v=naiOsbletKU)
+
+***

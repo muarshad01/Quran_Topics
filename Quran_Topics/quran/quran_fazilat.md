@@ -82,6 +82,14 @@
 
 ***
 
+#### [Kasrat Se Quran Pak Ki Tilawat Se Kya Fawaid Hasil Hote Hain? | SSA Shah](https://www.youtube.com/watch?v=9nF6w7PHeSQ)
+* Eyes don't pain
+* We directly talk with Allah SWT
+* While reciting Quran-e-Majeed, FAQEER does Mushashida!
+  * Quwat-e-Mushashida; Ijazad-e-Mushahida; Israr-e-Ilahi ki Sayr
+
+***
+
 #### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)
 * Recite so loud that you can hear it yourself.
 * During recitation-of-Quran see Zirat-e-Kabba 

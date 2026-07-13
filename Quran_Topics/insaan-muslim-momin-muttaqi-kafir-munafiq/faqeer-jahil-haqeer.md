@@ -115,6 +115,11 @@
 
 *** 
 
+#### [Maqam-e-Fuqar Kaise Hasil Hota Hai? - by Qibla Syed Sarfraz Ahmad Shah Sahab](https://www.youtube.com/watch?v=oYN4xOalZkc)
+* Bibi Rabia Basir was at Muqam-e-Faqr (Hazrat Sultan Ba-Hoo)
+
+***
+
 #### [Murshid, Peer & Qalandar | SSA Shah](https://www.youtube.com/watch?v=nesZSYl-q7c)
 * (Faqeer, Sufi, Peer)
 1. Faqeer
@@ -147,3 +152,5 @@
 ***
 
 #### [Maqam-e-Fuqar Kaise Hasil Hota Hai? | SSA Shah](https://www.youtube.com/watch?v=oYN4xOalZkc)
+
+***

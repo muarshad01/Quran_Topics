@@ -1,3 +1,7 @@
+#### [Israel's End in Hadith? | Hadees-e-Nabvi ﷺ Explained  (July 2026)| Abdul Salam Arif](https://www.youtube.com/watch?v=5wLAj67ibas)
+
+***
+
 #### [Israel in Quran](https://www.youtube.com/shorts/XKrGOQ0tO9Y)
 * Isra-el: Isra (Aseer; Slave) + el (Allah in Abrani)
   * In Arabic: Abdullah

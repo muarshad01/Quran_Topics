@@ -1,13 +1,21 @@
 #### [Istikhara the Right Way (Jul 2026) | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=Kpexa8W73wA)
 
 1. Yes/No Istikhara with Surah Fatiha (Offer two rakat nafals; While recite Surah Fatiha keep repeating: ٱهْدِنَا ٱلصِّرَٰطَ ٱلْمُسْتَقِيمَ)
-2. 
+2.  Ya Aleemu, La Latifu, Ya Khabeera (يَا عَلِيمُ يَا خَبِيرُ يَا لَطِيفُ)
+3. __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+* Recite 11-or-41 times for 5-or-7 nights and then sleep
 
 ***
 
 #### [Quick Istikhar | Abdullah Bhatti](https://www.youtube.com/shorts/JFQ7UsK5jTk)
-* La Latifu, Ya Aleemu, Ya Khabeera (یا لطیف یا علیم یا خبی)
+* Ya Aleemu, La Latifu, Ya Khabeera (يَا عَلِيمُ يَا خَبِيرُ يَا لَطِيفُ)
 * __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+
+***
+
+#### [Jaadu-Karne-Waly-Ki-Pehchan Khud Karen | Prof Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
+* __Surah Al-Baqarah 2/32__: [قَالُوا۟... سُبْحَـٰنَكَ ...لَا عِلْمَ لَنَآ ...إِلَّا مَا عَلَّمْتَنَآ ۖ... إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
+* Recite 11-or-41 times for 5-or-7 nights and then sleep
 
 ***
 
@@ -18,12 +26,6 @@
 #### [Istikhara ka khas wazifa | Istikhara | Ch Rukhsar Latif](https://www.youtube.com/watch?v=_sR5-HUk9YA)
 * "Qum bi iznillah" (قم باذن اللہ) is an Arabic phrase meaning "Rise by the permission/will of Allah". 41 days - 
 * Ya Allemu - 700 time - 3 days
-
-***
-
-#### [Jaadu-Karne-Waly-Ki-Pehchan Khud Karen | Prof Abdullah Bhatti](https://www.youtube.com/watch?v=aWpyVnLnWUQ)
-* __Surah Al-Baqarah 2/32__: [قَالُوا۟... سُبْحَـٰنَكَ ...لَا عِلْمَ لَنَآ ...إِلَّا مَا عَلَّمْتَنَآ ۖ... إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
-* Recite 11-or-41 times for 5-or-7 nights and then sleep
 
 ***
 

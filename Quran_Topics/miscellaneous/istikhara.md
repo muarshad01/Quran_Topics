@@ -1,5 +1,8 @@
 #### [Istikhara the Right Way (Jul 2026) | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=Kpexa8W73wA)
 
+1. Yes/No Istikhara with Surah Fatiha (Offer two rakat nafals; While recite Surah Fatiha keep repeating: ٱهْدِنَا ٱلصِّرَٰطَ ٱلْمُسْتَقِيمَ)
+2. 
+
 ***
 
 #### [Quick Istikhar | Abdullah Bhatti](https://www.youtube.com/shorts/JFQ7UsK5jTk)

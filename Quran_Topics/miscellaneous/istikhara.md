@@ -1,3 +1,7 @@
+#### [Istikhara the Right Way | Get a Yes or No Answer in Just 5 Minutes? (Jul 2026) | Ft. Professor Abdullah Bhatti](https://www.youtube.com/watch?v=Kpexa8W73wA)
+
+***
+
 #### [Quick Istikhar | Abdullah Bhatti](https://www.youtube.com/shorts/JFQ7UsK5jTk)
 * La Latifu, Ya Aleemu, Ya Khabeera (یا لطیف یا علیم یا خبی)
 * __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)

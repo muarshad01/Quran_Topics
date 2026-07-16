@@ -1,4 +1,4 @@
-#### [Istikhara the Right Way | Get a Yes or No Answer in Just 5 Minutes? (Jul 2026) | Ft. Professor Abdullah Bhatti](https://www.youtube.com/watch?v=Kpexa8W73wA)
+#### [Istikhara the Right Way (Jul 2026) | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=Kpexa8W73wA)
 
 ***
 

@@ -1,5 +1,4 @@
 #### [Istikhara the Right Way (Jul 2026) | Prof. Abdullah Bhatti](https://www.youtube.com/watch?v=Kpexa8W73wA)
-
 1. Yes/No Istikhara with Surah Fatiha (Offer two rakat nafals; While recite Surah Fatiha keep repeating: ٱهْدِنَا ٱلصِّرَٰطَ ٱلْمُسْتَقِيمَ)
 2.  Ya Aleemu, La Latifu, Ya Khabeera (يَا عَلِيمُ يَا خَبِيرُ يَا لَطِيفُ)
 3. __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)
@@ -19,6 +18,11 @@
 
 ***
 
+#### [Jadu Gar Ka Pata Lagwane Keleay Mujrib Wazeefa| Prof Abdullah Bhatti](https://www.youtube.com/shorts/oxFGBwHqP7I)
+* Ya-Latifu, Ya-Aleemu, Ya-Khabeeru - tasbeeh
+
+***
+
 #### [Ya Allemu - 2100 time - 7 Days](https://www.youtube.com/shorts/832bSd8dh-M)
 
 ***
@@ -26,11 +30,6 @@
 #### [Istikhara ka khas wazifa | Istikhara | Ch Rukhsar Latif](https://www.youtube.com/watch?v=_sR5-HUk9YA)
 * "Qum bi iznillah" (قم باذن اللہ) is an Arabic phrase meaning "Rise by the permission/will of Allah". 41 days - 
 * Ya Allemu - 700 time - 3 days
-
-***
-
-#### [Jadu Gar Ka Pata Lagwane Keleay Mujrib Wazeefa| Prof Abdullah Bhatti](https://www.youtube.com/shorts/oxFGBwHqP7I)
-* Ya-Latifu, Ya-Aleemu, Ya-Khabeeru tasbeeh
 
 ***
 

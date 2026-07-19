@@ -6,6 +6,7 @@
 * Aqal
 * Ilm
 * Ishq
+* Muqam-e-Hairat (Your tongue is stopped!)
 
 ***
 

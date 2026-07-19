@@ -32,6 +32,11 @@ Ya Bari Tallah! Tuh mujhay-bi waisa-hi-bana-dah, keh-jaisa-tuh-Chahata-hai
 
 ***
 
+#### [How to Stay Grateful in Suffering? | تہمتوں اور غربت کے باوجود شکر کیسے ممکن ہے؟| SSA Shah](https://www.youtube.com/watch?v=TgiyG3kAjBA)
+*  **Inaam (Reward)**: Dunya ki koi saltanat uss ko deh dee jiyay, woh Rabb ko chornay par razi nahi hoo gaa.
+
+***
+
 #### [Best Way of Gratitude | شکر گزاری کابہترین طریقہ | SSA Shah](https://www.youtube.com/watch?v=s-CZWqjeSgQ)
 * Who qadre-ajeeb-hai...
 * __Jo-kuch merey-paas-hai...wo mera-nahi...merey Rabb ka ATAA-karda-hai__

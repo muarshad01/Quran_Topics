@@ -5,7 +5,7 @@
 #### [Rab Tak Pohanchnay Ke Raastay | رب تک پہچنے کے راستے | SSA Shah](https://www.youtube.com/watch?v=DoUvHcm28a8)
 * Aqal
 * Ilm
-* Ishq
+* Ishaq (Only Ishaq)
 * Muqam-e-Hairat (Your tongue is stopped!)
 
 ***

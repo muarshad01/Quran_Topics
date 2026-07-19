@@ -2,6 +2,13 @@
 
 ***
 
+#### [Rab Tak Pohanchnay Ke Raastay | رب تک پہچنے کے راستے | SSA Shah](https://www.youtube.com/watch?v=DoUvHcm28a8)
+* Aqal
+* Ilm
+* Ishq
+
+***
+
 ## Sababa
 
 #### [Why is the mention of the Antichrist disappearing | Abdul Salam Arif](https://www.youtube.com/watch?v=mOu_O1HCnLQ)

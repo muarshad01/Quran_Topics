@@ -49,6 +49,16 @@
 
 ***
 
+#### [ Allama Hicham Ilahi Zaheer | میرے بھائیوں مایوسی چھوڑ دو | ایک دعا قسمت، تقدیر بدل دے گی ہو نہیں سکتا کے کوئی کام رہ جائے](https://www.youtube.com/watch?v=ZzsLK1t2_OU)
+* Ism-e-Azam:
+1. "Bismillahir Rahmanir Raheem" (بِسْمِ ٱللهِ ٱلرَّحْمَٰنِ ٱلرَّحِيْمِ)
+2. "Alif Lam Mim" (الم)
+3. "Allah hu la ilaha illa huwal hayyul qayyum" (اللّهُ لاَ إِلَـهَ إِلاَّ هُوَ الْحَيُّ الْقَيُّومُ)
+4. "Ya Wahid" (يا واحد)
+5. "Ya zuljalal wal ikram" (يا ذو الجلال والإكرام) 
+
+***
+
 #### [Powerful Wazifa Ya Badi-ul-Ajaib Bil Khair Ya Badio | Dr. Fahad Artani Roshniwala](https://www.youtube.com/watch?v=sVFFpRwGaqw)
 * __Ya-Badio Al-ajaib bil-Khair Ya-Badio (يا بديع العجائب بالخير يا بديع )__
 * Ya Badio: Bay-misal cheezon-ko bagheer-asbab-kay paida-karnay-wala

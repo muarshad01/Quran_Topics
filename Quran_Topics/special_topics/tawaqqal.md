@@ -16,6 +16,7 @@
 ***
 
 #### [Yaqeen Kay Kmalaat | یقین کے کمالات | Dua Kaisy Qabool Hoti ha? | Mufti Muhammad Qasim Attari](https://www.youtube.com/watch?v=zegBAbH6-QQ)
+* The phrase "ادعوا الله وأنتم موقنون بالإجابة" is part of an authentic Hadith recorded by Tirmidhi from Abu Hurairah, meaning "Call upon Allah while being certain of a response."
 
 ***
 

@@ -8,6 +8,10 @@
 
 ***
 
+#### [Zindagi Ke Tamam Band Talay Kholne Ki Chaabi | WAW](https://www.youtube.com/watch?v=17uIhOTa29k)
+
+***
+
 #### [Trusting Allah Leads to Success | SSA Shah](https://www.youtube.com/watch?v=eTR729HZIL8)
 * Shan-e-Rubibayat (He listens to our duas!)
 * Rabb par Mann

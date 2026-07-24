@@ -3,6 +3,11 @@
 
 ***
 
+#### [2-Hidden Signs of Righteous Man | SSA Shah](https://www.youtube.com/watch?v=JV_JOeszkcM)
+* Hazrat Imman Hussain RA
+
+***
+
 #### [Trusting Allah Leads to Success | SSA Shah](https://www.youtube.com/watch?v=eTR729HZIL8)
 *
 

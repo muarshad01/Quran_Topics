@@ -2,6 +2,9 @@
 
 ***
 
+#### [Different Time Dimensions In The Quran | Abdul Salam Arif](https://www.youtube.com/watch?v=fKAq1MsdZuY)
+
+***
 
 #### [Quran Aur Time Travel | Dr Sufyan](https://www.youtube.com/watch?v=PborKMmTKY0)
 * 1-day: 1,000 years

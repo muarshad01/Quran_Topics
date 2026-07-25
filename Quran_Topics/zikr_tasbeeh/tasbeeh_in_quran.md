@@ -72,15 +72,18 @@
 * He is not a wise Muslim, who doesn't remind Allah SWT His promies:
 * __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
 * He is not a wise Muslim, who could not dodge Satan.
+
 #### Hadith
-* Afzal Zikr is "La ilaha illallah" (لا إله إلا الله) and  afzal dua is "Alhamdulillah" (الحمد لله).
+* Afzal Zikr is **"La ilaha illallah" (لا إله إلا الله)** and  afzal dua is **"Alhamdulillah" (الحمد لله).**
 * Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
+
 #### Darood-Sharif
 * 1/3, 1/2, Only Darood..with do kafait!!!
 * [Ya-Salaamu, Ya-Mominu] for Anxiety & Depression.
 * [Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu]
+
 #### Allah SWT Qurub
-* * Sheikh Abdul-Qadir Jilani
+* Sheikh Abdul-Qadir Jilani
 * Last 3-Ayats of Surah Al-Hashar
 * __Surah Al-Hashar 59/22-24 (يُسَبِّحُ لَهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ)__: [...](https://quran.com/59/22-24) 
 

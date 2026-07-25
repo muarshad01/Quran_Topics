@@ -194,6 +194,12 @@
 
 ## Allama Talib Johri
 
+#### [Surah Waqia | Allama Talib Johari](https://www.youtube.com/watch?v=npnktNggmAU)
+* __Surah Ar-Rad 13/43__: [وَيَقُولُ ٱلَّذِينَ كَفَرُوا۟ لَسْتَ مُرْسَلًۭا ۚ قُلْ كَفَىٰ بِٱللَّهِ شَهِيدًۢا بَيْنِى وَبَيْنَكُمْ وَمَنْ عِندَهُۥ عِلْمُ ٱلْكِتَـٰبِ](https://quran.com/13/43)
+* __Surah An-Naml 27/40__: [قَالَ ٱلَّذِى عِندَهُۥ عِلْمٌۭ مِّنَ ٱلْكِتَـٰبِ أَنَا۠ ءَاتِيكَ بِهِۦ قَبْلَ أَن يَرْتَدَّ إِلَيْكَ طَرْفُكَ ۚ فَلَمَّا رَءَاهُ مُسْتَقِرًّا عِندَهُۥ قَالَ هَـٰذَا مِن فَضْلِ رَبِّى لِيَبْلُوَنِىٓ ءَأَشْكُرُ أَمْ أَكْفُرُ ۖ وَمَن شَكَرَ فَإِنَّمَا يَشْكُرُ لِنَفْسِهِۦ ۖ وَمَن كَفَرَ فَإِنَّ رَبِّى غَنِىٌّۭ كَرِيمٌۭ](https://quran.com/27/40)
+
+***
+
 #### [Sahebaan-e-Ilm | صاحبانِ علم | Allama Talib Johri](https://www.youtube.com/watch?v=Gwi1zR6m3UM) -- 27 mins
 1. Haqiqat ka munkishaf hoo-janaa
 2. kisi-sah-ki tasweer-kaa aqal-kay-andar aa-janaa

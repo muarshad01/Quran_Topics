@@ -82,7 +82,7 @@
 #### Allah SWT Qurub
 * * Sheikh Abdul-Qadir Jilani
 * Last 3-Ayats of Surah Al-Hashar
-* __Surah Al-Hashar 59/22-24__: [...](https://quran.com/59/22-24) 
+* __Surah Al-Hashar 59/22-24 (يُسَبِّحُ لَهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ)__: [...](https://quran.com/59/22-24) 
 
 ***
 

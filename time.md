@@ -2,7 +2,7 @@
 
 ***
 
-#### [Different Time Dimensions In The Quran | Abdul Salam Arif](https://www.youtube.com/watch?v=fKAq1MsdZuY)
+#### [Different Time Dimensions In The Quran ( July 2026) | Abdul Salam Arif](https://www.youtube.com/watch?v=fKAq1MsdZuY)
 
 ***
 

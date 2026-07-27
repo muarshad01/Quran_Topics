@@ -278,7 +278,10 @@
 * Nubawat 40th year of life
 * __Surah Baqarah 2/51 (40 Nights)__: [And ˹remember˺ when We appointed forty nights for Moses, then you worshipped the calf in his absence, acting wrongfully.](https://quranwbw.com/2/51)
 * __Surah Al-Maida 5/26 (40 Years)__: [Allah replied, “Then this land is forbidden to them for forty years, during which they will wander through the land. So do not grieve for the rebellious people.”](https://quran.com/5/26)
-* __Surah Al-Araf 7/142 (40 Nights)__:[We appointed for Moses thirty nights then added another ten—completing his Lord’s term of forty nights. Moses commanded his brother Aaron, “Take my place among my people, do what is right, and do not follow the way of the corruptors.”](https://quranwbw.com/7/142)](https://quranwbw.com/7/142) 
+* __Surah Al-Araf 7/142 (40 Nights)__: [We appointed for Moses thirty nights then added another ten—completing his Lord’s term of forty nights. Moses commanded his brother Aaron, “Take my place among my people, do what is right, and do not follow the way of the corruptors.”](https://quranwbw.com/7/142) 
+* __Surah Al-Ahqaf 46/15 (40 Years)__: [وَوَصَّيْنَا ٱلْإِنسَـٰنَ بِوَٰلِدَيْهِ إِحْسَـٰنًا ۖ حَمَلَتْهُ أُمُّهُۥ كُرْهًۭا وَوَضَعَتْهُ كُرْهًۭا ۖ وَحَمْلُهُۥ وَفِصَـٰلُهُۥ ثَلَـٰثُونَ شَهْرًا ۚ حَتَّىٰٓ إِذَا بَلَغَ أَشُدَّهُۥ وَبَلَغَ أَرْبَعِينَ سَنَةًۭ قَالَ رَبِّ أَوْزِعْنِىٓ أَنْ أَشْكُرَ نِعْمَتَكَ ٱلَّتِىٓ أَنْعَمْتَ عَلَىَّ وَعَلَىٰ وَٰلِدَىَّ وَأَنْ أَعْمَلَ صَـٰلِحًۭا تَرْضَىٰهُ وَأَصْلِحْ لِى فِى ذُرِّيَّتِىٓ ۖ إِنِّى تُبْتُ إِلَيْكَ وَإِنِّى مِنَ ٱلْمُسْلِمِينَ](https://quran.com/46/15)
+
+
 
 ### Hazrat Musa AS - (30 + 10 = 40) nights on Koh-e-Toor
 * [We appointed for Moses thirty nights then added another ten—completing his Lord’s term of forty nights. Moses commanded his brother Aaron, “Take my place among my people, do what is right, and do not follow the way of the corruptors.”](https://quran.com/7/142)

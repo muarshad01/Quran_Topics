@@ -1,3 +1,13 @@
+#### [5 Biggest Tests of Taqwa | تقویٰ کی راہ کے 5 بڑے امتحان | SSA Shah](https://www.youtube.com/watch?v=5W2oRMcEMwA)
+* Two great hurdles, Ego and Nafas
+1. Go against the will of Nafas.
+2. If you get Rizq enough to life easily, do put an effort for a lot more then!
+3. Insaan, Zillat ko Izzat par tarjeeh deh.
+4. **Khalaq-e-khuda keh samnay dast-e-sawal daraz na karay**
+5. Joo ata hoo jai, uss ko kafi samjhay.
+
+***
+
 * __Surah Al-Baqarah 2/197 (ٱللَّهُ ۗ وَتَزَوَّدُوا۟ فَإِنَّ خَيْرَ ٱلزَّادِ ٱلتَّقْوَىٰ ۚ)__: [ٱلْحَجُّ أَشْهُرٌۭ مَّعْلُومَـٰتٌۭ ۚ فَمَن فَرَضَ فِيهِنَّ ٱلْحَجَّ فَلَا رَفَثَ وَلَا فُسُوقَ وَلَا جِدَالَ فِى ٱلْحَجِّ ۗ وَمَا تَفْعَلُوا۟ مِنْ خَيْرٍۢ يَعْلَمْهُ ٱللَّهُ ۗ وَتَزَوَّدُوا۟ فَإِنَّ خَيْرَ ٱلزَّادِ ٱلتَّقْوَىٰ ۚ وَٱتَّقُونِ يَـٰٓأُو۟لِى ٱلْأَلْبَـٰبِ](https://quran.com/2/197)
 
 * __Surah Al-Baqarah 2/237 (وَأَن تَعْفُوٓا۟ أَقْرَبُ لِلتَّقْوَىٰ ۚ)__: [وَإِن طَلَّقْتُمُوهُنَّ مِن قَبْلِ أَن تَمَسُّوهُنَّ وَقَدْ فَرَضْتُمْ لَهُنَّ فَرِيضَةًۭ فَنِصْفُ مَا فَرَضْتُمْ إِلَّآ أَن يَعْفُونَ أَوْ يَعْفُوَا۟ ٱلَّذِى بِيَدِهِۦ عُقْدَةُ ٱلنِّكَاحِ ۚ وَأَن تَعْفُوٓا۟ أَقْرَبُ لِلتَّقْوَىٰ ۚ وَلَا تَنسَوُا۟ ٱلْفَضْلَ بَيْنَكُمْ ۚ إِنَّ ٱللَّهَ بِمَا تَعْمَلُونَ بَصِيرٌ](https://quran.com/2/237)

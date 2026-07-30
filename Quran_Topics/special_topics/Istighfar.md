@@ -18,7 +18,7 @@
 #### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
 * __Surah An-Nasr 110__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110)
 * Istighfar - Ghafar - means dahankanaa (to Cover)
-* Istighfar - Dhanak dehnay Ki duaa karna (Rehmat say)
+* Istighfar - Dahanak dehnay Ki duaa karna (Rehmat say)
 * Remove sins and cover with your Rehmat
 * Increase more Blessing to your Rehmat
 

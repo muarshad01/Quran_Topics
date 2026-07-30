@@ -1,9 +1,9 @@
 #### [5 Biggest Tests of Taqwa | تقویٰ کی راہ کے 5 بڑے امتحان | SSA Shah](https://www.youtube.com/watch?v=5W2oRMcEMwA)
 * Two great hurdles, Ego and Nafas
-1. Go against the will of Nafas.
-2. If you get Rizq enough to life easily, do put an effort for a lot more then!
+1. Go against the will of NAFAS.
+2. If you get RIZQ enough to life easily, don't put an effort for a lot more then!
 3. Insaan, Zillat ko Izzat par tarjeeh deh.
-4. **Khalaq-e-khuda keh samnay dast-e-sawal daraz na karay**
+4. **Khalaq-e-khuda keh samnay dast-e-sawal daraz-na-karay**
 5. Joo ata hoo jai, uss ko kafi samjhay.
 
 ***

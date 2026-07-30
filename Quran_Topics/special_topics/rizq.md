@@ -1,3 +1,12 @@
+## RIZQ
+* Rizq sirf-Rooti-Nahi
+* __Itminan-e-Qalb, Qabooliat, Izzat, Allah-Kay-Saath-Taluq__
+* Ah Allah, Mujhay apnay-sawa bay-niyaz kar-day
+* Logon say bay-nizayi
+* __Ya-Wahabu, Ya-Ghaniu, Ya-Razzaqu__
+
+***
+
 #### [Surah Talaq 65/2-3](https://www.youtube.com/shorts/eWFYkNGWFCg)
 * __Surah At-Talaq 65/2-3__: [وَمَن يَتَّقِ ٱللَّهَ يَجْعَل لَّهُۥ مَخْرَجًۭا...وَيَرْزُقْهُ مِنْ حَيْثُ لَا يَحْتَسِبُ ۚ... وَمَن يَتَوَكَّلْ عَلَى ٱللَّهِ فَهُوَ حَسْبُهُۥٓ ۚ... إِنَّ ٱللَّهَ بَـٰلِغُ أَمْرِهِۦ ۚ... قَدْ جَعَلَ ٱللَّهُ لِكُلِّ شَىْءٍۢ قَدْرًۭا ](https://quran.com/65/2-3)
 
@@ -36,14 +45,6 @@
 ***
 
 #### [What matters more: Hard work or Tawakkul? | SSA Shah](https://www.youtube.com/shorts/alc9APZdNjQ)
-
-***
-
-* Rizq sirf-Rooti-Nahi
-* __Itminan-e-Qalb, Qabooliat, Izzat, Allah-Kay-Saath-Taluq__
-* Ah Allah, Mujhay apnay-sawa bay-niyaz kar-day
-* Logon say bay-nizayi
-* __Ya-Wahabu, Ya-Ghaniu, Ya-Razzaqu__
 
 ***
 

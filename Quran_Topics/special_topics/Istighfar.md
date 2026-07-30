@@ -17,9 +17,9 @@
 
 #### [Astaghfar | Allama Talib Johri‬](https://www.youtube.com/watch?v=GKuNxexb5zA)
 * __Surah An-Nasr 110__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110)
-* Istighfar - Ghafar - means dahankanaa (to Cover)
-* Istighfar - Dahanak dehnay Ki duaa karna (Rehmat say)
-* Remove sins and cover with your Rehmat
+* Astaghfar - Ghafar - means dahankanaa (to Cover)
+* Astaghfar - Dahanak dehnay Ki duaa karna (Rehmat say)
+* REMOVE sins and COVER with your Rehmat
 * Increase more Blessing to your Rehmat
 
 ***
@@ -30,18 +30,21 @@
 * __Ibadat__: Allah SWT say baat-karna
 
 * __Surah An-Nur 24/31 (وَتُوبُوٓا۟ إِلَى ٱللَّهِ جَمِيعًا أَيُّهَ ٱلْمُؤْمِنُونَ لَعَلَّكُمْ تُفْلِحُونَ)__: [وَقُل لِّلْمُؤْمِنَـٰتِ ...يَغْضُضْنَ مِنْ أَبْصَـٰرِهِنَّ... وَيَحْفَظْنَ فُرُوجَهُنَّ ...وَلَا يُبْدِينَ زِينَتَهُنَّ... إِلَّا مَا ظَهَرَ مِنْهَا ۖ... وَلْيَضْرِبْنَ بِخُمُرِهِنَّ عَلَىٰ جُيُوبِهِنَّ ۖ ...وَلَا يُبْدِينَ زِينَتَهُنَّ... إِلَّا لِبُعُولَتِهِنَّ... أَوْ ءَابَآئِهِنَّ ...أَوْ ءَابَآءِ بُعُولَتِهِنَّ... أَوْ أَبْنَآئِهِنَّ أَوْ أَبْنَآءِ بُعُولَتِهِنَّ أَوْ إِخْوَٰنِهِنَّ أَوْ بَنِىٓ إِخْوَٰنِهِنَّ أَوْ بَنِىٓ أَخَوَٰتِهِنَّ أَوْ نِسَآئِهِنَّ أَوْ مَا مَلَكَتْ أَيْمَـٰنُهُنَّ أَوِ ٱلتَّـٰبِعِينَ ...غَيْرِ أُو۟لِى ٱلْإِرْبَةِ مِنَ ٱلرِّجَالِ ...أَوِ ٱلطِّفْلِ ٱلَّذِينَ لَمْ يَظْهَرُوا۟ عَلَىٰ عَوْرَٰتِ ٱلنِّسَآءِ ۖ... وَلَا يَضْرِبْنَ بِأَرْجُلِهِنَّ لِيُعْلَمَ مَا يُخْفِينَ مِن زِينَتِهِنَّ ۚ... وَتُوبُوٓا۟ إِلَى ٱللَّهِ جَمِيعًا... أَيُّهَ ٱلْمُؤْمِنُونَ لَعَلَّكُمْ تُفْلِحُونَ](https://quran.com/24/31)
-* And tell the believing women to lower their gaze and guard their chastity, and not to reveal their adornments except what normally appears. Let them draw their veils over their chests, and not reveal their ˹hidden˺ adornments except to: 1.
-1. their husbands (لِبُعُولَتِهِنَّ)
-2. their fathers (ءَابَآئِهِنَّ)
-3. their fathers-in-law (ءَابَآءِ بُعُولَتِهِنَّ)
-4. their sons (أَبْنَآئِهِنَّ)
-5. their stepsons (أَبْنَآءِ بُعُولَتِهِنَّ)
-6. their brothers (إِخْوَٰنِهِنَّ)
-7. their brothers’ sons (بَنِىٓ إِخْوَٰنِهِنَّ) or sisters’ sons (بَنِىٓ أَخَوَٰتِهِنَّ)
-8. their fellow women (نِسَآئِهِنَّ)
-9. those ˹bondwomen˺ in their possession (مَلَكَتْ أَيْمَـٰنُهُنَّ)
-10. male attendants with no desire (ٱلتَّـٰبِعِينَ غَيْرِ أُو۟لِى ٱلْإِرْبَةِ مِنَ ٱلرِّجَالِ)
-11. or children who are still unaware of women’s nakedness (ٱلطِّفْلِ ٱلَّذِينَ لَمْ يَظْهَرُوا۟ عَلَىٰ عَوْرَٰتِ ٱلنِّسَآءِ ۖ)
+* And tell the believing women to lower-their-gaze and guard-their-chastity, and not to reveal-their-adornments except what normally appears. Let them draw their veils over their chests, and not reveal their ˹hidden˺ adornments except to: 
+1. (that) they should lower ( يَغْضُضْنَ)
+2. They reveal / they display (يُبْدِينَ)
+3. head covers on their bosoms (بِخُمُرِهِنَّ عَلَىٰ جُيُوبِهِنَّ ۖ)
+4. their husbands (لِبُعُولَتِهِنَّ) - Root Analysis: ب - ع - ل (B - ' - L)
+5. their fathers (ءَابَآئِهِنَّ)
+6. their fathers-in-law (ءَابَآءِ بُعُولَتِهِنَّ)
+7. their sons (أَبْنَآئِهِنَّ)
+8. their stepsons (أَبْنَآءِ بُعُولَتِهِنَّ)
+9. their brothers (إِخْوَٰنِهِنَّ)
+10. their brothers’ sons (بَنِىٓ إِخْوَٰنِهِنَّ) or sisters’ sons (بَنِىٓ أَخَوَٰتِهِنَّ)
+11. their fellow women (نِسَآئِهِنَّ)
+12. those ˹bondwomen˺ in their possession (مَلَكَتْ أَيْمَـٰنُهُنَّ)
+13. male attendants with no desire (ٱلتَّـٰبِعِينَ... غَيْرِ أُو۟لِى ٱلْإِرْبَةِ مِنَ ٱلرِّجَالِ)
+14. or children who are still unaware of women’s nakedness (ٱلطِّفْلِ ٱلَّذِينَ لَمْ يَظْهَرُوا۟ عَلَىٰ عَوْرَٰتِ ٱلنِّسَآءِ ۖ)
 * Let them not stomp their feet, drawing attention to their hidden adornments (ٱلنِّسَآءِ ۖ وَلَا يَضْرِبْنَ بِأَرْجُلِهِنَّ لِيُعْلَمَ مَا يُخْفِينَ مِن زِينَتِهِنَّ ۚ). Turn to Allah in repentance all together, O  believers, so that you may be successful.
 
 ***

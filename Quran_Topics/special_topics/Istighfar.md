@@ -62,23 +62,22 @@
 * __Surah Al-Anfaal 08/33__: [وَمَا كَانَ ٱللَّهُ لِيُعَذِّبَهُمْ وَأَنتَ فِيهِمْ ۚ... وَمَا كَانَ ٱللَّهُ مُعَذِّبَهُمْ وَهُمْ يَسْتَغْفِرُونَ](https://quran.com/8/33)
 * __Surah Hud 11/52 (${\color{red}Strength ~and ~Power ~will ~Increase}$)__: [وَيَـٰقَوْمِ ٱسْتَغْفِرُوا۟ رَبَّكُمْ... ثُمَّ تُوبُوٓا۟ إِلَيْهِ ...يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا... وَيَزِدْكُمْ قُوَّةً إِلَىٰ قُوَّتِكُمْ وَلَا تَتَوَلَّوْا۟ مُجْرِمِينَ](https://quran.com/11/52)
 * __Surah Nuh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ... ٱسْتَغْفِرُوا۟ رَبَّكُمْ إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quran.com/71/10-12)
-
 ***
 
-#### [Allah forgive all sins, if sinner seek repentance from God | Prof  ARA](https://www.youtube.com/watch?v=X1WIFFwQri8)
-* __Surah Az-Zumar 39/53__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ ...لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ... إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ... إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/39/53)
+#### [Allah forgive ALL sins, if sinner seek repentance from God | Prof  ARA](https://www.youtube.com/watch?v=X1WIFFwQri8)
 * __Surah Yaseen 36/30__: [يَـٰحَسْرَةً عَلَى ٱلْعِبَادِ ۚ... مَا يَأْتِيهِم مِّن رَّسُولٍ إِلَّا كَانُوا۟ بِهِۦ يَسْتَهْزِءُونَ](https://quran.com/36/30)
+* __Surah Az-Zumar 39/53__: [۞ قُلْ يَـٰعِبَادِىَ ٱلَّذِينَ أَسْرَفُوا۟ عَلَىٰٓ أَنفُسِهِمْ ...لَا تَقْنَطُوا۟ مِن رَّحْمَةِ ٱللَّهِ ۚ... إِنَّ ٱللَّهَ يَغْفِرُ ٱلذُّنُوبَ جَمِيعًا ۚ... إِنَّهُۥ هُوَ ٱلْغَفُورُ ٱلرَّحِيمُ](https://quran.com/39/53)
 
 ***
 
 #### [Astaghfar ka Falsafa | Allama Talib Johri](https://www.youtube.com/watch?v=6vCzVfdPNMs&t=16s)
 * __Surah An-Nasr 110__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚ إِنَّهُۥ كَانَ تَوَّابًۢا](https://qura.com/110)
-    * Istigfar is a constant Ibadah
+    * Istigfar is a CONSTANT Ibadah
     * Wa-is'taghfir'hu (and ask His forgiveness)
 * __Surah Nuh 71/10-12 (Rain, Wealth, Children, Gardens, and Rivers)__: [فَقُلْتُ... ٱسْتَغْفِرُوا۟ رَبَّكُمْ ...إِنَّهُۥ كَانَ غَفَّارًۭا......يُرْسِلِ ٱلسَّمَآءَ عَلَيْكُم مِّدْرَارًۭا......وَيُمْدِدْكُم بِأَمْوَٰلٍۢ وَبَنِينَ وَيَجْعَل لَّكُمْ جَنَّـٰتٍۢ وَيَجْعَل لَّكُمْ أَنْهَـٰرًۭا](https://quran.com/71/10-12)
 * Five Things:
 1. Gunah
-2. Hunger Poverty (Wealth)
+2. Wealth: Hunger Poverty
 3. Children
 4. Garden
 5. Rivers

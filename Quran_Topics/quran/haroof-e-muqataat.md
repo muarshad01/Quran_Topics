@@ -165,3 +165,9 @@
 ***
 
 #### [Alif Laam Meem Kay Chupay Raaz ? | Islamic History | Suno Muslim | Abdus Salaam Arif](https://www.youtube.com/watch?v=d0aWizPiFwM)
+
+***
+
+#### [सिर्फ 1 बार पढ़ें! सूरह मरियम आयत 1-2 का कमाल वज़ीफ़ा | Kaf Ha Ya Ain Sad ‪@MuqaddasWazaif | Mufti Muneer Akhoon‬](https://www.youtube.com/watch?v=u5Veq6gbBtg)
+
+***

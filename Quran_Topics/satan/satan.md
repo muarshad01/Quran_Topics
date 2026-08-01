@@ -7,6 +7,11 @@
 
 ***
 
+#### [Iblees Ne 6 Lakh Saal Ibadat Ki, Phir Bhi Kafir Kyun Hua? | Hairan Kun Haqeeqat 😲🔥| Mufti Muneer](https://www.youtube.com/watch?v=3LRZ9HqWpx8)
+* TODO
+
+***
+
 #### [Shaitan Se Bachao | SSA Shah](https://www.youtube.com/watch?v=vpjMXsA778c)
 * Ziada-say-ziada Bismillah parha-karo
 * __Bismillahir Rahmanir Raheem (Arabic: 'بِسْمِ ٱللهِ ٱلرَّحْمَٰنِ ٱلرَّحِيْمِ)__

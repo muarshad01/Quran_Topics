@@ -121,3 +121,8 @@
   * [Our Milky Way Galaxy: How Big is Space?](https://science.nasa.gov/universe/exoplanets/our-milky-way-galaxy-how-big-is-space/)
 
 ***
+
+#### [One Day Equals 50,000 Years? | Quran, Science, Wormholes, Portals & Elon Musk | Ghor o Fikr Ep. 83](https://www.youtube.com/watch?v=1kJ5Hu14VZg)
+* Todo
+
+***

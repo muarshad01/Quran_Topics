@@ -6,6 +6,10 @@
 
 ***
 
+#### [Iblees Sajda Na Karne Par Kafir Hua, To Namaz Na Parhne Wala Musalman Kyun? 😲 | Aham Islami Sawal | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=K1hhh6tCLfA)
+
+***
+
 #### [Wo Musalman Jin Ki Rooh Arsh Elahi K Nechy Sajda Karti Hai | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=E6_C1fawm_s)
 
 ***

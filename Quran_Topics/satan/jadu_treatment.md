@@ -1,3 +1,7 @@
+#### [Surah Yunus Ki Bus 1 Ayat Jado Tony Kay Khtamy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=29hOuQL6M3o)
+
+***
+
 #### [Black Magic Repeatedly Affecting You? Signs, Causes & Proven Quranic Remedy | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=7uJZKagjvpE)
 
 ***

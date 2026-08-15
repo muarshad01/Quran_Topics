@@ -268,3 +268,13 @@
 
 
 * __Surah Fussilat 41/33__: [وَمَنْ أَحْسَنُ قَوْلًۭا مِّمَّن دَعَآ إِلَى ٱللَّهِ ...وَعَمِلَ صَـٰلِحًۭا... وَقَالَ إِنَّنِى مِنَ ٱلْمُسْلِمِينَ](https://quran.com/41/33)
+
+***
+
+#### [Quran Pak Se Faal Nikalne Ka Tareeqa | SSA Shah](https://www.youtube.com/watch?v=qw7pZ706Czg)
+
+***
+
+
+
+

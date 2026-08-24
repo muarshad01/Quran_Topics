@@ -7,6 +7,10 @@
 
 ***
 
+#### [Satan attacks on your mood swings because he knows you | Prof ARA](https://www.youtube.com/watch?v=wNama-qkQMU)
+
+***
+
 #### [Iblees Ne 6 Lakh Saal Ibadat Ki, Phir Bhi Kafir Kyun Hua? | Hairan Kun Haqeeqat 😲🔥| Mufti Muneer](https://www.youtube.com/watch?v=3LRZ9HqWpx8)
 * TODO
 

@@ -6,7 +6,7 @@
 1. Self Moniting
 2. Start understanding Deen
 3. Love for Allah SWT, Rashool SAW, and Murshit keep increasing
-4. 
+4. Imman, Taqwa, Haya, Nadimat, Mohabbat, Ikhlaas increases
 
 ***
 

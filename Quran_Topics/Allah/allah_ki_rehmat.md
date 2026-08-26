@@ -2,6 +2,10 @@
 
 ***
 
+#### [Jab Allah Kisi Per Rehmat Ka Irada Karta Hai Tu Kya Nishani Zahir Hoti Hai ? | Irfan-ul-Haq](https://www.youtube.com/shorts/OJN1xNc3CVc)
+
+***
+
 #### [Allah Ki Rehmat | SSA Shah](https://www.youtube.com/watch?v=GEvZ0NxR-dc)
 * Those who really attained high status
 * __Allah-SWT ki-bandagi begheer-kisi-gharaz-kay__

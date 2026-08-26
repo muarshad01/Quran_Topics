@@ -3,6 +3,10 @@
 ***
 
 #### [Jab Allah Kisi Per Rehmat Ka Irada Karta Hai Tu Kya Nishani Zahir Hoti Hai ? | Irfan-ul-Haq](https://www.youtube.com/shorts/OJN1xNc3CVc)
+1. Self Moniting
+2. Start understanding Deen
+3. Love for Allah SWT, Rashool SAW, and Murshit keep increasing
+4. 
 
 ***
 

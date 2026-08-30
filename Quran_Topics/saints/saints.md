@@ -370,3 +370,27 @@ Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
 *** 
 
 #### [The Shocking Story of Imam Ahmad ibn Hanbal’s Funeral | Sahil Adeem](https://www.youtube.com/watch?v=nxQ6Ln-mVPk)
+
+***
+
+#### [The Spiritual Code of Baba Farid Ganj Shakar | Hidden Mysteries, Kashf & Spiritual Blessings](https://www.youtube.com/watch?v=shNP709-nsk&t=14s)
+1. Moin-ud-din Chishti Ajmari [1143 - 1236 = 93 years]
+2. Qutb-ud-din Bakhtiar Kaki  [1173 - 1235 = 62 years](SSA Shah 1985 Peshawar incident)
+3. Farid-ud-din Ganjshakar    [1173 – 1266 = 93 years]
+4. Nizam-ud-din Auliya
+5. Naseer-ud-din-Chirag
+6. Banda Nawaz Gaisu Daraz
+7. Kaleem Ullah Shah
+8. Nazim-ud-din-aurang-abadi
+9. Fakhar-ud-din-Fakhar
+10. Noor ullah Moharvi
+11. Shah Salman Townswi
+12. Shams-ud-din Sialwi
+13. Pir Mehr Ali Shah Shb
+
+* Ala-ud-din Ali Ahmed Sabir (Sabir Kaliyari) [1196 – 1291 = 95 years]
+   * Nephew and successor to Baba Fareed.
+
+* Turk pani pati
+
+***

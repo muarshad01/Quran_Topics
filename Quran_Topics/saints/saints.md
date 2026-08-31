@@ -388,6 +388,15 @@ Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
 12. Shams-ud-din Sialwi
 13. Pir Mehr Ali Shah Shb
 
+<p align="center">
+  <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/farid-ud-din-ganj-shakar.png
+" width="500" height="300" />
+</p>
+
+
+
+
+
 * Ala-ud-din Ali Ahmed Sabir (Sabir Kaliyari) [1196 – 1291 = 95 years]
    * Nephew and successor to Baba Fareed.
 

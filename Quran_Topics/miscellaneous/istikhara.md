@@ -6,6 +6,10 @@
 
 ***
 
+#### [Ya-Latifu Ya-Allemu Ya-khabeeru | Prof Abdullah bhatti](https://www.youtube.com/shorts/CG7_JUSlW3g)
+
+***
+
 #### [Quick Istikhar | Abdullah Bhatti](https://www.youtube.com/shorts/JFQ7UsK5jTk)
 * Ya Aleemu, La Latifu, Ya Khabeera (يَا عَلِيمُ يَا خَبِيرُ يَا لَطِيفُ)
 * __Surah Al-Baqarah 2/32__: [قَالُوا۟ سُبْحَـٰنَكَ لَا عِلْمَ لَنَآ إِلَّا مَا عَلَّمْتَنَآ ۖ إِنَّكَ أَنتَ ٱلْعَلِيمُ ٱلْحَكِيمُ](https://quran.com/2/32)

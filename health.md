@@ -1,13 +1,12 @@
 #### [Fatty Liver Reversed Naturally? Causes, Symptoms & Diet Plan for a Healthier Liver](https://www.youtube.com/watch?v=NQ-ZPPAgVe8)
-* Shakar, Cheeni, Gur, Shakkar, avoid all sweet things
-* Salads
-* Black Coffee (Don't put milk); add lemon
-* BeetRoot Juice
-* CocoNut Juice
-* DaarCheeni, Zeera, Haldi Qawa
+* **Avoid Sweets**: Shakkar, Cheeni, Gur, Shakkar, avoid all sweet things
+* Eat Salads
+* **Coffee**: Black Coffee (Don't put milk); add lemon
+* **Juice**: Beetrooot and CocoNut Juice
+* **Tea**: Cinnamon, Zeera, Haldi
 * Hamdard (Jigarine)
 * Garlic melts belly fat too
-* Araq-e-Qasmi; Araw-e-Mako; Araq-e-Sauf (Surah Hadid First Ayat 101 time daily)
+* Arq Kasni; Araq-e-Mako; Saunf Ark (Surah Hadid First Ayat 101 time daily)
 * Stop fast-food; pizza; burger, etc
 
 ***

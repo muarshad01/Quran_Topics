@@ -6,6 +6,10 @@
 
 ***
 
+#### [REEL : Sachay Khwab Kab Nazar Atay Hain? | SSA Shah](https://www.youtube.com/shorts/220TFFQybhg)
+
+***
+
 #### [Danger Signs in Dreams | خواب میں خطرناک اشارے کس چیز کو ظاہرکرتے ہیں؟| SSA Shah](https://www.youtube.com/watch?v=sccghkdwmkM)
 * In west, Lift a table with your brain power.
 1. Unconcious mind

@@ -8,6 +8,7 @@
 * Hamdard (Jigarine)
 * Garlic melts belly fat too
 * Araq-e-Qasmi; Araw-e-Mako; Araq-e-Sauf (Surah Hadid First Ayat 101 time daily)
+* Stop fast-food; pizza; burger, etc
 
 ***
 

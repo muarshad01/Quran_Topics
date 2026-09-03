@@ -6,8 +6,8 @@
 * **Tea**: Cinnamon, Zeera, Haldi
 * Hamdard (Jigarine)
 * Garlic melts belly fat too
-* Arq kasni + Arq Makoh + Saunf Ark (First Ayat of Surah Hadid 101 times daily)
-* Stop fast-food; pizza; burger, etc
+* **Arq kasni + Arq Makoh + Saunf Ark (First Ayat of Surah Hadid 101 times daily)**
+* Stop fast-food, pizza, burger, etc.
 
 ***
 

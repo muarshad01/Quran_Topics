@@ -1,3 +1,8 @@
+#### [Delhi Hindu Magician’s Challenge | Abdullah Bhatti (Sept 05, 2026)](https://www.youtube.com/watch?v=TlQbtUnADPo)
+* __Surah __: []()
+
+***
+
 #### [Surah Yunus Ki Bus 1 Ayat Jado Tony Kay Khtamy | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=29hOuQL6M3o)
 
 ***

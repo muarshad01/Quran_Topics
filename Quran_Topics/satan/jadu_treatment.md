@@ -1,5 +1,6 @@
 #### [Delhi Hindu Magician’s Challenge | Abdullah Bhatti (Sept 05, 2026)](https://www.youtube.com/watch?v=TlQbtUnADPo)
 * __Surah Yunus 10/81__: [فَلَمَّآ أَلْقَوْا۟ قَالَ مُوسَىٰ مَا جِئْتُم بِهِ ٱلسِّحْرُ ۖ إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
+* __Surah Yaseen 36/58__: [سَلَـٰمٌۭ قَوْلًۭا مِّن رَّبٍّۢ رَّحِيمٍۢ](https://quran.com/36/58)
 
 ***
 

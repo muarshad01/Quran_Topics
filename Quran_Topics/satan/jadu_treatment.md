@@ -1,5 +1,5 @@
 #### [Delhi Hindu Magician’s Challenge | Abdullah Bhatti (Sept 05, 2026)](https://www.youtube.com/watch?v=TlQbtUnADPo)
-* __Surah __: []()
+* __Surah Yunus 10/81__: [فَلَمَّآ أَلْقَوْا۟ قَالَ مُوسَىٰ مَا جِئْتُم بِهِ ٱلسِّحْرُ ۖ إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
 
 ***
 

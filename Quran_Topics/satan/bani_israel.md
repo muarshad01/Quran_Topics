@@ -371,3 +371,7 @@
   
 ***
 
+
+#### [Bani Israel Ke Dil Pathar Kyun Ho Gaye? 😳 | Quran Mein Hairatangez Haqeeqat | Mufti Muneer Akhoon](https://www.youtube.com/watch?v=vmaT5dNabYc)
+
+***

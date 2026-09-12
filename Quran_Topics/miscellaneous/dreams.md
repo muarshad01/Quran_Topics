@@ -10,6 +10,10 @@
 
 ***
 
+#### [Murshid Ko Khawab Main Dekhna Kaisa Hai? | SSA Shah](https://www.youtube.com/shorts/jVekKMYMjnY)
+
+***
+
 #### [Danger Signs in Dreams | خواب میں خطرناک اشارے کس چیز کو ظاہرکرتے ہیں؟| SSA Shah](https://www.youtube.com/watch?v=sccghkdwmkM)
 * In west, Lift a table with your brain power.
 1. Unconcious mind

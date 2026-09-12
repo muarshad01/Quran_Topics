@@ -191,3 +191,9 @@
 ***
 
 #### [How to Manage Menopause? | Menopause Ma kya khain? Diet for Menopausse | Dr Shumaila Tanveer](https://www.youtube.com/watch?v=aNTYrZUI8vQ)
+
+***
+
+#### [Natural Treatment for Male Impotency | Sukoon Wellness CEO Rohail Ahmad Sheikh | Fiza Ali | 24 Plus](https://www.youtube.com/watch?v=B6rv6XAF4nM&t=694s)
+
+***

@@ -17,6 +17,11 @@
 
 ***
 
+#### [Benefits of Zikar ALLAH | Prof ARA](https://www.youtube.com/watch?v=JQ-6XfqkbL0)
+* XXX
+
+***
+
 #### [Impact of Tasbeeh on brain | Prof ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 
 ***

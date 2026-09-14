@@ -3,6 +3,10 @@
 
 ***
 
+* [About Reliance Upon Allah](https://sunnah.com/tirmidhi:2344)
+
+***
+
 #### [2-Hidden Signs of Righteous Man | SSA Shah](https://www.youtube.com/watch?v=JV_JOeszkcM)
 * Hazrat Imman Hussain RA
 

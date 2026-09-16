@@ -72,6 +72,9 @@
 ***
 
 #### [Allah Nay Sab Se Pehlay Meray Noor Ko Khalq Kiya | Allama Talib Johri](https://www.youtube.com/watch?v=BXBrWY_3b8g&t=2s)
+* __Surah Adh-Dhariyat 51/56__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/51/56)
+* __Surah Adh-Dhariyat 51/57__: [مَآ أُرِيدُ مِنْهُم مِّن رِّزْقٍۢ... وَمَآ أُرِيدُ أَن يُطْعِمُونِ](https://quran.com/51/57)
+* __Surah Adh-Dhariyat 51/58__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/51/58)
 
 ***
 

@@ -16,6 +16,10 @@
 
 ***
 
+#### [REEL: Rutba-e-Fuqr Kaise Milta Hai? | SSA Shah](https://www.youtube.com/shorts/cniOoDd1ieg)
+
+***
+
 #### [Signs of a Genuine Faqeer | حقیقی فقیر کی پہچان—دو زبردست ٹیسٹ | SSA Shah](https://www.youtube.com/watch?v=_iT2O7iMTq0)
 1. - Litmus Test
    * You'll feel attraction

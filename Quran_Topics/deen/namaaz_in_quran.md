@@ -17,6 +17,10 @@
 
 ***
 
+#### [Namaz k 3 wakt hen ya 5 wakt al quran | Allama Talib Johri](https://www.youtube.com/watch?v=d9mOvcZoaVY)
+
+***
+
 #### [Wrong Concept of Salah | Namaz Ka Ghalat Tasawur (June 2026) | Abdul Salam Arif](https://www.youtube.com/watch?v=YltdoytJvAE)
 * __Surah Al-Baqarah 2/238__: [حَـٰفِظُوا۟ عَلَى ٱلصَّلَوَٰتِ... وَٱلصَّلَوٰةِ ٱلْوُسْطَىٰ... وَقُومُوا۟ لِلَّهِ قَـٰنِتِينَ](https://quran.com/2/238)
 * Protect you System (حَـٰفِظُوا۟ عَلَى ٱلصَّلَوَٰتِ)

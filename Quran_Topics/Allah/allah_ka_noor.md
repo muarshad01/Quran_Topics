@@ -55,6 +55,17 @@
 
 ***
 
+#### [Falsafa-e-Noor | Allama Talib Johri](https://www.youtube.com/watch?v=KBZ8utqcegc)
+* __Surah Luqman 31/20__: [أَلَمْ تَرَوْا۟ أَنَّ ٱللَّهَ سَخَّرَ لَكُم مَّا فِى ٱلسَّمَـٰوَٰتِ وَمَا فِى ٱلْأَرْضِ وَأَسْبَغَ عَلَيْكُمْ نِعَمَهُۥ ظَـٰهِرَةًۭ وَبَاطِنَةًۭ ۗ وَمِنَ ٱلنَّاسِ مَن يُجَـٰدِلُ فِى ٱللَّهِ بِغَيْرِ عِلْمٍۢ وَلَا هُدًۭى وَلَا كِتَـٰبٍۢ مُّنِيرٍۢ](https://quran.com/31/20)
+* __Surah Al-Insaan 76/1-3__: [](https://quran.com/76/1-3)
+* __Surah Al-Kahf 18/29 (فَمَن شَآءَ فَلْيُؤْمِن وَمَن شَآءَ فَلْيَكْفُرْ ۚ)__: [وَقُلِ ٱلْحَقُّ مِن رَّبِّكُمْ ۖ... فَمَن شَآءَ فَلْيُؤْمِن وَمَن شَآءَ فَلْيَكْفُرْ ۚ... إِنَّآ أَعْتَدْنَا لِلظَّـٰلِمِينَ نَارًا أَحَاطَ بِهِمْ سُرَادِقُهَا ۚ وَإِن يَسْتَغِيثُوا۟ يُغَاثُوا۟ بِمَآءٍۢ كَٱلْمُهْلِ يَشْوِى ٱلْوُجُوهَ ۚ بِئْسَ ٱلشَّرَابُ وَسَآءَتْ مُرْتَفَقًا](https://quran.com/18/29)
+* __Surah Ash-Shams 91__: [](https://quran.com/91)
+* __Surah Al-Balad 90/8-10__: [](https://quran.com/90/8-10)
+
+* 4:00 
+
+***
+
 #### [Noor-kia-hay | Allama Talib Johri](https://www.youtube.com/watch?v=0vybkw0ZT8s)
 * Hazrat Ali RA was 27 years younger than Prophet Muhammad (PBUH)
 * Christian Bishob `Noor-e-nabuwat`
@@ -106,9 +117,6 @@
 
 ***
 
-#### [Falsafa-e-Noor | Allama Talib Johri](https://www.youtube.com/watch?v=KBZ8utqcegc)
-
-***
 
 #### [What Is The Meaning of "Allahu Nurus Samawati Wal-ard"| Sahil Adeem](https://www.youtube.com/watch?v=8dLFsZY1AY8)
 

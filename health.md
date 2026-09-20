@@ -1,4 +1,9 @@
 #### [1 CUP Instantly Clears Sinus & Mucus From Lungs](https://www.youtube.com/watch?v=fGU_X-_FJaQ)
+1. Holy Basil
+2. Clove
+3. Ginger
+4. Cinnamon
+5. Honey
 
 ***
 

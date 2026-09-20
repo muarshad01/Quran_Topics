@@ -1,3 +1,7 @@
+#### [1 CUP Instantly Clears Sinus & Mucus From Lungs](https://www.youtube.com/watch?v=fGU_X-_FJaQ)
+
+***
+
 #### [Fatty Liver Reversed Naturally? Causes, Symptoms & Diet Plan for a Healthier Liver](https://www.youtube.com/watch?v=NQ-ZPPAgVe8)
 * **Avoid Sweets**: Shakkar, Cheeni, Gur, Shakkar, avoid all sweet things
 * Eat Salads

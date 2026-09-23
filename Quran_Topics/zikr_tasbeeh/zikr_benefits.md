@@ -233,3 +233,11 @@
 ***
 
 #### [The Most Powerful Dhikr for Spiritual Peace | Abdullah Bhatti Reveals! | 89 news hd](https://www.youtube.com/watch?v=ehxl4IQtd0U)
+
+
+***
+
+* __Surah An-Nur 24/37__: [رِجَالٌ لَّا تُلْهِيهِمْ تِجَـٰرَةٌ وَلَا بَيْعٌ عَن ذِكْرِ ٱللَّهِ وَإِقَامِ ٱلصَّلَوٰةِ وَإِيتَآءِ ٱلزَّكَوٰةِ ۙ يَخَافُونَ يَوْمًا تَتَقَلَّبُ فِيهِ ٱلْقُلُوبُ وَٱلْأَبْصَـٰرُ ](https://quran.com/24/37)
+
+***
+

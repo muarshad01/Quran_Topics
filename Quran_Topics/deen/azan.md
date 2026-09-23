@@ -9,3 +9,8 @@
 * Allah Akbar 4-times: 4-directions of Universe
 
 ***
+
+#### Masjid (Mosque)
+* __Surah 10/36__: []()
+
+***

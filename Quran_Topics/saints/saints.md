@@ -402,3 +402,14 @@ Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
 
 #### [Raaz-e-Roohaniyat: Sahib-e-Mazar se Rabta aur Faiz Kaise Hasil Karein? | Ft. Abdullah Bhatti](https://www.youtube.com/watch?v=UH06yIYyAho)
 
+***
+
+#### [11. Q&A Session With Syed Sarfraz A. Shah | Allah Ki Narazgi](https://www.youtube.com/watch?v=6dtLS773RbM)
+* Bayazid Bastami
+  * Story of Deer meat
+  * Logoo aaj mayn mardood ho gayaa
+
+***
+
+
+

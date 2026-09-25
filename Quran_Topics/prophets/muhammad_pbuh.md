@@ -645,3 +645,7 @@ https://www.youtube.com/shorts/NG2A7t0eLYY
 * **Surah Al-Hijr 15/6__: [وَقَالُوا۟ يَـٰٓأَيُّهَا ٱلَّذِى... نُزِّلَ عَلَيْهِ ٱلذِّكْرُ ...إِنَّكَ لَمَجْنُونٌۭ](https://quran.com/15/6)
 
 ***
+
+* __Surah Al-Araf 7/188__: [](https://quran.com/7/188)
+
+***

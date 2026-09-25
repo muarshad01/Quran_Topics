@@ -20,7 +20,11 @@
 
 ***
 
-* [Shahib-e-Ilm | Syed Sarfarz Shah](https://www.youtube.com/shorts/-HRlQctp62o)
+#### [Shahib-e-Ilm | Syed Sarfarz Shah](https://www.youtube.com/shorts/-HRlQctp62o)
+
+***
+
+#### [Discover the Path to Spiritual Sight | روحانی بینائی کیسے حاصل کی جائے؟ | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
 
 ***
 

@@ -7,6 +7,10 @@
 
 ***
 
+#### [Tahnai](https://www.youtube.com/shorts/0uyUhlSBttc)
+
+***
+
 #### Solitude
 * Jisay __RABB-say-PYAAR__ hota hai, usay __TANHAI-say-UNAS__ hoo jaata hai. -- Hazrat Usman Ghani
 * Adopt __SILENCE__, your relationship with God will be established.

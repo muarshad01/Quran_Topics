@@ -1,3 +1,7 @@
+#### [Ya Latifu, Ya Aleemu, Ya Khabeeru| Abdullah Bhaati](https://www.youtube.com/shorts/CG7_JUSlW3g)
+
+***
+
 #### [Delhi Hindu Magician’s Challenge | Abdullah Bhatti (Sept 05, 2026)](https://www.youtube.com/watch?v=TlQbtUnADPo)
 * __Surah Yunus 10/81__: [فَلَمَّآ أَلْقَوْا۟ ...قَالَ مُوسَىٰ مَا جِئْتُم بِهِ ٱلسِّحْرُ ۖ... إِنَّ ٱللَّهَ سَيُبْطِلُهُۥٓ ۖ... إِنَّ ٱللَّهَ لَا يُصْلِحُ عَمَلَ ٱلْمُفْسِدِينَ](https://quran.com/10/81)
    * 11-time

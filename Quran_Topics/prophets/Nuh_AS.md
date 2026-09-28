@@ -4,6 +4,10 @@
 
 ***
 
+* __Surah Hud 11/25-48__: []()
+
+***
+
 * __Surah An-Nahl 16/43__: [We did not send ˹messengers˺ before you ˹O Prophet˺ except mere men inspired by Us. If you ˹polytheists˺ do not know ˹this already˺, then ask those who have knowledge ˹of the Scriptures˺.](https://quran.com/16/43)
 
 ***

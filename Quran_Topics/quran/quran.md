@@ -287,5 +287,6 @@
 
 * __Surah Ash-Shura 26/196 (Foretold in the Scriptures of those before.)__: [وَإِنَّهُۥ لَفِى زُبُرِ ٱلْأَوَّلِينَ](https://quran.com/26/196)
 * __Surah Ash-Shura 26/197 (It has been recognized by the knowledgeable among the Children of Israel?)__: [أَوَلَمْ يَكُن لَّهُمْ ءَايَةً أَن يَعْلَمَهُۥ عُلَمَـٰٓؤُا۟ بَنِىٓ إِسْرَٰٓءِيلَ](https://quran.com/26/197)
+* __Surah Ash-Shura 26/210__: [وَمَا تَنَزَّلَتْ بِهِ ٱلشَّيَـٰطِينُ](https://quran.com/26/210)
 
 *** 

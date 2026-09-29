@@ -543,3 +543,9 @@
   * End of Day: Hussain Ka Sajdah
 
 ***
+
+
+* __Surah Ash-Shuara 26/218__: [ٱلَّذِى يَرَىٰكَ حِينَ تَقُومُ](https://quran.com/ash-shuara/218)
+* __Surah Ash-Shuara 26/219__: [وَتَقَلُّبَكَ فِى ٱلسَّـٰجِدِينَ](https://quran.com/ash-shuara/219)
+
+*** 

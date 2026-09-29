@@ -7,6 +7,10 @@
 
 ***
 
+#### [Ye 4 Nishaniyan Aap Mein Hain To Aapka Buland Maqam Qareeb Hai! | WasifAliWasif](https://www.youtube.com/watch?v=jb1a46HpOdk)
+
+***
+
 #### [Tahnai](https://www.youtube.com/shorts/0uyUhlSBttc)
 
 ***

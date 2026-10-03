@@ -416,6 +416,10 @@ Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
 * Ya-Maliku, Ya-Qaduso
 * __Surah Ya-Seen 36/58__: [سَلَـٰمٌ قَوْلًا مِّن رَّبٍّ رَّحِيمٍ](https://quran.com/ya-sin/58)
 
+<p align="center">
+  <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/sheikh-abdul-qadir-jilani.png" width="400" height="200" />
+</p>
+
 ***
 
 

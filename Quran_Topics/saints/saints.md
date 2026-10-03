@@ -411,5 +411,13 @@ Khuda agar zahir hoo jaata to imaan jabar hoo jaata.
 
 ***
 
+#### [Ghaus-ul-Azam Sheikh Abdul Qadir Jilani (RA) | Prof ARA](https://www.youtube.com/watch?v=0aiVqmkIXXc)
+* 11-time darood-e-ibrahimi awal/akhir
+* Ya-Maliku, Ya-Qaduso
+* __Surah Ya-Seen 36/58__: [سَلَـٰمٌ قَوْلًا مِّن رَّبٍّ رَّحِيمٍ](https://quran.com/ya-sin/58)
+
+***
+
+
 
 

@@ -8,3 +8,7 @@
 * Tumhara hissa hay merey pass!
 
 ***
+
+#### [Who Was Hazrat Qibla Murshid Syed Yaqoob Ali Shah (RA) Sahab? |His Spiritual Status & Way of Life](https://www.youtube.com/watch?v=ESSUciqnM88)
+
+***

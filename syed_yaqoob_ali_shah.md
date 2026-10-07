@@ -1,3 +1,7 @@
+#### [Teachings of Syed Yaqoob Ali Shah (R.A) | سید یعقوب علی شاہ صاحب کا طریقۂ تربیت | SSA Shah](https://www.youtube.com/watch?v=kD-peha6EZM)
+
+***
+
 #### [Who Was Yaqoob Ali Shah in Sufism? | یعقوب علی شاہؒ کا مقام کیا تھا؟ | SSA Shah](https://www.youtube.com/watch?v=IZryxZD7B1Y)
 
 ***

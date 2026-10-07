@@ -6,6 +6,10 @@
 
 ***
 
+#### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)
+
+***
+
 #### We will protect it!!!
 * __Surah Al-Hijr 15/9__: [إِنَّا نَحْنُ نَزَّلْنَا ٱلذِّكْرَ... وَإِنَّا لَهُۥ لَحَـٰفِظُونَ](https://quran.com/15/9)
 

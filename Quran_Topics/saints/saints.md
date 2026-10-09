@@ -50,6 +50,8 @@
 10 - __GHAUS__: 3
    * Only one on duty
    * [Hazrat Baha-ud-din (Baha-ul-Haq) Zakariya Multani - Ghaus of his time | SSA Shah](...)
+   * [Hazoor Pak (SAW) Aur Hazrat Bahauddin Zakariya Multani Khawab Waqyia | Bahauddin Multani Karmaat
+](https://www.youtube.com/watch?v=fR1aMzudND4)
    * The other two don't show-up
 11. - __Naqeeb-e-Alaa__: 2
     * Remain in Halat-e-Soyoh

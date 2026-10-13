@@ -319,3 +319,15 @@ Imam Muhammad al-Baqir was also at Karbala and 3 years old then  and taken capti
 ***
 
 #### [Khandan Bani Hashim | Part 1](https://www.youtube.com/shorts/aP05QJ_QoRQ)
+
+***
+
+
+#### Types
+* [Houthis vs Saudi Arabia | The Real Story Behind the War | ft. Abdul Salam Arif](https://www.youtube.com/watch?v=3LJ6RaqK_GE)
+* Twelver Shia - Ithna Ashariyyah (also known as Twelver Shia Islam)
+* Ismaila Shia
+* Zaidia Shia
+
+*** 
+

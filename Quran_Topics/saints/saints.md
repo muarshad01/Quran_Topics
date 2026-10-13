@@ -85,7 +85,7 @@
  1. - Ali ibn Abi Talib
  2. - Hasan ibn Ali
  3. - Husayn ibn Ali
- 4. - [Ali ibn Husayn (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
+ 4. - [Ali ibn Husayn ibn Ali (also known as Zayn al-Abidin)](https://www.youtube.com/shorts/NuXwYOUApPc)
     - Sahafia Sajjadia - read these duaa's with translation
  5. - [Muhammad al-Baqir](https://www.youtube.com/shorts/Q0CGKBWWXHI)
     - Muhammad bin Ali al-Baqir is title

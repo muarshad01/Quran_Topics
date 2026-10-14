@@ -11,3 +11,18 @@
 * __Surah As-Sajdah 32/9 (وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ)__: [ثُمَّ سَوَّىٰهُ وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًا مَّا تَشْكُرُونَ](https://quran.com/as-sajdah/9)
 
 ***
+
+#### Ibrahim AS
+```
+When the polytheists bound Prophet Ibrahim (AS) and threw him via a catapult into the giant blazing furnace they had built, the Angel Jibril (Gabriel) met him in the air.
+• The Question: Jibril (AS) asked: "Ya Ibrahim, a-laka hajatun?" (O Ibrahim, do you need any help?)
+• The Response: Prophet Ibrahim (AS) famously replied: "Amma ilayka fa-laa, wa amma ila Allah fa-balaa" (As for from you, then no. But as for from Allah, then yes!)
+• His Supplication: He then declared his absolute trust in Allah by saying: "Hasbiyallahu wa ni'mal wakeel" (Sufficient for me is Allah, and He is the best Disposer of affairs)
+```
+
+* __Surah Al-Anbiya 21/69__: [قُلْنَا يَا نَارُ كُونِي بَرْدًا وَسَلَامًا عَلَىٰ إِبْرَاهِيمَ](https://quran.com/21/69)
+
+***
+
+
+

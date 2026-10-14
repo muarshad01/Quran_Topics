@@ -18,7 +18,6 @@ When the polytheists bound Prophet Ibrahim (AS) and threw him via a catapult int
 
 #### Main (Works Himself directly)
 * __Surah Al-Hijr 15/29 (وَنَفَخْتُ فِيهِ مِن رُّوحِى)__: [فَإِذَا سَوَّيْتُهُۥ وَنَفَخْتُ فِيهِ مِن رُّوحِى فَقَعُوا۟ لَهُۥ سَـٰجِدِينَ](https://quran.com/al-hijr/29)
-* __Surah As-Sajdah 32/9 (وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ)__: [ثُمَّ سَوَّىٰهُ وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًا مَّا تَشْكُرُونَ](https://quran.com/as-sajdah/9)
 
 ***
 

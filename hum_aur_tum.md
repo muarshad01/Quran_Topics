@@ -4,14 +4,6 @@
 * __Surah At-Tahrim 66/12 (فَنَفَخْنَا فِيهِ مِن رُّوحِنَا)__: [وَمَرْيَمَ ٱبْنَتَ عِمْرَٰنَ ٱلَّتِىٓ أَحْصَنَتْ فَرْجَهَا... فَنَفَخْنَا فِيهِ مِن رُّوحِنَا... وَصَدَّقَتْ بِكَلِمَـٰتِ رَبِّهَا وَكُتُبِهِۦ وَكَانَتْ مِنَ ٱلْقَـٰنِتِينَ](https://quran.com/at-tahrim/12)
   * Through angel Jibreel
 
-*** 
-
-#### Main (Works Himself directly)
-* __Surah Al-Hijr 15/29 (وَنَفَخْتُ فِيهِ مِن رُّوحِى)__: [فَإِذَا سَوَّيْتُهُۥ وَنَفَخْتُ فِيهِ مِن رُّوحِى فَقَعُوا۟ لَهُۥ سَـٰجِدِينَ](https://quran.com/al-hijr/29)
-* __Surah As-Sajdah 32/9 (وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ)__: [ثُمَّ سَوَّىٰهُ وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًا مَّا تَشْكُرُونَ](https://quran.com/as-sajdah/9)
-
-***
-
 #### Ibrahim AS
 ```
 When the polytheists bound Prophet Ibrahim (AS) and threw him via a catapult into the giant blazing furnace they had built, the Angel Jibril (Gabriel) met him in the air.
@@ -22,7 +14,13 @@ When the polytheists bound Prophet Ibrahim (AS) and threw him via a catapult int
 
 * __Surah Al-Anbiya 21/69__: [قُلْنَا يَا نَارُ كُونِي بَرْدًا وَسَلَامًا عَلَىٰ إِبْرَاهِيمَ](https://quran.com/21/69)
 
+*** 
+
+#### Main (Works Himself directly)
+* __Surah Al-Hijr 15/29 (وَنَفَخْتُ فِيهِ مِن رُّوحِى)__: [فَإِذَا سَوَّيْتُهُۥ وَنَفَخْتُ فِيهِ مِن رُّوحِى فَقَعُوا۟ لَهُۥ سَـٰجِدِينَ](https://quran.com/al-hijr/29)
+* __Surah As-Sajdah 32/9 (وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ)__: [ثُمَّ سَوَّىٰهُ وَنَفَخَ فِيهِ مِن رُّوحِهِۦ ۖ وَجَعَلَ لَكُمُ ٱلسَّمْعَ وَٱلْأَبْصَـٰرَ وَٱلْأَفْـِٔدَةَ ۚ قَلِيلًا مَّا تَشْكُرُونَ](https://quran.com/as-sajdah/9)
+
 ***
 
-
+* __Surah Adh-Dhariyat 51/56__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/adh-dhariyat/56)
 

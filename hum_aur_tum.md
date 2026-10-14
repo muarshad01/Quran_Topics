@@ -24,3 +24,9 @@ When the polytheists bound Prophet Ibrahim (AS) and threw him via a catapult int
 
 * __Surah Adh-Dhariyat 51/56__: [وَمَا خَلَقْتُ ٱلْجِنَّ وَٱلْإِنسَ إِلَّا لِيَعْبُدُونِ](https://quran.com/adh-dhariyat/56)
 
+* __Surah Al-Insaan 76/2 (فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا)__: [إِنَّا خَلَقْنَا ٱلْإِنسَـٰنَ مِن نُّطْفَةٍ أَمْشَاجٍ نَّبْتَلِيهِ فَجَعَلْنَـٰهُ سَمِيعًۢا بَصِيرًا](https://quran.com/al-insan/2)
+
+***
+
+
+

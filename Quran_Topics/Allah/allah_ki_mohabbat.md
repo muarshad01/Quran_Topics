@@ -4,6 +4,10 @@
 
 ***
 
+#### [Ishq Ka Powerful Amal | Prof Abdullah Bhatti](https://www.youtube.com/shorts/ORePzkZutUI)
+
+***
+
 #### [REEL: Proven Way to Please Allah | SSA Shah](https://www.youtube.com/shorts/HsxqpEiiL0w)
 1. Free the Prisnor
 2. Feed the hungry

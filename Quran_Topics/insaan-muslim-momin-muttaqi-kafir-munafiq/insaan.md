@@ -216,6 +216,10 @@
 ***
 
 #### [Andhere ka Azeem Musawir | Allama Talib Johri](https://www.youtube.com/watch?v=huLjYcsw584)
-* __Surah Az-Zumar 39/6__: [](https://quran.com/az-zumar/6)
+
+* __Surah Ali 'Imran 3/6__: [](https://quran.com/3/6)
+* __Surah Al-Mu'minun 23/12–14)__: [](https://quran.com/23/12-14)
+* __Surah An-Nahl 16/78__: [](https://quran.com/16/78)
+* __Surah Az-Zumar 39/6__: [](https://quran.com/39/6)
 
 ***

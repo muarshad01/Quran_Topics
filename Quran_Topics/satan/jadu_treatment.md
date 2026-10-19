@@ -1,3 +1,10 @@
+#### [Jadu Ki Nishaniya | SSA Shah](https://www.youtube.com/shorts/kjyit2mfNJs)
+* Waswasa translates to whisperings, intrusive thoughts, evil suggestions, or obsessive doubts
+* Fear
+* Anger
+
+***
+
 #### [Ya Latifu, Ya Aleemu, Ya Khabeeru| Abdullah Bhaati](https://www.youtube.com/shorts/CG7_JUSlW3g)
 
 ***

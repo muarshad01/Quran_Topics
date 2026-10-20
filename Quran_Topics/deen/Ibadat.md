@@ -169,3 +169,14 @@ Maqam-e-Bandagi De Kar Na Loon Shan-e-Khudawandi
 ***
 
 * __Surah Al-Hijr 15/99__: [وَٱعْبُدْ رَبَّكَ حَتَّىٰ يَأْتِيَكَ ٱلْيَقِينُ](https://quran.com/15/99)
+
+***
+
+#### [Allah Tala Ki Bandagi - اللہ کی بندگی | SSA Shah](https://www.youtube.com/watch?v=tI1XfyMs3yQ)
+
+***
+
+
+
+
+

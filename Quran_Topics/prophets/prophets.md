@@ -1,3 +1,7 @@
+#### [Adnan Bin Azad](https://www.youtube.com/@Adnanbinaazad/shorts)
+
+***
+
 1. - [Adam AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/adam_as.md)
 2. - [Idris (Enoch) AS](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Idris_As_Enoch.md)
 3. - [Nuh (Noah)](https://github.com/muarshad01/Quran_Topics/blob/main/Quran_Topics/prophets/Nuh_AS.md)

@@ -6,6 +6,10 @@
 
 ***
 
+#### [The Spiritual Benefits of Reciting the Quran | قرآن پاک کی تلاوت کے رُوحانی فائدے | SSA Shah](https://www.youtube.com/watch?v=aP0PDoLwAoI)
+
+***
+
 #### [How To Develop Concentration | SSA Shah](https://www.youtube.com/watch?v=FkG-UNjBbxo)
 
 ***

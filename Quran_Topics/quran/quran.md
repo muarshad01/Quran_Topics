@@ -7,6 +7,11 @@
 ***
 
 #### [The Spiritual Benefits of Reciting the Quran | قرآن پاک کی تلاوت کے رُوحانی فائدے | SSA Shah](https://www.youtube.com/watch?v=aP0PDoLwAoI)
+1. It is like TALKING to Allah SWT
+2. A lot of SWAB
+3. Dream of Imam Ahmed bin Hanbal - The Shorted path to reach Allah SWT!
+4. Our bad luck: We resort to Tasbeehaat/Wazaif!
+5. Recite with Tarteel (we'll reach a high status, isA!)
 
 ***
 

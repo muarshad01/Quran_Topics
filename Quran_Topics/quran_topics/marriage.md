@@ -117,3 +117,13 @@
 ***
 
 #### [Wazifa for Shadi, Rizq, Karobar & Family Problems |Ft. Rukhsar Latif | Think Digital Podcast](https://www.youtube.com/watch?v=wZOa1bNH9tE)
+
+***
+
+#### [Great Tips for Relationships and Marriage | SSA Shah](https://www.youtube.com/watch?v=NWXuQniCMqI)
+
+***
+
+
+
+

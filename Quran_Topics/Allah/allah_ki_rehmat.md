@@ -4,6 +4,18 @@
 ***
 
 #### [The humbleness of prophet PBUH | Prof ARA](https://www.youtube.com/shorts/lRyJmRio-80)
+* __Surah Al-Anbya 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةً لِّلْعَـٰلَمِينَ](https://quran.com/al-anbya/107)
+* How will people enter Jannah...with His Rehmat...and You...Event I'll enter Jannah with His Rehmat.
+
+***
+
+#### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
+* 1 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
+  * Self monitrong
+  * You start seeing you sins, mistakes, bad things...
+* 2 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai - Hadith
+  * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ... يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
+* 3 You start being merciful for others...
 
 ***
 
@@ -19,16 +31,6 @@
 2. Start understanding Deen
 3. Love for Allah SWT, Rashool SAW, and Murshit keep increasing
 4. Imman, Taqwa, Haya, Nadimat, Mohabbat, Ikhlaas increases
-
-***
-
-#### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
-* 1 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
-  * Self monitrong
-  * You start seeing you sins, mistakes, bad things...
-* 2 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai - Hadith
-  * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
-* 3 You start being merciful for others...
 
 ***
 

@@ -10,6 +10,10 @@
 
 ***
 
+#### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
+
+***
+
 #### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
 * 1. Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
   * Self monitrong; It means his guide (murshid) is genuine.
@@ -85,7 +89,6 @@
 * 3. Love for Allah SWT, Rashool SAW, and Murshit keep increasingYou start being merciful for others...
 * 4. Imman, Taqwa, Haya, Ihsaas, Nadimat, Mohabbat, Ikhlaas increases
 
-
 ***
 
 #### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
@@ -105,6 +108,13 @@
   * Badla (Revenge)
   * Leave your Zidd
 
+#### MUNAFIA
+1. Lies
+2. Doesn't full-fill promise
+3. Amant mayn khayanat
+
+* Make your lives simple.
+
 ***
 
 #### [How we know about Allah SWT Rehmat | SSA Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
@@ -112,10 +122,6 @@
 * No loss, trial, pain make him disturbed.
 * Even in toughest situations, he maintains ful TRUST on Allah SWT, that He will look after me and will not let me Fall.
 * Allah SWT Rehmat -> Raab Ki Raza -> Raab ka bandoon ko Razi karo
-
-***
-
-#### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
 
 ***
 
@@ -128,8 +134,8 @@
 * [Allah's Mercy in Quran - Ayats](https://myislam.org/quran-verses/allahs-mercy/)
 
 ## Rehmat (كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ الرَّحْمَةَ)
-* __Surah Al-Anam 6/12__: [قُل لِّمَن مَّا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ قُل لِّلَّهِ ۚ كَتَبَ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۚ لَيَجْمَعَنَّكُمْ إِلَىٰ يَوْمِ ٱلْقِيَـٰمَةِ لَا رَيْبَ فِيهِ ۚ ٱلَّذِينَ خَسِرُوٓا۟ أَنفُسَهُمْ فَهُمْ لَا يُؤْمِنُونَ](https://quranwbw.com/6/12)
-* __Surah Al-Anam 6/54__: [وَإِذَا جَآءَكَ ٱلَّذِينَ يُؤْمِنُونَ بِـَٔايَـٰتِنَا فَقُلْ سَلَـٰمٌ عَلَيْكُمْ ۖ كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ أَنَّهُۥ مَنْ عَمِلَ مِنكُمْ سُوٓءًۢا بِجَهَـٰلَةٍۢ ثُمَّ تَابَ مِنۢ بَعْدِهِۦ وَأَصْلَحَ فَأَنَّهُۥ غَفُورٌۭ رَّحِيمٌۭ ٥٤](https://quran.com/6/54)
+* __Surah Al-Anam 6/12__: [قُل لِّمَن مَّا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ... قُل لِّلَّهِ ۚ كَتَبَ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۚ... لَيَجْمَعَنَّكُمْ إِلَىٰ يَوْمِ ٱلْقِيَـٰمَةِ لَا رَيْبَ فِيهِ ۚ ٱلَّذِينَ خَسِرُوٓا۟ أَنفُسَهُمْ فَهُمْ لَا يُؤْمِنُونَ](https://quranwbw.com/6/12)
+* __Surah Al-Anam 6/54__: [وَإِذَا جَآءَكَ ٱلَّذِينَ يُؤْمِنُونَ بِـَٔايَـٰتِنَا فَقُلْ سَلَـٰمٌ عَلَيْكُمْ ۖ... كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ... أَنَّهُۥ مَنْ عَمِلَ مِنكُمْ سُوٓءًۢا بِجَهَـٰلَةٍۢ ثُمَّ تَابَ مِنۢ بَعْدِهِۦ وَأَصْلَحَ فَأَنَّهُۥ غَفُورٌۭ رَّحِيمٌۭ ٥٤](https://quran.com/6/54)
 
 ***
 

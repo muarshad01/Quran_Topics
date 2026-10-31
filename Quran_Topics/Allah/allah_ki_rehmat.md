@@ -79,12 +79,30 @@
 
 ***
 
-#### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
-#### [How we know about Allah SWT Rehmat | SSA Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY)
-#### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
-#### [Allah's Mercy in Quran - Ayats](https://myislam.org/quran-verses/allahs-mercy/)
 
+***
+
+#### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)
+* [Narrated Abu Huraira: The Prophet (ﷺ) said, "When Allah created the Creation, He wrote in His Book--and He wrote (that) about Himself, and it is placed with Him on the Throne -- 'Verily My Mercy overcomes My Anger.'](https://sunnah.com/bukhari:7404)
+* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ]()
+* __Surah Al-Araf 7/156__: [وَرَحْمَتِى وَسِعَتْ كُلَّ شَىْءٍ ۚ]() 
+* Doosron-ka-bhooj khush-dili-kay-saath uthana shuroo-kar-deen...
+* Become Rehmat for people...
+
+***
+
+#### [How we know about Allah SWT Rehmat | SSA Shah](https://www.youtube.com/shorts/J5GoWZHoVYM)
+* Attains peace-of-HEART
+* No loss, trial, pain make him disturbed.
+* Even in toughest situations, he maintains ful TRUST on Allah SWT, that He will look after me and will not let me Fall.
+* Allah SWT Rehmat -> Raab Ki Raza -> Raab ka bandoon ko Razi karo
+
+***
+
+#### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
+
+***
 
 #### [The humbleness of prophet PBUH | Prof ARA](https://www.youtube.com/shorts/lRyJmRio-80)
 * __Surah Al-Anbya 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةً لِّلْعَـٰلَمِينَ](https://quran.com/al-anbya/107)
@@ -92,7 +110,7 @@
 
 ***
 
-***
+* [Allah's Mercy in Quran - Ayats](https://myislam.org/quran-verses/allahs-mercy/)
 
 ## Rehmat (كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ الرَّحْمَةَ)
 * __Surah Al-Anam 6/12__: [قُل لِّمَن مَّا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ قُل لِّلَّهِ ۚ كَتَبَ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۚ لَيَجْمَعَنَّكُمْ إِلَىٰ يَوْمِ ٱلْقِيَـٰمَةِ لَا رَيْبَ فِيهِ ۚ ٱلَّذِينَ خَسِرُوٓا۟ أَنفُسَهُمْ فَهُمْ لَا يُؤْمِنُونَ](https://quranwbw.com/6/12)

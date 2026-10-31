@@ -24,6 +24,10 @@
 
 ***
 
+#### [Allah SWT pull some people towards Him | Irfan-ul-Haq](https://www.youtube.com/watch?v=KSi6VYzEjuE)
+
+***
+
 #### [Discover the Path to Spiritual Sight | روحانی بینائی کیسے حاصل کی جائے؟ | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
 
 ***

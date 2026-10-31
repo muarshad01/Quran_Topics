@@ -24,7 +24,7 @@
 
 ***
 
-#### [Allah SWT pull some people towards Him | Irfan-ul-Haq](https://www.youtube.com/watch?v=KSi6VYzEjuE)
+#### [Maqaam-e-ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
 
 ***
 

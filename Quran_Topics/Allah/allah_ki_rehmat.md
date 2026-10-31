@@ -6,6 +6,13 @@
 
 ***
 
+#### [Hmain kesay Pata Chalay Hum Rehmat kay Hasar Mayn Hnn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
+* Self-monitoring
+* Understands Deen
+* Starts being a rehmat for others...
+
+***
+
 #### [Jab Allah Kisi Per Rehmat Ka Irada Karta Hai Tu Kya Nishani Zahir Hoti Hai ? | Irfan-ul-Haq](https://www.youtube.com/shorts/OJN1xNc3CVc)
 1. Self Moniting
 2. Start understanding Deen
@@ -65,12 +72,6 @@
 
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY&t=1s)
 
-***
-
-#### [Hmain kesay Pata Chalay Hum Rehmat kay Hasar Mayn Hnn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
-* Self-monitoring
-* Understands Deen
-* Starts being a rehmat for others...
 ***
 
 #### [Rehmat ke Wo Asool Jo 99% Log Nahi Jaante| Irfan-ul-Haq](https://www.youtube.com/watch?v=PHe7FVTYlKE)

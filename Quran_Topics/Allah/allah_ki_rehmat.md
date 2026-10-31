@@ -14,6 +14,10 @@
 
 ***
 
+#### [The Signs of Up Coming Blessing Karam of Allah Islamic Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=ul2eSOhr8dc)
+
+***
+
 #### [Allah Ki Rehmat | SSA Shah](https://www.youtube.com/watch?v=GEvZ0NxR-dc)
 * Those who really attained high status
 * __Allah-SWT ki-bandagi begheer-kisi-gharaz-kay__

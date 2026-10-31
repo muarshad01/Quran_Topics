@@ -11,12 +11,13 @@
 ***
 
 #### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
-* 1 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
-  * Self monitrong
+* 1. Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
+  * Self monitrong; It means his guide (murshid) is genuine.
   * You start seeing you sins, mistakes, bad things...
-* 2 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai - Hadith
+* 2. Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai
   * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ... يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
-* 3 You start being merciful for others...
+* 3. Love for Allah SWT, Rashool SAW, and Murshit keep increasingYou start being merciful for others...
+* 4. Imman, Taqwa, Haya, Ihsaas, Nadimat, Mohabbat, Ikhlaas increases
 
 ***
 
@@ -75,11 +76,15 @@
   
 *** 
 
-#### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY&t=1s)
-
-***
-
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY)
+* 1. Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
+  * Self monitrong; It means his guide (murshid) is genuine.
+  * You start seeing you sins, mistakes, bad things...
+* 2. Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai
+  * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ... يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
+* 3. Love for Allah SWT, Rashool SAW, and Murshit keep increasingYou start being merciful for others...
+* 4. Imman, Taqwa, Haya, Ihsaas, Nadimat, Mohabbat, Ikhlaas increases
+
 
 ***
 
@@ -87,8 +92,18 @@
 * [Narrated Abu Huraira: The Prophet (ﷺ) said, "When Allah created the Creation, He wrote in His Book--and He wrote (that) about Himself, and it is placed with Him on the Throne -- 'Verily My Mercy overcomes My Anger.'](https://sunnah.com/bukhari:7404)
 * __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ]()
 * __Surah Al-Araf 7/156__: [وَرَحْمَتِى وَسِعَتْ كُلَّ شَىْءٍ ۚ]() 
-* Doosron-ka-bhooj khush-dili-kay-saath uthana shuroo-kar-deen...
-* Become Rehmat for people...
+#### Ramadan
+* 1. REHMAT
+  * Become Rehmat for people...
+  * Doosron-ka-bhooj khush-dili-kay-saath uthana shuroo-kar-deen...
+* 2. MAGHFIRAT
+  * Forgive people and seek forgiveness
+* 3. FIRE 
+  * Hasad (Envy, malicious jealousy, or spite)
+  * Ghusa (Anger)
+  * Nafrat (Hatred, hate, detestation, or abhorrence)
+  * Badla (Revenge)
+  * Leave your Zidd
 
 ***
 

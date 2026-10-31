@@ -29,6 +29,7 @@
 ***
 
 #### [The Signs of Up Coming Blessing Karam of Allah Islamic Bayan | Irfan-ul-Haq](https://www.youtube.com/watch?v=ul2eSOhr8dc)
+* Fire:
 1. Hasad (Envy, malicious jealousy, or spite)
 2. Ghusa (Anger)
 3. Nafrat (Hatred, hate, detestation, or abhorrence)

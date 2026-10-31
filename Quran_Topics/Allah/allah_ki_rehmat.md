@@ -40,6 +40,7 @@
   * Self monitrong
   * You start seeing you sins, mistakes, bad things...
 * 2 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu ussay deen-ki-samajh ata kar-deta-hai - Hadith
+  * __Surah Al-Anam 6/125__: [فَمَن يُرِدِ ٱللَّهُ أَن يَهْدِيَهُۥ يَشْرَحْ صَدْرَهُۥ لِلْإِسْلَـٰمِ ۖ](https://quran.com/6/125)
 * 3 You start being merciful for others...
 
 ***

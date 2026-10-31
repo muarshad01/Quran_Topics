@@ -6,6 +6,10 @@
 
 ***
 
+#### [Quran Ke Zahiri Mani Say Batini Mani Tak Kaise Pahunchein? | Irfan-ul-Haq](https://www.youtube.com/watch?v=lG335ilzxoQ)
+
+***
+
 #### [The Spiritual Benefits of Reciting the Quran | قرآن پاک کی تلاوت کے رُوحانی فائدے | SSA Shah](https://www.youtube.com/watch?v=aP0PDoLwAoI)
 1. It is like TALKING to Allah SWT
 2. A lot of SWAB

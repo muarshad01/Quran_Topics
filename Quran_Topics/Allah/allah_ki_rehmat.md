@@ -45,6 +45,11 @@
 
 #### [How Honor is Granted? | مقام و مرتبہ کیسے ملتا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=lmyrvI_H6Ss)
 
+
+<p align="center">
+ <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/mehnat-riazat-mujhida.png" width="400" height="300" />
+</p>
+
 ***
 
 #### [Ya Rahman](https://www.youtube.com/shorts/ZTfDA1FwwMI)

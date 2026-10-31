@@ -3,12 +3,6 @@
 
 ***
 
-#### [The humbleness of prophet PBUH | Prof ARA](https://www.youtube.com/shorts/lRyJmRio-80)
-* __Surah Al-Anbya 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةً لِّلْعَـٰلَمِينَ](https://quran.com/al-anbya/107)
-* How will people enter Jannah...with His Rehmat...and You...Event I'll enter Jannah with His Rehmat.
-
-***
-
 #### [Hmain kesay Pata-Chalay k Hum Rehmat-k-Hasar May Hyn | Irfan-ul-Haq](https://www.youtube.com/watch?v=5IqvAJrsCAE)
 * 1 Allah SWT jab kisi-par rehmat-ka-irada karta-hai, tu uss-ki-aankh uss-par khool-deta-hai - Hadith
   * Self monitrong
@@ -82,6 +76,13 @@
 #### [Zindagi Kay Asool | Zindagi Ma Kamyabi Kay Raaz | Irfan-ul-Haq](https://www.youtube.com/watch?v=oWVDVkz6QWY)
 #### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
 #### [Allah's Mercy in Quran - Ayats](https://myislam.org/quran-verses/allahs-mercy/)
+
+
+#### [The humbleness of prophet PBUH | Prof ARA](https://www.youtube.com/shorts/lRyJmRio-80)
+* __Surah Al-Anbya 21/107__: [وَمَآ أَرْسَلْنَـٰكَ إِلَّا رَحْمَةً لِّلْعَـٰلَمِينَ](https://quran.com/al-anbya/107)
+* How will people enter Jannah...with His Rehmat...and You...Event I'll enter Jannah with His Rehmat.
+
+***
 
 ***
 

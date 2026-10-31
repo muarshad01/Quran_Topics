@@ -10,7 +10,9 @@
 
 ***
 
-#### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ)
+#### [Rehmat Aur Naimat | Allama Talib Johri](https://www.youtube.com/watch?v=H-it_xW1NZQ) - TODO
+* Azan
+* Aqida and Amal
 
 ***
 

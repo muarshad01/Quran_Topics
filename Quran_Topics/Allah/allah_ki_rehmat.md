@@ -1,4 +1,5 @@
 #### [Rehmat | Irfan-ul-Haq ](https://www.youtube.com/shorts/OJN1xNc3CVc)
+* Uss ki aankh uss par khoo deta hai; he starts self monitoring; It means his murshid is genuine.
 
 ***
 

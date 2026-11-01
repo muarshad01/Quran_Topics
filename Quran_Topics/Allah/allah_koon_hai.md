@@ -3,6 +3,10 @@
 
 ***
 
+#### [Very Beautiful Recitation of Surah An-Naml with Urdu Translation](https://www.youtube.com/watch?v=q4MAhbTF2bg)
+
+***
+
 #### [Who creates universe | Claim of God | Prof ARA](https://www.youtube.com/watch?v=3YuorcNiCUs)
 * __Surah An-Naml 27/62 (أَمَّن يُجِيبُ ٱلْمُضْطَرَّ إِذَا دَعَاهُ وَيَكْشِفُ ٱلسُّوٓءَ...وَيَجْعَلُكُمْ خُلَفَآءَ ٱلْأَرْضِ ۗ ...أَءِلَـٰهٌۭ مَّعَ ٱللَّهِ ۚ... قَلِيلًۭا مَّا تَذَكَّرُونَ)__: [أَمَّن يُجِيبُ ٱلْمُضْطَرَّ ...إِذَا دَعَاهُ... وَيَكْشِفُ ٱلسُّوٓءَ... وَيَجْعَلُكُمْ خُلَفَآءَ ٱلْأَرْضِ ۗ ...أَءِلَـٰهٌۭ مَّعَ ٱللَّهِ ۚ... قَلِيلًۭا مَّا تَذَكَّرُونَ](https://quran.com/27/62)
   * Or ˹ask them,˺ “Who responds to the distressed when they cry to Him, relieving ˹their˺ affliction,

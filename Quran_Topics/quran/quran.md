@@ -2,6 +2,10 @@
 
 ***
 
+#### [Nafees Quran](https://www.youtube.com/@NafeesQuran/videos)
+
+***
+
 #### [The Spiritual Benefits of Reciting the Quran | SSA Shah](https://www.youtube.com/watch?v=aP0PDoLwAoI)
 
 ***

@@ -7,6 +7,11 @@
 
 ***
 
+#### [Very Beautiful Recitation of Surah An-Naml with Urdu Translation](https://www.youtube.com/watch?v=q4MAhbTF2bg)
+
+***
+
+
 #### [The Knowledge of the Unseen (ʿIlm al-Ghayb) and the Miraculous Powers of the Prophet Muhammad (PBUH) | Prof ARA](https://www.youtube.com/watch?v=LKRKx8s5HDI)
 * Usaid bin Khuzair RA
 * Abad Bin Bashar RA

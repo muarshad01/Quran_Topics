@@ -7,6 +7,12 @@
 
 ***
 
+#### [Allah ne Hazrat Muhammad ﷺ ko noor bantny wala chiragh banaya | Allama Talib Johri](https://www.youtube.com/shorts/qmUVvq5kVu4)
+* __Surah Al-Ahzab 33/45__: [يَـٰٓأَيُّهَا ٱلنَّبِىُّ إِنَّآ أَرْسَلْنَـٰكَ ...شَـٰهِدًا وَمُبَشِّرًا وَنَذِيرًا](https://quran.com/33/45-46)
+* __Surah Al-Ahzab 33/46 (وَسِرَاجًا مُّنِيرًا)__: [وَدَاعِيًا إِلَى ٱللَّهِ بِإِذْنِهِۦ... وَسِرَاجًا مُّنِيرًا](https://quran.com/33/45-46)
+
+***
+
 #### [Riaz-ul-Jannah](https://www.youtube.com/shorts/K7mb9m16r2c)
 
 ***

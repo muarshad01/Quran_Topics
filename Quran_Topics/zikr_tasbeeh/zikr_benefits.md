@@ -9,6 +9,10 @@
 
 ***
 
+* [1100 or 1300 | Irfan-ul-Haq](https://www.youtube.com/watch?v=pXZ5s2qwRGA)
+
+***
+
 <img src="https://github.com/muarshad01/Quran_Topics/blob/main/images/zikr.png" width="500" height="500" />
 
 ***

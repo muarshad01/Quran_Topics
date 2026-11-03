@@ -10,6 +10,7 @@
 #### [Mountain Cut by Hazrat Ali](https://www.youtube.com/shorts/gCn4g9H6hjM)
 #### [Hazrat Ali Saying](https://www.youtube.com/shorts/yAIGtWdHfAc)
 #### [Majzoob aur Rabia Basri half Qalandar | Prof ARA](https://www.youtube.com/watch?v=8h1IAgCY1x4)
+  * [Hazrat Rabia Basri R.A Kon Thin ? Unhein Maqam-e-Qalandar Kaise Mila? | Hairat Angez Dastan](https://www.youtube.com/watch?v=3EUf1Ds220A)
 
 ***
 

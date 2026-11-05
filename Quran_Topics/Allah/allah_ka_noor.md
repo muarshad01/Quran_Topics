@@ -139,3 +139,10 @@
 #### [Stormy Sea [24:40] | Ep 14 | Striking Examples in the Quran | Nouman Ali Khan | Ramadan 2025](https://www.youtube.com/watch?v=Hpk_zfd0au0)
 
 ***
+
+#### [Why Olive Oil Is Called Blessed in Islam | زیتون کا تیل اصل میں کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=6nZnxwoRbPw)
+
+***
+
+
+

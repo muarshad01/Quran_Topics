@@ -8,6 +8,10 @@
 
 ***
 
+* 2 Special Gifts Allah Blesses His Beloved Servants With | Wasif Ali Wasif | Islamic Reminder
+
+***
+
 #### [REEL: Proven Way to Please Allah | SSA Shah](https://www.youtube.com/shorts/HsxqpEiiL0w)
 1. Free the Prisnor
 2. Feed the hungry

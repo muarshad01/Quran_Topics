@@ -78,7 +78,12 @@
 ***
 
 #### [The Historical Conspiracy Nobody Talks About | Abdul Salam Arif](https://www.youtube.com/watch?v=f4QGcivLBCA)
+* Jang-e-Jamal
+* Hadith-e-Qartaas
 
 ***
+
+
+
 
 

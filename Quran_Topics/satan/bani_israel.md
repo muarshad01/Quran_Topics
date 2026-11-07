@@ -382,3 +382,6 @@
 
 ***
 
+#### [Allama Talib Johri |. سامری کا بچھڑا، سورہ قدر اور فرشتے کس پر نازل ہوتے ہیں](https://www.youtube.com/watch?v=2Edp4AFphe8)
+
+***

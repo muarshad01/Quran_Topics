@@ -20,18 +20,34 @@
 
 ***
 
-#### [Shahib-e-Ilm | Syed Sarfarz Shah](https://www.youtube.com/shorts/-HRlQctp62o)
+#### [Ilm-e-Laduni| SSA Shah](https://www.youtube.com/shorts/e1R41bCxOHw)
+1. Aijzi paida-hooti-hai
+2. Dunya-ki-mohabbat uss-kay dil-say nikal-jaati-hay
+3. Starts spending on others a lot of his hard earned money (Even on his enemies)
+4. Even bigger challenges he solves with a smile
+5. ...
 
 ***
 
-#### [Maqaam-e-ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
+#### [Shahib-e-Ilm | SSA Shah](https://www.youtube.com/shorts/-HRlQctp62o)
+* Shahib-e-Ilm and also Shahib-e-amal
+* Such a person is never stiff-hearted
+* His anger is very limited (not in Heart)
 
 ***
 
 #### [Discover the Path to Spiritual Sight | روحانی بینائی کیسے حاصل کی جائے؟ | SSA Shah](https://www.youtube.com/watch?v=_SuWE_YLboo)
+* Rooh-ki-litafat
+* Parvaz is directly proportional to Rooh-ki-litafat
+* Ist Level: very beginning - starts seeing Jinns, etc
+* Ajabiyat-e-Alam...
+* Aaasman ki Saer...
 
 ***
 
+#### [Maqaam-e-ilm (46 min)| Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
+
+***
 
 * __Surah Fatir 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ)__: [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ... إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ... إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
    

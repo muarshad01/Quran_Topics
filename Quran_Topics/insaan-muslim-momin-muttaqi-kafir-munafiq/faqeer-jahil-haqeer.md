@@ -16,6 +16,13 @@
 
 ***
 
+#### [Khuloos Insaan Ko Ghair Zaroori Lawazmaat Se Kaatta Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=zMQsJmL2yeE) -- Yaqeen/Intiqamat
+* Allah SWT sees your heart (He is Mukhlis!)
+* __Surah Ali Imran 3/54__: [وَمَكَرُوا۟ وَمَكَرَ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/3/54)
+* __Surah An-Anfal 8/32__: [وَإِذْ يَمْكُرُ بِكَ ٱلَّذِينَ كَفَرُوا۟ لِيُثْبِتُوكَ أَوْ يَقْتُلُوكَ أَوْ يُخْرِجُوكَ ۚ وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ ٣٠](https://quran.com/8/30)
+
+***
+
 #### [REEL: Rutba-e-Fuqr Kaise Milta Hai? | SSA Shah](https://www.youtube.com/shorts/cniOoDd1ieg)
 
 ***

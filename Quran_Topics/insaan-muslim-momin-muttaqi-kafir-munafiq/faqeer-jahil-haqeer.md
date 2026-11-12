@@ -17,7 +17,14 @@
 ***
 
 #### [Khuloos Insaan Ko Ghair Zaroori Lawazmaat Se Kaatta Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=zMQsJmL2yeE) -- Yaqeen/Intiqamat
+
+```
+Yaqeen-paida-kar aye nadaan, yaqeen se hath-aati-hai
+Woh-darveshi-ke jis-ke-samnay jhukti-hai Fagfoori”
+```
+
 * Allah SWT sees your heart (He is Mukhlis!)
+* Apnay safar par yaqeen ka naam manzil hai!
 * __Surah Ali Imran 3/54__: [وَمَكَرُوا۟ وَمَكَرَ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ](https://quran.com/3/54)
 * __Surah An-Anfal 8/32__: [وَإِذْ يَمْكُرُ بِكَ ٱلَّذِينَ كَفَرُوا۟ لِيُثْبِتُوكَ أَوْ يَقْتُلُوكَ أَوْ يُخْرِجُوكَ ۚ وَيَمْكُرُونَ وَيَمْكُرُ ٱللَّهُ ۖ وَٱللَّهُ خَيْرُ ٱلْمَـٰكِرِينَ ٣٠](https://quran.com/8/30)
 

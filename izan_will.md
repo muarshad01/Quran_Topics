@@ -10,4 +10,9 @@ And ˹on Judgment Day˺ Allah will say, “O Jesus, son of Mary! Remember My fav
 
 ***
 
+* __Surah Al-Ahzab 33/46__: [وَدَاعِيًا إِلَى ٱللَّهِ بِإِذْنِهِۦ... وَسِرَاجًا مُّنِيرًا](https://quran.com/al-ahzab/46)
+
+*** 
+
+***
 

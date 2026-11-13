@@ -386,7 +386,7 @@
 
 ***
 
-#### [Maqaam-e-ilm (46 min)| Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
+~~#### [Maqaam-e-ilm (46 min)| Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)~~
 
 ***
 

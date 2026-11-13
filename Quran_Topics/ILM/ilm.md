@@ -137,11 +137,6 @@
 
 ***
 
-#### [Ilm-ki-Intahaa ka-Maqam | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
-* 35 mins
-
-***
-
 #### [Sahib-e-Ilm ki Pehchan Kya Hai? | SSA Shah](https://www.youtube.com/watch?v=lhvWBcVIbm0)
 * When we meet a __Sahib-e-ilm__, there are Two __LITMUS__ tests:
 1. Na-maloom-sa PEACE-hota-hai,
@@ -395,3 +390,7 @@
 
 ***
 
+#### [Ilm-ki-Intahaa ka-Maqam | SSA Shah](https://www.youtube.com/watch?v=rtKAu9-q9YY)
+* 35 mins
+
+***

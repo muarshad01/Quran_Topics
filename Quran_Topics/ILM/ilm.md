@@ -389,5 +389,10 @@
 
 *** 
 
+#### [Kitab ka poora ilm rakhny wala | Allama Talib Johri](https://www.youtube.com/shorts/07EeDSvN7ls)
+* __Surah Ar-Ra 13/43 (وَمَنْ عِندَهُۥ عِلْمُ ٱلْكِتَـٰبِ)__: [وَيَقُولُ ٱلَّذِينَ كَفَرُوا۟ لَسْتَ مُرْسَلًا ۚ.. قُلْ كَفَىٰ بِٱللَّهِ شَهِيدًۢا بَيْنِى وَبَيْنَكُمْ وَمَنْ عِندَهُۥ عِلْمُ ٱلْكِتَـٰبِ](https://quran.com/ar-rad/43)
+
+***
+
 
 

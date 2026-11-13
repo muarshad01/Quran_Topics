@@ -109,7 +109,7 @@
 * __Ilm is also incomplete__: At some point it finishes, only __ISHQ__ has the capacity to help us get to meet Allah SWT
 * ISHQ say pehlay Mohabbat hai
 * Mohabbat mayn silah manga-nahi-jaata...
-* ISHQ mayn toh Insaaan Rabb ko Purakta-Jaata-hai, sirf iss umeed par, Mera Rabb, kabhi-toh jawab-dee-gaa.
+* __ISHQ mayn toh Insaaan Rabb ko Purakta-Jaata-hai, sirf iss umeed par, Mera Rabb, kabhi-toh jawab-dee-gaa.__
 
 ***
 

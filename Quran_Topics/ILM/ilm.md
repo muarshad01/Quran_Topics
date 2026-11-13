@@ -21,6 +21,7 @@
 ***
 
 #### [Sachi Khushi Ka Sahe Maqam Kya Hai? | سچی خوشی کاصحیح مقام کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=OGUBKxUeJng)
+* Ghor-ok-fiqr -> Bandagi -> Rabb-ki-raza -> Rabb-ki-dosti -> Ilm-e-Laduni
 
 ***
 

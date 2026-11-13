@@ -20,6 +20,10 @@
 
 ***
 
+#### [Sachi Khushi Ka Sahe Maqam Kya Hai? | سچی خوشی کاصحیح مقام کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=OGUBKxUeJng)
+
+***
+
 #### [Ilm-e-Laduni| SSA Shah](https://www.youtube.com/shorts/e1R41bCxOHw)
 1. Aijzi paida-hooti-hai
 2. Dunya-ki-mohabbat uss-kay dil-say nikal-jaati-hay

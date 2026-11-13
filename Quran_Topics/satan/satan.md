@@ -7,6 +7,10 @@
 
 ***
 
+#### [One Simple Way to Stay Away From Shaytan | شیطان سے دور رہنے کا آسان طریقہ کیا ہے؟|SSA Shah](https://www.youtube.com/watch?v=1cw26FC69fU)
+
+***
+
 #### [Satan attacks on your mood swings because he knows you | Prof ARA](https://www.youtube.com/watch?v=wNama-qkQMU)
 
 ***

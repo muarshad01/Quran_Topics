@@ -45,10 +45,6 @@
 
 ***
 
-#### [Maqaam-e-ilm (46 min)| Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
-
-***
-
 * __Surah Fatir 35/28 (إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ)__: [وَمِنَ ٱلنَّاسِ وَٱلدَّوَآبِّ وَٱلْأَنْعَـٰمِ مُخْتَلِفٌ أَلْوَٰنُهُۥ كَذَٰلِكَ ۗ... إِنَّمَا يَخْشَى ٱللَّهَ مِنْ عِبَادِهِ ٱلْعُلَمَـٰٓؤُا۟ ۗ... إِنَّ ٱللَّهَ عَزِيزٌ غَفُورٌ](https://quran.com/35/28)
    
 ***
@@ -395,5 +391,7 @@
 
 ***
 
+#### [Maqaam-e-ilm (46 min)| Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8)
 
+***
 

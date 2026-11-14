@@ -35,14 +35,6 @@
 
 ***
 
-#### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Prof ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
-* The best thing I've given to my Bandoan (Slaves) is Salaam (__Ya Salaamu__).
-* Zehan-ki har-disturbance ko doar-karta-hai
-* Zehni Sakoon
-* [Ya-Salamu, Ya-Mominu, Ya-Allahu]
-
-***
-
 #### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
 * That muslim is not WISE, who doesn't remind Allah SWT His promise.
 * The muslim it not WISE, who can't dodge Satan.
@@ -60,6 +52,14 @@
 * Surah Al-Hashar Last 3-Ayats for Allah SWT Qurub
 * Sheikh-Abdul-Qadir Jilani
 * __Surah 59/22-24__: [](https://quran.com/59/22-24)
+
+***
+
+#### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Prof ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
+* The best thing I've given to my Bandoan (Slaves) is Salaam (__Ya Salaamu__).
+* Zehan-ki har-disturbance ko doar-karta-hai
+* Zehni Sakoon
+* [Ya-Salamu, Ya-Mominu, Ya-Allahu]
 
 ***
 

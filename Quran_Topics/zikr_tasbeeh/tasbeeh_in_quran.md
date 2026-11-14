@@ -14,6 +14,94 @@
 
 ***
 
+#### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
+* He is not a wise Muslim, who doesn't remind Allah SWT His promies:
+* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+* He is not a wise Muslim, who could not dodge Satan.
+
+#### Hadith
+* Afzal Zikr is **"La ilaha illallah" (لا إله إلا الله)** and  afzal dua is **"Alhamdulillah" (الحمد لله).**
+* Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
+
+#### Darood-Sharif
+* 1/3, 1/2, Only Darood..with do kafait!!!
+* [Ya-Salaamu, Ya-Mominu] for Anxiety & Depression.
+* [Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu]
+
+#### Allah SWT Qurub
+* Sheikh Abdul-Qadir Jilani
+* Last 3-Ayats of Surah Al-Hashar
+* __Surah Al-Hashar 59/22-24 (يُسَبِّحُ لَهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ)__: [...](https://quran.com/59/22-24) 
+
+***
+
+#### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Prof ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
+* The best thing I've given to my Bandoan (Slaves) is Salaam (__Ya Salaamu__).
+* Zehan-ki har-disturbance ko doar-karta-hai
+* Zehni Sakoon
+* [Ya-Salamu, Ya-Mominu, Ya-Allahu]
+
+***
+
+
+#### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
+* That muslim is not WISE, who doesn't remind Allah SWT His promise.
+* The muslim it not WISE, who can't dodge Satan.
+* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+#### Hadith
+* Afzal Zikr - "La ilaha illallah" (لَا إِلَٰهَ إِلَّا ٱللَّٰهُ)
+* Afzal duaa -  Alhamdulillah (ٱلْحَمْدُ لِلَّٰهِ)
+* ✦ Jabir bin Abdullah Radi Allahu Anhu said, I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) 
+#### Darood Sharif: 
+* 1/3, 1/2, Only Darood..with do kafait!!!
+#### Anxiety & Depression:
+* Ya-Salaamu & Ya-Momin
+* Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu
+#### Allah SWT Qurab
+* Surah Al-Hashar Last 3-Ayats for Allah SWT Qurub
+* Sheikh-Abdul-Qadir Jilani
+* __Surah 59/22-24__: [](https://quran.com/59/22-24)
+
+***
+
+#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
+1. Tasbeeh
+2. Concentration Span increases
+3. We do Ghoar-o-Fikr
+4. Nuqta-hai-raaz ko hal-karna seekh-laitay-hayn
+5. Qurub-of-Allah SWT
+6. We meet Rabb.
+  
+***
+
+
+#### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
+* __Surah At-Taubah 9/59__: [وَلَوْ أَنَّهُمْ رَضُوا۟ مَآ ءَاتَىٰهُمُ ٱللَّهُ وَرَسُولُهُۥ... وَقَالُوا۟ حَسْبُنَا ٱللَّهُ ...سَيُؤْتِينَا ٱللَّهُ مِن فَضْلِهِۦ وَرَسُولُهُۥٓ... إِنَّآ إِلَى ٱللَّهِ رَٰغِبُونَ](https://quran.com/9/59)
+* __Surah Al-Ahzaab 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ... يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا](https://quran.com/33/56)
+* __Surah Al-Fath 48/9 (وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ)__: [لِّتُؤْمِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ... وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ... وَتُسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quran.com/48/9)
+
+***
+
+#### [3rd Kalma | Hicham Ilahi Zaheer ](https://www.youtube.com/shorts/bOsL9ecMlBg)
+* Darood-e-Ibrahi & Tasbeeh
+1. Subhan Allah (سُبْحَانَ الله)
+2. Wal-hamd-u-lillah (وَالْحَمْدُ لِلَّٰهِ)
+3. Wa la-ilaha-illallah (وَلَا إِلَٰهَ إِلَّا ٱللَّٰهُ)
+4. Allahu Akbar(ٱللَّٰهُ أَكْبَرُ)
+5. la-hawla wala-quwwata illa-billah (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ)
+6. "Astaghfirullah Rabbi(أَسْتَغْفِرُ اللهَ رَبِّي")
+7. Wa atubu ilaih"(وَأَتُوبُ إِلَيْهِ)
+
+***
+
+#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
+* Quran apnay ahkamat-kay-zariey, hamary-dil-ko morenah-chahata-hay, Akharat-aur-Rabb ki-Taraf
+* We learn to concentrate our thoughs: Concentration Span broadens
+* We learn to dive into __Ghoar-o-Fiqr__
+* We learn to solve __Nuqta-hai-e-Raaz__
+
+***
+
 #### If Trees become PENS and Ocens from SEVEN Heavens become INK
 > * __Surah Al-Kahf 18/109__: [قُل لَّوْ كَانَ ٱلْبَحْرُ مِدَادًۭا... لِّكَلِمَـٰتِ رَبِّى... لَنَفِدَ ٱلْبَحْرُ... قَبْلَ أَن تَنفَدَ كَلِمَـٰتُ رَبِّى... وَلَوْ جِئْنَا بِمِثْلِهِۦ مَدَدًۭا](https://quran.com/18/109)
 > * __Surah Luqman 31/27__: [وَلَوْ أَنَّمَا فِى ٱلْأَرْضِ مِن شَجَرَةٍ أَقْلَـٰمٌۭ... وَٱلْبَحْرُ يَمُدُّهُۥ مِنۢ بَعْدِهِۦ سَبْعَةُ أَبْحُرٍۢ... مَّا نَفِدَتْ كَلِمَـٰتُ ٱللَّهِ ۗ... إِنَّ ٱللَّهَ عَزِيزٌ حَكِيمٌۭ](https://quran.com/31/27)
@@ -76,53 +164,6 @@
 
 ***
 
-#### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
-* He is not a wise Muslim, who doesn't remind Allah SWT His promies:
-* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-* He is not a wise Muslim, who could not dodge Satan.
-
-#### Hadith
-* Afzal Zikr is **"La ilaha illallah" (لا إله إلا الله)** and  afzal dua is **"Alhamdulillah" (الحمد لله).**
-* Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
-
-#### Darood-Sharif
-* 1/3, 1/2, Only Darood..with do kafait!!!
-* [Ya-Salaamu, Ya-Mominu] for Anxiety & Depression.
-* [Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu]
-
-#### Allah SWT Qurub
-* Sheikh Abdul-Qadir Jilani
-* Last 3-Ayats of Surah Al-Hashar
-* __Surah Al-Hashar 59/22-24 (يُسَبِّحُ لَهُۥ مَا فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ۖ)__: [...](https://quran.com/59/22-24) 
-
-***
-
-#### [Ya-Salam Ya-Momin Ya-Allah ki Tasbeeh, Zikar, Wazeefa Zaroor kro | Prof ARA](https://www.youtube.com/watch?v=YxzyloGr0pI)
-* The best thing I've given to my Bandoan (Slaves) is Salaam (__Ya Salaamu__).
-* Zehan-ki har-disturbance ko doar-karta-hai
-* Zehni Sakoon
-* [Ya-Salamu, Ya-Mominu, Ya-Allahu]
-
-***
-
-#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
-1. Tasbeeh
-2. Concentration Span increases
-3. We do Ghoar-o-Fikr
-4. Nuqta-hai-raaz ko hal-karna seekh-laitay-hayn
-5. Qurub-of-Allah SWT
-6. We meet Rabb.
-  
-***
-
-#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
-* Quran apnay ahkamat-kay-zariey, hamary-dil-ko morenah-chahata-hay, Akharat-aur-Rabb ki-Taraf
-* We learn to concentrate our thoughs: Concentration Span broadens
-* We learn to dive into __Ghoar-o-Fiqr__
-* We learn to solve __Nuqta-hai-e-Raaz__
-
-***
-
 #### [Tasbeeh-e-Ism aur Tasbeeh-e-Zaat | Hamd, Tasbeeh aur Astaghfar | Allama Talib Jauhari](https://www.youtube.com/watch?v=K-VKDmgpgwo)
 * __Surah Al-Isra 17/44 (Every ATOM: Tusabbihu (تُسَبِّحُ))__: [تُسَبِّحُ... لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ... وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ... وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ... إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quran.com/17/44)
 * __Surah Al-Muminun 23/14 (فَتَبَارَكَ ٱللَّهُ أَحْسَنُ ٱلْخَـٰلِقِينَ)__: [ثُمَّ خَلَقْنَا ٱلنُّطْفَةَ عَلَقَةًۭ ...فَخَلَقْنَا ٱلْعَلَقَةَ مُضْغَةًۭ... فَخَلَقْنَا ٱلْمُضْغَةَ عِظَـٰمًۭا ...فَكَسَوْنَا ٱلْعِظَـٰمَ لَحْمًۭا... ثُمَّ أَنشَأْنَـٰهُ خَلْقًا ءَاخَرَ ۚ... فَتَبَارَكَ ٱللَّهُ أَحْسَنُ ٱلْخَـٰلِقِينَ ](https://quran.com/23/14)
@@ -142,47 +183,7 @@
 
 ***
 
-#### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
-* __Surah At-Taubah 9/59__: [وَلَوْ أَنَّهُمْ رَضُوا۟ مَآ ءَاتَىٰهُمُ ٱللَّهُ وَرَسُولُهُۥ... وَقَالُوا۟ حَسْبُنَا ٱللَّهُ ...سَيُؤْتِينَا ٱللَّهُ مِن فَضْلِهِۦ وَرَسُولُهُۥٓ... إِنَّآ إِلَى ٱللَّهِ رَٰغِبُونَ](https://quran.com/9/59)
-* __Surah Al-Ahzaab 33/56__: [إِنَّ ٱللَّهَ وَمَلَـٰٓئِكَتَهُۥ يُصَلُّونَ عَلَى ٱلنَّبِىِّ ۚ... يَـٰٓأَيُّهَا ٱلَّذِينَ ءَامَنُوا۟ صَلُّوا۟ عَلَيْهِ وَسَلِّمُوا۟ تَسْلِيمًا](https://quran.com/33/56)
-* __Surah Al-Fath 48/9 (وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ)__: [لِّتُؤْمِنُوا۟ بِٱللَّهِ وَرَسُولِهِۦ... وَتُعَزِّرُوهُ وَتُوَقِّرُوهُ... وَتُسَبِّحُوهُ بُكْرَةًۭ وَأَصِيلًا](https://quran.com/48/9)
-
-***
-
-#### [3rd Kalma | Hicham Ilahi Zaheer ](https://www.youtube.com/shorts/bOsL9ecMlBg)
-* Darood-e-Ibrahi & Tasbeeh
-1. Subhan Allah (سُبْحَانَ الله)
-2. Wal-hamd-u-lillah (وَالْحَمْدُ لِلَّٰهِ)
-3. Wa la-ilaha-illallah (وَلَا إِلَٰهَ إِلَّا ٱللَّٰهُ)
-4. Allahu Akbar(ٱللَّٰهُ أَكْبَرُ)
-5. la-hawla wala-quwwata illa-billah (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ)
-6. "Astaghfirullah Rabbi(أَسْتَغْفِرُ اللهَ رَبِّي")
-7. Wa atubu ilaih"(وَأَتُوبُ إِلَيْهِ)
-
-***
-
-#### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
-* That muslim is not WISE, who doesn't remind Allah SWT His promise.
-* The muslim it not WISE, who can't dodge Satan.
-* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
-#### Hadith
-* Afzal Zikr - "La ilaha illallah" (لَا إِلَٰهَ إِلَّا ٱللَّٰهُ)
-* Afzal duaa -  Alhamdulillah (ٱلْحَمْدُ لِلَّٰهِ)
-* ✦ Jabir bin Abdullah Radi Allahu Anhu said, I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) 
-#### Darood Sharif: 
-* 1/3, 1/2, Only Darood..with do kafait!!!
-#### Anxiety & Depression:
-* Ya-Salaamu & Ya-Momin
-* Ya-Rehmanu, Ya-Raheemu, Ya-Kareemu
-#### Allah SWT Qurab
-* Surah Al-Hashar Last 3-Ayats for Allah SWT Qurub
-* Sheikh-Abdul-Qadir Jilani
-* __Surah 59/22-24__: [](https://quran.com/59/22-24)
-
-***
-
 * __Surah Al-Insaan 76/26__: [وَمِنَ ٱلَّيْلِ فَٱسْجُدْ لَهُۥ ...وَسَبِّحْهُ لَيْلًۭا طَوِيلًا](https://quran.com/76/26)
-
 
 ***
 

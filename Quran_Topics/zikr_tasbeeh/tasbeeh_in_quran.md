@@ -110,20 +110,20 @@
 
 > * __Al-Alaa 87/1 (Sabbih (سَبِّحْ) - Do)__: [سَبِّحِ ٱسْمَ... رَبِّكَ ٱلْأَعْلَى](https://quran.com/87/1)
 
+> * __Surah Al-Hijr 15/98 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَكُن مِّنَ ٱلسَّـٰجِدِينَ](https://quran.com/15/98)
+> * __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚإِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110/3)
+> * __Surah Al-Waqiah 56/96 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/56/96)
+> * __Surah Al-Haaqqa 69/52 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/69/52)
+
 ***
 
 #### Every ATOM
 * __Surah Al-Isra 17/44 (Tusabbihu (تُسَبِّحُ))__: [تُسَبِّحُ لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ... وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ... وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ... إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quran.com/17/44)
 
+#### Each ˹instinctively˺ knows their manner of prayer and glorification.
 * __Surah An Noor 24/41 (Yusabbihu (يُسَبِّحُ) - Doing and will keep doing...)__: [أَلَمْ تَرَ ...أَنَّ ٱللَّهَ يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ...وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ... كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ ۗ... وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
-* Habib Kya Tum-nayn-nahi-dekhaa...?
-* Nighe-e-Muhammad PBUH has seen the Tasbeeh of every-particle-of-this-Universe...
-
-> * __Surah Al-Hijr 15/98 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَكُن مِّنَ ٱلسَّـٰجِدِينَ](https://quran.com/15/98)
-> * __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚإِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110/3)
-
-> * __Surah Al-Waqiah 56/96 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/56/96)
-> * __Surah Al-Haaqqa 69/52 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/69/52)
+  * Habib have not you seen (Mean, You have already seen)
+  * Nigah-e-Muhammad Kainaat kay har zary koo deekh chuki hai
 
 ***
 

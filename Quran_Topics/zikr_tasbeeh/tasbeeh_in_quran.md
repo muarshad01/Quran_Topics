@@ -43,7 +43,6 @@
 
 ***
 
-
 #### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
 * That muslim is not WISE, who doesn't remind Allah SWT His promise.
 * The muslim it not WISE, who can't dodge Satan.
@@ -74,6 +73,13 @@
   
 ***
 
+#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
+* Quran apnay ahkamat-kay-zariey, hamary-dil-ko morenah-chahata-hay, Akharat-aur-Rabb ki-Taraf
+* We learn to concentrate our thoughs: Concentration Span broadens
+* We learn to dive into __Ghoar-o-Fiqr__
+* We learn to solve __Nuqta-hai-e-Raaz__
+
+***
 
 #### [Allah-aur-Rasool | Irfan-ul-Haq](https://www.youtube.com/shorts/GAdvoL34EAQ)
 * __Surah At-Taubah 9/59__: [وَلَوْ أَنَّهُمْ رَضُوا۟ مَآ ءَاتَىٰهُمُ ٱللَّهُ وَرَسُولُهُۥ... وَقَالُوا۟ حَسْبُنَا ٱللَّهُ ...سَيُؤْتِينَا ٱللَّهُ مِن فَضْلِهِۦ وَرَسُولُهُۥٓ... إِنَّآ إِلَى ٱللَّهِ رَٰغِبُونَ](https://quran.com/9/59)
@@ -91,14 +97,6 @@
 5. la-hawla wala-quwwata illa-billah (لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِٱللَّٰهِ)
 6. "Astaghfirullah Rabbi(أَسْتَغْفِرُ اللهَ رَبِّي")
 7. Wa atubu ilaih"(وَأَتُوبُ إِلَيْهِ)
-
-***
-
-#### [The Real Purpose of Tasbeeh | SSA Shah](https://www.youtube.com/watch?v=yo1Idn7TXNQ)
-* Quran apnay ahkamat-kay-zariey, hamary-dil-ko morenah-chahata-hay, Akharat-aur-Rabb ki-Taraf
-* We learn to concentrate our thoughs: Concentration Span broadens
-* We learn to dive into __Ghoar-o-Fiqr__
-* We learn to solve __Nuqta-hai-e-Raaz__
 
 ***
 
@@ -236,8 +234,3 @@
 > * __Surah Al-Anbya 21/87 (لَّآ إِلَـٰهَ إِلَّآ أَنتَ سُبْحَـٰنَكَ إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ)__: [وَذَا ٱلنُّونِ إِذ ذَّهَبَ مُغَـٰضِبًۭا فَظَنَّ أَن لَّن نَّقْدِرَ عَلَيْهِ فَنَادَىٰ فِى ٱلظُّلُمَـٰتِ أَن ...لَّآ إِلَـٰهَ إِلَّآ أَنتَ... سُبْحَـٰنَكَ ...إِنِّى كُنتُ مِنَ ٱلظَّـٰلِمِينَ](https://quran.com/21/87)
 
 ***
-
-
-
-
-

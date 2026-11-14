@@ -153,12 +153,6 @@
 
 ***
 
-* __Surah As-Saffat 37/166 (Angels Constantly Glorigy)__: [وَإِنَّا... لَنَحْنُ ٱلْمُسَبِّحُونَ](https://quran.com/37/166)
-* __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ ...وَٱسْتَغْفِرْهُ ۚ ...إِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110/3)
-* First Hamd, then Istighfar
-
-***
-
 * __Surah Al-Insaan 76/26__: [وَمِنَ ٱلَّيْلِ فَٱسْجُدْ لَهُۥ ...وَسَبِّحْهُ لَيْلًۭا طَوِيلًا](https://quran.com/76/26)
 
 ***

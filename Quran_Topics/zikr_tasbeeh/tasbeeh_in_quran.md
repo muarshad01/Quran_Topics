@@ -16,11 +16,12 @@
 
 #### [Sab-se-Aham Tasbihaat Wazaif kon-say-hain | Prof ARA](https://www.youtube.com/watch?v=3WwjpOLNO60)
 * He is not a wise Muslim, who doesn't remind Allah SWT His promies:
-* __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
+  * __Surah Al-Anam 6/54__: [كَتَبَ رَبُّكُمْ عَلَىٰ نَفْسِهِ ٱلرَّحْمَةَ ۖ](https://quran.com/6/54)
 * He is not a wise Muslim, who could not dodge Satan.
 
 #### Hadith
-* Afzal Zikr is **"La ilaha illallah" (لا إله إلا الله)** and  afzal dua is **"Alhamdulillah" (الحمد لله).**
+* Afzal Zikr is **"La ilaha illallah" (لا إله إلا الله)**
+* Afzal dua is **"Alhamdulillah" (الحمد لله).**
 * Jabir bin Abdullah Radi Allahu Anhu said I heard the Messenger of Allah (ﷺ) say: The best of remembrance is La ilaha illallah (None has the right to be worshipped but Allah), and the best of supplication is Al-Hamdu Lillah (praise is to Allah) ...
 
 #### Darood-Sharif

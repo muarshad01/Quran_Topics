@@ -9,8 +9,8 @@
 * __Hadith__: If a person sleeps while doing Tasbeeh then Malika (Angels) make it a must to complete his Tasbeeh. He gets complete reward according to his intention.
 * Rememberance-of-Allah, Allah works of that particular-self corrective methods
 * Nothing changes your fundamental habits (Fitrat) except Rememberance-of-Allah
-* Changes your character-and-behavior
-* Transforms your Jibilli-aadat to Aqli-aadat.
+  * Changes your character-and-behavior
+  * Transforms your Jibilli-aadat to Aqli-aadat.
 
 ***
 

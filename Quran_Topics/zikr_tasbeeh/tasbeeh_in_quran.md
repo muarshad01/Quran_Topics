@@ -142,6 +142,8 @@
 #### [Tasbeeh-e-Ism aur Tasbeeh-e-Zaat | Hamd, Tasbeeh aur Astaghfar | Allama Talib Jauhari](https://www.youtube.com/watch?v=K-VKDmgpgwo)
 * __Surah Al-Isra 17/44 (Every ATOM: Tusabbihu (تُسَبِّحُ))__: [تُسَبِّحُ... لَهُ ٱلسَّمَـٰوَٰتُ ٱلسَّبْعُ وَٱلْأَرْضُ وَمَن فِيهِنَّ ۚ... وَإِن مِّن شَىْءٍ إِلَّا يُسَبِّحُ بِحَمْدِهِۦ... وَلَـٰكِن لَّا تَفْقَهُونَ تَسْبِيحَهُمْ ۗ... إِنَّهُۥ كَانَ حَلِيمًا غَفُورًۭا](https://quran.com/17/44)
 * __Surah An-Nur 24/41__: [أَلَمْ تَرَ أَنَّ ٱللَّهَ ...يُسَبِّحُ لَهُۥ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ ...وَٱلطَّيْرُ صَـٰٓفَّـٰتٍۢ ۖ ...كُلٌّۭ قَدْ عَلِمَ صَلَاتَهُۥ وَتَسْبِيحَهُۥ... ۗ وَٱللَّهُ عَلِيمٌۢ بِمَا يَفْعَلُونَ](https://quran.com/24/41)
+  * Habib have not you seen (Mean, You have already seen)
+  * Nigah-e-Muhammad Kainaat kay har zary koo deekh chuki hai
 
 ***
 

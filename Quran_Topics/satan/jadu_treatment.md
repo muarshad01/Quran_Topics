@@ -576,3 +576,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 #### [Mirgi Or Jinnat Mein Farq | 10 Mint Ka Amal | Pir Azmat Nawaz Nade Ali | Patriata Shareef Ilaj](https://www.youtube.com/watch?v=7I6eg60wPVo)
 
 ***
+
+#### [Black Magic or Jinn in Your Home? How to Identify the Signs & Powerful Islamic Wazifa | Aik Digital](https://www.youtube.com/watch?v=TNIAqb5VA_I)
+
+***
+
+
+
+

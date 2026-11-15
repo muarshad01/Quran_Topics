@@ -9,7 +9,11 @@
 
 ***
 
-* [1100 or 1300 | Irfan-ul-Haq](https://www.youtube.com/watch?v=pXZ5s2qwRGA)
+#### [1100 or 1300 | Irfan-ul-Haq](https://www.youtube.com/watch?v=pXZ5s2qwRGA)
+
+***
+
+#### [What are the disadvantages of doing wrong Wazifa?? | Irfan-ul-Haq](https://www.youtube.com/watch?v=EGDGitPhVbY)
 
 ***
 

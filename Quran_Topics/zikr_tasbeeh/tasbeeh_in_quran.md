@@ -82,7 +82,7 @@
 
 | Word | Meaning| 
 |---|---|
-| Sabbaha (سَبَّحَ)     | Past Tense - Tasbeeh kar chuki (Tasbeeh Ki)|
+| Sabbaha (سَبَّحَ)     | Past Tense - Tasbeeh kar chuki (Tasbeeh Ki)|
 |---|---|
 | Tusabbihu (تُسَبِّحُ)  | Present & Future Tense - Doing and will keep doing |
 | Yusabbihu (يُسَبِّحُ)  | Present & Future Tense - Doing and will keep doing |
@@ -90,7 +90,7 @@
 |    Sabbih (سَبِّحْ)   | Glorigy |
 | Fa-sabbih (فَسَبِّحْ)  | So Glorigy |
 |---|---|
-| Subhana (سُبْحَانَ)   | Exalted (Glory be to the One) Surah Al-Isra|
+| Subhana (سُبْحَانَ)   | Glory be to the One - Surah Al-Isra|
 
 ***
 

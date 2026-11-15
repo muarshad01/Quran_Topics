@@ -581,6 +581,11 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 ***
 
+* [PurdueUniversityGlobal](https://careers.purdue.edu/PurdueUniversityGlobal/job/Purdue-Global-Adjunct-Faculty%2C-Computer-Science/35714-en_US/)
+
+***
+
+
 
 
 

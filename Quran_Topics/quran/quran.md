@@ -2,7 +2,7 @@
 
 ***
 
-#### [Nafees Quran](https://www.youtube.com/@NafeesQuran/videos)
+#### [Nafees Quran Videos](https://www.youtube.com/@NafeesQuran/videos)
 
 ***
 

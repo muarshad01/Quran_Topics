@@ -88,7 +88,7 @@
 | Yusabbihu (يُسَبِّحُ)  | Present & Future Tense - Doing and will keep doing |
 |---|---|
 |    Sabbih (سَبِّحْ)   | Glorigy |
-| Fa-sabbih (فَسَبِّحْ)  | So Glorigy |
+| Fa-sabbih (فَسَبِّحْ)  | So Glorigy - Imperative |
 |---|---|
 | Subhana (سُبْحَانَ)   | Glory be to the One - Surah Al-Isra|
 
@@ -108,6 +108,7 @@
 
 ***
 
+#### Imperative
 > * __Surah Al-Hijr 15/98 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَكُن مِّنَ ٱلسَّـٰجِدِينَ](https://quran.com/15/98)
 > * __Surah An-Nasr 110/3 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَٱسْتَغْفِرْهُ ۚإِنَّهُۥ كَانَ تَوَّابًۢا](https://quran.com/110/3)
 > * __Surah Al-Waqiah 56/96 (Fasabbih (فَسَبِّحْ))__: [فَسَبِّحْ بِٱسْمِ رَبِّكَ ٱلْعَظِيمِ](https://quran.com/56/96)

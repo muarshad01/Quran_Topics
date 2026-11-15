@@ -1,7 +1,3 @@
-* __Surah Al-Hijr 15/98__: [فَسَبِّحْ بِحَمْدِ رَبِّكَ وَكُن مِّنَ ٱلسَّـٰجِدِينَ](https://quran.com/15/98)
-
-***
-
 #### [Impact of Tasbeeh on Brain | Prof ARA](https://www.youtube.com/watch?v=xe1N2rUs4TY)
 * It travels through time, blood, genetic-length of a human-being.
 * From tongue it moves to your --> mind...from mind to --> heart...from heart to every --> drop-of-a-blood

@@ -579,13 +579,10 @@ Tera-Ilaj Nazar-Ke-Siwa Kuch-Aur-Nahin
 
 #### [Black Magic or Jinn in Your Home? How to Identify the Signs & Powerful Islamic Wazifa | Aik Digital](https://www.youtube.com/watch?v=TNIAqb5VA_I)
 
-***
-
-* [PurdueUniversityGlobal](https://careers.purdue.edu/PurdueUniversityGlobal/job/Purdue-Global-Adjunct-Faculty%2C-Computer-Science/35714-en_US/)
 
 ***
 
-
+* https://www.youtube.com/shorts/rh3m8pRkv64
 
 
 

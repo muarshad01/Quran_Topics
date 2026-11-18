@@ -2,6 +2,10 @@
 
 ***
 
+#### [Hazrat Imam Hussain Roza Mubarik](https://www.youtube.com/shorts/uG8PPRnaLsU)
+
+***
+
 #### [Blessings of Wazaif | How to Use Wazaif Correctly | Special Muharram Practices | Ch. Rukhsar Latif](https://www.youtube.com/watch?v=bI7Qo3HM9DI)
 
 ***

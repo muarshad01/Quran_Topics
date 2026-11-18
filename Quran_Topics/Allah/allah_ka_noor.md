@@ -141,8 +141,18 @@
 ***
 
 #### [Why Olive Oil Is Called Blessed in Islam | زیتون کا تیل اصل میں کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=6nZnxwoRbPw)
+* Olive Oil Tree which is neighter Eastern nor Western
+* Ilm aur Imaan
+* Naiki ki raah - soai huaway Imaan ki Changari bharak uthti hai...
 
 ***
 
+#### [Allah SWT Noor](https://www.youtube.com/shorts/uqugarXKkLg)
+* Momin ki misaal
+* Chirag - Quran and Imaan joo unke seenay mayn hai
+* Sheesha - Momin kaa dil - saff-aur-shifaff
+* Noor-ala-Noor - Momin 5 noor mayn rehta hai - 
 
+***
 
+#### Duai-e-Noor

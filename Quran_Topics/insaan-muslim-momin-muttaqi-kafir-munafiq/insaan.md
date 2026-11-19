@@ -1,3 +1,7 @@
+#### [Allah Taala Ne 3 Tarah Ke Insaan Takhleeq Kiye | SSA Shah](https://www.youtube.com/watch?v=_QN01sj6z1U)
+
+***
+
 ## Insaan
 
 * __Surah An-Nisaa 4/28 (Weak: وَخُلِقَ ٱلْإِنسَـٰنُ ضَعِيفًۭا)__: [يُرِيدُ ٱللَّهُ أَن يُخَفِّفَ عَنكُمْ ۚ وَخُلِقَ ٱلْإِنسَـٰنُ ضَعِيفًۭا](https://quran.com/4/28)

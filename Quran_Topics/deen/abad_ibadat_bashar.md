@@ -3,6 +3,12 @@
 
 ***
 
+#### [Maqam e abdiyat | Allama Talib Johri](https://www.youtube.com/shorts/WaP56Uh8ilQ)
+* __Surah Ale-Imran 3/83__: [أَفَغَيْرَ دِينِ ٱللَّهِ يَبْغُونَ وَلَهُۥٓ أَسْلَمَ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ طَوْعًۭا وَكَرْهًۭا وَإِلَيْهِ يُرْجَعُونَ ](https://quran.com/3/83)
+* __Surah Al-Araf 7/54__: []()
+
+***
+
 #### [The Highest Form of Worship | اعلی عبادت کا راز | SSA Shah](https://www.youtube.com/watch?v=-_jjY-pvt8s)
 * __Surah Ale-Imran 3/83__: [أَفَغَيْرَ دِينِ ٱللَّهِ يَبْغُونَ وَلَهُۥٓ أَسْلَمَ مَن فِى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ طَوْعًۭا وَكَرْهًۭا وَإِلَيْهِ يُرْجَعُونَ ](https://quran.com/3/83)
 

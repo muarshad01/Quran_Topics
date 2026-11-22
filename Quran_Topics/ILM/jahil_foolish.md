@@ -34,7 +34,11 @@
 
 ***
 
+#### [Allah ki amanat kisny qabol ki? | Allama Talib Johri](https://www.youtube.com/shorts/7ckUnhjyWDk)
 * __Surah Al-Ahzab 33/72 (إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا)__: [إِنَّا عَرَضْنَا ٱلْأَمَانَةَ عَلَى ٱلسَّمَـٰوَٰتِ وَٱلْأَرْضِ وَٱلْجِبَالِ فَأَبَيْنَ أَن يَحْمِلْنَهَا وَأَشْفَقْنَ مِنْهَا وَحَمَلَهَا ٱلْإِنسَـٰنُ ۖ إِنَّهُۥ كَانَ ظَلُومًۭا جَهُولًۭا ٧٢](https://quran.com/33/72)
+  * Indeed, We offered the TRUST to the heavens and the earth and the mountains, but they ˹all˺ declined to bear it, being fearful of it. But humanity assumed it, ˹for˺ they are truly wrongful ˹to themselves˺ and ignorant ˹of the consequences˺,
+  * For Jahil ...Ilm came
+  * For Zalim ...Justice (adal) came 
 
 ***
 

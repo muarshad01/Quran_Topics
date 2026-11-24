@@ -16,6 +16,10 @@
 
 ***
 
+#### [Unusual Changes In Personality While Visiting Faqeer Regularly | Qibla Syed Sarfraz Ahmad Shah Sahab](https://www.youtube.com/watch?v=BHVdeJV-nmw)
+
+***
+
 #### [Khuloos Insaan Ko Ghair Zaroori Lawazmaat Se Kaatta Hai | Wasif Ali Wasif](https://www.youtube.com/watch?v=zMQsJmL2yeE) -- Yaqeen/Intiqamat
 
 ```

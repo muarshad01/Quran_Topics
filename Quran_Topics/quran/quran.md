@@ -2,6 +2,15 @@
 
 ***
 
+#### [Summarize Quran in 2 minutes](https://www.youtube.com/shorts/xLCDetZU6iQ)
+* 4 themes
+  * How is the CREATOR, worship Him alone?
+  * What is PURPOSE of life?
+  * Dos and Don't
+  * Concept of HEREAFTER and ACCOUNTABILITY. There is an ETERNAL Life!
+
+***
+
 #### [Nafees Quran Videos](https://www.youtube.com/@NafeesQuran/videos)
 
 ***

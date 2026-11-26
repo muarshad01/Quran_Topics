@@ -25,6 +25,10 @@
 
 ***
 
+#### [The Status of Prophet Muhammad’s Knowledge | Allama Talib Johari - 44:00 mins](https://www.youtube.com/watch?v=FwKb0ooPK34)
+
+***
+
 #### [Ilm-e-Laduni| SSA Shah](https://www.youtube.com/shorts/e1R41bCxOHw)
 1. Aijzi paida-hooti-hai
 2. Dunya-ki-mohabbat uss-kay dil-say nikal-jaati-hay

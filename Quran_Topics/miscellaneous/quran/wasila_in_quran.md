@@ -9,6 +9,10 @@
 
 ***
 
+#### [Baghair Waseelay Ke Kaam Nahin Kerta | Allama Talib Johri](https://www.youtube.com/watch?v=eBovDhEeKek)
+
+***
+
 #### [Waseela ke Munkaroon ko Jawab | Allama Talib Johri](https://www.youtube.com/watch?v=L9kivfZu9to)
 
 ***

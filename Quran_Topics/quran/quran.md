@@ -2,6 +2,10 @@
 
 ***
 
+* Surah An-Nahl 16/98__: [فَإِذَا قَرَأْتَ ٱلْقُرْءَانَ فَٱسْتَعِذْ بِٱللَّهِ مِنَ ٱلشَّيْطَـٰنِ ٱلرَّجِيمِ](https://quran.com/16/98)
+
+***
+
 #### [Summarize Quran in 2 minutes](https://www.youtube.com/shorts/xLCDetZU6iQ)
 * 4 themes
   * How is the CREATOR, worship Him alone?

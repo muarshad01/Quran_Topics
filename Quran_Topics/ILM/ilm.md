@@ -20,6 +20,8 @@
 
 ***
 
+## SSA Shah
+
 #### [Sachi Khushi Ka Sahe Maqam Kya Hai? | سچی خوشی کاصحیح مقام کیا ہے؟ | SSA Shah](https://www.youtube.com/watch?v=OGUBKxUeJng)
 * Ghor-ok-fiqr -> Bandagi -> Rabb-ki-raza -> Rabb-ki-dosti -> Ilm-e-Laduni
 
@@ -38,6 +40,32 @@
 * Shahib-e-Ilm and also Shahib-e-amal
 * Such a person is never stiff-hearted
 * His anger is very limited (not in Heart)
+
+***
+
+
+#### [Journey of Ilm From Murshid | SSA Shah](https://www.youtube.com/shorts/H_J0Gd0v_j0)
+* Mursihid-koo ghoar-say dekhtay-rahayn, aun ki naqal-kartay-rahayn to MANZIL ko poonch-jayan-gay
+* When you meet murshid then __LOCK-your-TONGUE and LEAVE-your-AQAL at home__
+* ONLY keep your __EYES-and-EARS open.__
+
+***
+
+#### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
+* Ilm-ki-Neharain = 81,000
+* Total Stream of Alooms are 118 = 114 (Quran Surahs) + 4 (Ilm-e-Ghayab)
+
+***
+
+#### [Rumi’s Definition of a Real Aalim | اصل عالم کون؟ | SSA Shah](https://www.youtube.com/watch?v=qtfZovv3P8g)
+* TWO types of Ahl-e-ilm:
+1. Those who ride the horse-of-Ilm. Ilm-ki-RUKAB-mayn unn-kay Paon hotay-hayn aur ilm-ki-LAGAM unn-kay haath-mayn hooti-hai. Aur woh Ilm-ki-sawari-ko sahi-simat mayn doahrahnay-lagtay-hayn. REAL ilm walay!!!
+2. Ilm Insaan par sawari kar-raha-ho. Aus par Kitab-aur-Maloomat ka boojh lada-howa-hoo.
+
+***
+
+#### [Why True Knowledge needs a Guide | SSA Shah](https://www.youtube.com/shorts/0ynQ7Tqj_yU)
+* Insaan Ilm-ki-ziaditi say bhatak-jaata-hai
 
 ***
 
@@ -65,31 +93,6 @@
 > * __Surah An-Nahl 16/70 (إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا)__: [وَٱللَّهُ خَلَقَكُمْ ثُمَّ يَتَوَفَّىٰكُمْ ۚ وَمِنكُم مَّن يُرَدُّ إِلَىٰٓ أَرْذَلِ ٱلْعُمُرِ لِكَىْ لَا يَعْلَمَ بَعْدَ عِلْمٍۢ شَيْـًٔا ۚ إِنَّ ٱللَّهَ عَلِيمٌۭ قَدِيرٌۭ](https://quran.com/16/70)
 > * __Surah AL-Isra 17/85 (Little Ilm: وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا)__: [وَيَسْـَٔلُونَكَ عَنِ ٱلرُّوحِ ۖ قُلِ ٱلرُّوحُ مِنْ أَمْرِ رَبِّى وَمَآ أُوتِيتُم مِّنَ ٱلْعِلْمِ إِلَّا قَلِيلًۭا](https://quran.com/17/85)
 > * __Surah Yusuf 12/76 (وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ)__: [فَبَدَأَ بِأَوْعِيَتِهِمْ قَبْلَ وِعَآءِ أَخِيهِ ثُمَّ ٱسْتَخْرَجَهَا مِن وِعَآءِ أَخِيهِ ۚ... كَذَٰلِكَ كِدْنَا لِيُوسُفَ ۖ ...مَا كَانَ لِيَأْخُذَ أَخَاهُ فِى دِينِ ٱلْمَلِكِ إِلَّآ ...أَن يَشَآءَ ٱللَّهُ ۚ نَرْفَعُ دَرَجَـٰتٍۢ مَّن نَّشَآءُ ۗ... وَفَوْقَ كُلِّ ذِى عِلْمٍ عَلِيمٌۭ](https://quran.com/12/76)
-
-***
-
-#### [Journey of Ilm From Murshid | SSA Shah](https://www.youtube.com/shorts/H_J0Gd0v_j0)
-* Mursihid-koo ghoar-say dekhtay-rahayn, aun ki naqal-kartay-rahayn to MANZIL ko poonch-jayan-gay
-* When you meet murshid then __LOCK-your-TONGUE and LEAVE-your-AQAL at home__
-* ONLY keep your __EYES-and-EARS open.__
-
-***
-
-#### [The True Path to Ilm | SSA Shah](https://www.youtube.com/watch?v=8rawRMsJJGI)
-* Ilm-ki-Neharain = 81,000
-* Total Stream of Alooms are 118 = 114 (Quran Surahs) + 4 (Ilm-e-Ghayab)
-
-***
-
-#### [Rumi’s Definition of a Real Aalim | اصل عالم کون؟ | SSA Shah](https://www.youtube.com/watch?v=qtfZovv3P8g)
-* TWO types of Ahl-e-ilm:
-1. Those who ride the horse-of-Ilm. Ilm-ki-RUKAB-mayn unn-kay Paon hotay-hayn aur ilm-ki-LAGAM unn-kay haath-mayn hooti-hai. Aur woh Ilm-ki-sawari-ko sahi-simat mayn doahrahnay-lagtay-hayn. REAL ilm walay!!!
-2. Ilm Insaan par sawari kar-raha-ho. Aus par Kitab-aur-Maloomat ka boojh lada-howa-hoo.
-
-***
-
-#### [Why True Knowledge needs a Guide | SSA Shah](https://www.youtube.com/shorts/0ynQ7Tqj_yU)
-* Insaan Ilm-ki-ziaditi say bhatak-jaata-hai
 
 ***
 
@@ -282,7 +285,16 @@
 > * __Surah 16/27 (Utul Ilm)__: [ثُمَّ يَوْمَ ٱلْقِيَـٰمَةِ يُخْزِيهِمْ وَيَقُولُ أَيْنَ شُرَكَآءِىَ ٱلَّذِينَ كُنتُمْ تُشَـٰٓقُّونَ فِيهِمْ ۚ... قَالَ ٱلَّذِينَ أُوتُوا۟ ٱلْعِلْمَ إِنَّ ٱلْخِزْىَ ٱلْيَوْمَ وَٱلسُّوٓءَ عَلَى ٱلْكَـٰفِرِينَ](https://quran.com/16/27)
 > * __Surah Al-Ankabut 29/49 (Utul Ilm)__: [بَلْ هُوَ ءَايَـٰتٌۢ بَيِّنَـٰتٌۭ فِى صُدُورِ ٱلَّذِينَ أُوتُوا۟ ٱلْعِلْمَ ۚ وَمَا يَجْحَدُ بِـَٔايَـٰتِنَآ إِلَّا ٱلظَّـٰلِمُونَ](https://quran.com/29/49) 
 
+#### Ilm-e-Ghayab
 * __Surah An-Naml 27/75__: [وَمَا مِنْ غَآئِبَةٍۢ فِى ٱلسَّمَآءِ وَٱلْأَرْضِ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍ](https://quran.com/27/75)
+
+#### Rizq
+* __Surah Hud 11/6__: [۞ وَمَا مِن دَآبَّةٍ فِى ٱلْأَرْضِ إِلَّا عَلَى ٱللَّهِ رِزْقُهَا وَيَعْلَمُ مُسْتَقَرَّهَا وَمُسْتَوْدَعَهَا ۚ كُلٌّ فِى كِتَـٰبٍ مُّبِينٍ](https://quran.com/hud/6)
+
+#### Reward
+* __Surah An-Nisa 4/69__: [وَمَن يُطِعِ ٱللَّهَ وَٱلرَّسُولَ فَأُو۟لَـٰٓئِكَ مَعَ ٱلَّذِينَ أَنْعَمَ ٱللَّهُ عَلَيْهِم مِّنَ ٱلنَّبِيِّـۧنَ وَٱلصِّدِّيقِينَ وَٱلشُّهَدَآءِ وَٱلصَّـٰلِحِينَ ۚ... وَحَسُنَ أُو۟لَـٰٓئِكَ رَفِيقًا](https://quran.com/an-nisa/69)
+
+#### InShaa Allah
 
 ...
 

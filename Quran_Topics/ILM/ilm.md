@@ -25,10 +25,6 @@
 
 ***
 
-#### [The Status of Prophet Muhammad’s Knowledge | Allama Talib Johari - 44:00 mins](https://www.youtube.com/watch?v=FwKb0ooPK34)
-
-***
-
 #### [Ilm-e-Laduni| SSA Shah](https://www.youtube.com/shorts/e1R41bCxOHw)
 1. Aijzi paida-hooti-hai
 2. Dunya-ki-mohabbat uss-kay dil-say nikal-jaati-hay
@@ -254,11 +250,15 @@
 
 ***
 
+#### [The Status of Prophet Muhammad’s Knowledge | Allama Talib Johari - 44:00 mins](https://www.youtube.com/watch?v=FwKb0ooPK34)
+
+***
+
 #### [Maqaam-e-Ilm | Allama Talib Johri](https://www.youtube.com/watch?v=NhIrWwrfmV8) -- 46 mins
-* __Surah Al-Alaq 96/1-5 (First Wahi)__: [](https://quran.com/96/1-5)
-  * Jamay-huway-khoon-say alim-bana-diya
-  * Weak and Jahil
-* __Surah Al-Alaq 96/6-8__: [](https://quran.com/96/6-8)
+> * __Surah Al-Alaq 96/1-5 (First Wahi)__: [](https://quran.com/96/1-5)
+>   * Jamay-huway-khoon-say alim-bana-diya
+>   * You're born as "Weak and Jahil" - parents training and teachers knowledge
+> * __Surah Al-Alaq 96/6-8__: [](https://quran.com/96/6-8)
 
 * __Surah An-Naml 27/75__: [وَمَا مِنْ غَآئِبَةٍۢ فِى ٱلسَّمَآءِ وَٱلْأَرْضِ إِلَّا فِى كِتَـٰبٍۢ مُّبِينٍ](https://quran.com/27/75)
 * 38:00 pm

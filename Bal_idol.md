@@ -90,3 +90,5 @@ According to Islamic tradition (such as Ibn al-Kalbi’s Book of Idols), there w
 * __Surah Yaseen 36/74-75__: [وَٱتَّخَذُوا۟ مِن دُونِ ٱللَّهِ ءَالِهَةًۭ ...لَّعَلَّهُمْ يُنصَرُونَ...لَا يَسْتَطِيعُونَ نَصْرَهُمْ وَهُمْ لَهُمْ جُندٌۭ مُّحْضَرُونَ](https://quran.com/36/74-75)
 
 ***
+
+#### [Aijzi ka Takabbar | SSA Shah](https://www.youtube.com/shorts/1P1CbxFCNPs)
